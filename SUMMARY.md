@@ -1,4 +1,4 @@
 # Table of contents
 
 * [BG](README.md)
-* [Page 2 Temp](page-2-temp.md)
+* [Chapter 1 - Observing the Armies on the Battlefield of Kurukṣetra](chapter-1-observing-the-armies-on-the-battlefield-of-kuruk-etra.md)
