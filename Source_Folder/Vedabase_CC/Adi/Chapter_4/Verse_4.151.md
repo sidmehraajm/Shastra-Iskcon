@@ -1,0 +1,22 @@
+# CC Ādi 4.151
+
+**Bengali:**
+
+কোটি নেত্র নাহি দিল, সবে দিল দুই ।
+তাহাতে নিমেষ,—কৃষ্ণ কি দেখিব মুঞি ॥ ১৫১ ॥
+
+**Transliteration:**
+
+koṭi netra nāhi dila, sabe dila dui
+tāhāte nimeṣa, — kṛṣṇa ki dekhiba muñi
+
+**Synonyms:**
+
+Synonyms
+koṭi — ten million; netra — eyes; nāhi dila — did not give; sabe — to all; dila — gave; dui — two; tāhāte — in that; nimeṣa — a blink; kṛṣṇa — Lord Kṛṣṇa; ki — how; dekhiba — shall see; muñi — I.
+
+**Translation:**
+
+Translation
+He has not given millions of eyes to see the beauty of Kṛṣṇa. He has given only two eyes, and even those eyes blink. How then shall I see the lovely face of Kṛṣṇa?
+

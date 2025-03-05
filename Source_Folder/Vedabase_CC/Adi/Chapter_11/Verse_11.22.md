@@ -1,0 +1,22 @@
+# CC Ādi 11.22
+
+**Bengali:**
+
+রঘুনাথ বৈদ্য উপাধ্যায় মহাশয় ।
+যাঁহার দর্শনে কৃষ্ণপ্রেমভক্তি হয় ॥ ২২ ॥
+
+**Transliteration:**
+
+raghunātha vaidya upādhyāya mahāśaya
+yāṅhāra darśane kṛṣṇa-prema-bhakti haya
+
+**Synonyms:**
+
+Synonyms
+raghunātha vaidya — the physician Raghunātha; upādhyāya mahāśaya — a great personality with the title Upādhyāya; yāṅhāra — whose; darśane — by visiting; kṛṣṇa-prema — love of Kṛṣṇa; bhakti — devotional service; haya — awakened.
+
+**Translation:**
+
+Translation
+The physician Raghunātha, also known as Upādhyāya, was so great a devotee that simply by seeing him one would awaken his dormant love of Godhead.
+

@@ -1,0 +1,27 @@
+# CC Ādi 5.181
+
+**Bengali:**
+
+নৈহাটি নিকটে ‘ঝামটপুর’ নামে গ্রাম ।
+তাঁহা স্বপ্নে দেখা দিলা নিত্যানন্দ–রাম ॥ ১৮১ ॥
+
+**Transliteration:**
+
+naihāṭi-nikaṭe ‘jhāmaṭapura’ nāme grāma
+tāṅhā svapne dekhā dilā nityānanda-rāma
+
+**Synonyms:**
+
+Synonyms
+naihāṭi-nikaṭe — near the village Naihāṭi; jhāmaṭapura — Jhāmaṭapura; nāme — by the name; grāma — village; tāṅhā — there; svapne — in a dream; dekhā — appearance; dilā — gave; nityānanda-rāma — Lord Nityānanda Balarāma.
+
+**Translation:**
+
+Translation
+In the village of Jhāmaṭapura, which is near Naihāṭi, Lord Nityānanda appeared to me in a dream.
+
+**Purport:**
+
+Purport
+There is now a railway line to Jhāmaṭapura. If one wants to go there, he can take a train on the Katwa railway line and go directly to the station known as Sālāra. From that station one can go directly to Jhāmaṭapura.
+

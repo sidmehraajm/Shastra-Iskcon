@@ -1,0 +1,27 @@
+# CC Ādi 5.116
+
+**Bengali:**
+
+সেই বিষ্ণু হয় যাঁর অংশাংশের অংশ ।
+সেই প্রভু নিত্যানন্দ—সর্ব–অবতংস ॥ ১১৬ ॥
+
+**Transliteration:**
+
+sei viṣṇu haya yāṅra aṁśāṁśera aṁśa
+sei prabhu nityānanda — sarva-avataṁsa
+
+**Synonyms:**
+
+Synonyms
+sei — that; viṣṇu — Lord Viṣṇu; haya — is; yāṅra — whose; aṁśa-aṁśera — of the part of the plenary part; aṁśa — part; sei — that; prabhu — Lord; nityānanda — Nityānanda; sarva-avataṁsa — the source of all incarnations.
+
+**Translation:**
+
+Translation
+That Lord Viṣṇu is but a part of a part of a plenary portion of Lord Nityānanda, who is the source of all incarnations.
+
+**Purport:**
+
+Purport
+The Lord of Śvetadvīpa has immense potency for creation and destruction. Śrī Nityānanda Prabhu, being Baladeva Himself, the original form of Saṅkarṣaṇa, is the original form of the Lord of Śvetadvīpa.
+

@@ -1,0 +1,27 @@
+# CC Ādi 1.68
+
+**Bengali:**
+
+দুইরূপে হয় ভগবানের প্রকাশ ।
+একে ত’ প্রকাশ হয়, আরে ত’ বিলাস ॥ ৬৮ ॥
+
+**Transliteration:**
+
+dui-rūpe haya bhagavānera prakāśa
+eke ta’ prakāśa haya, āre ta’ vilāsa
+
+**Synonyms:**
+
+Synonyms
+dui-rūpe — in two forms; haya — are; bhagavānera — of the Supreme Personality of Godhead; prakāśa — manifestations; eke — in one; ta’ — certainly; prakāśa — manifestation; haya — is; āre — in the other; ta’ — certainly; vilāsa — engaged in pastimes.
+
+**Translation:**
+
+Translation
+The Personality of Godhead exhibits Himself in two kinds of forms: prakāśa and vilāsa.
+
+**Purport:**
+
+Purport
+The Supreme Lord expands His personal forms in two primary categories. The prakāśa forms are manifested by Lord Kṛṣṇa for His pastimes, and their features are exactly like His. When Lord Kṛṣṇa married sixteen thousand queens in Dvārakā, He did so in sixteen thousand prakāśa expansions. Similarly, during the rāsa dance He expanded Himself in identical prakāśa forms to dance beside each and every gopī simultaneously. When the Lord manifests His vilāsa expansions, however, they are all somewhat different in their bodily features. Lord Balarāma is the first vilāsa expansion of Lord Kṛṣṇa, and the four-handed Nārāyaṇa forms in Vaikuṇṭha expand from Balarāma. There is no difference between the bodily forms of Śrī Kṛṣṇa and Balarāma except that Their bodily colors are different. Similarly, Śrī Nārāyaṇa in Vaikuṇṭha has four hands, whereas Kṛṣṇa has only two. The expansions of the Lord who manifest such bodily differences are known as vilāsa-vigrahas.
+

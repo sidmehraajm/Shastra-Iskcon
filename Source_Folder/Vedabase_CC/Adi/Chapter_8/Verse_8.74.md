@@ -1,0 +1,22 @@
+# CC Ādi 8.74
+
+**Bengali:**
+
+দরশন করি কৈলুঁ চরণ বন্দন ।
+গোসাঞিদাস পূজারী করে চরণ–সেবন ॥ ৭৪ ॥
+
+**Transliteration:**
+
+daraśana kari kailuṅ caraṇa vandana
+gosāñi-dāsa pūjārī kare caraṇa-sevana
+
+**Synonyms:**
+
+Synonyms
+daraśana — by visiting; kari — doing; kailuṅ — made; caraṇa — lotus feet; vandana — worship; gosāñi-dāsa — Gosāñi dāsa; pūjārī — priest; kare — does; caraṇa — lotus feet; sevana — service.
+
+**Translation:**
+
+Translation
+When I visited the temple of Madana-mohana, the priest Gosāñi dāsa was serving the feet of the Lord, and I also prayed at the Lord’s lotus feet.
+

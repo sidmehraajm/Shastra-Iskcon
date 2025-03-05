@@ -1,0 +1,22 @@
+# CC Ādi 8.43
+
+**Bengali:**
+
+অতএব ভজ, লোক, চৈতন্য–নিত্যানন্দ ।
+খণ্ডিবে সংসার–দুঃখ, পাবে প্রেমানন্দ ॥ ৪৩ ॥
+
+**Transliteration:**
+
+ataeva bhaja, loka, caitanya-nityānanda
+khaṇḍibe saṁsāra-duḥkha, pābe premānanda
+
+**Synonyms:**
+
+Synonyms
+ataeva — therefore; bhaja — worship; loka — O people in general; caitanya — Lord Śrī Caitanya Mahāprabhu; nityānanda — Nityānanda Prabhu; khaṇḍibe — will vanquish; saṁsāra-duḥkha — miserable condition of material existence; pābe — he will get; premānanda — the transcendental bliss of devotional service.
+
+**Translation:**
+
+Translation
+I fervently appeal to everyone to adopt the method of devotional service given by Lord Caitanya and Nityānanda and thus be freed from the miseries of material existence and ultimately achieve the loving service of the Lord.
+

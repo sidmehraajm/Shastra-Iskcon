@@ -1,0 +1,22 @@
+# CC Madhya 1.65
+
+**Bengali:**
+
+এই তিন মধ্যে যবে থাকে যেই জন ।
+তাঁরে আসি’ আপনে মিলে, — প্রভুর নিয়ম ॥ ৬৫ ॥
+
+**Transliteration:**
+
+ei tina madhye yabe thāke yei jana
+tāṅre āsi’ āpane mile, — prabhura niyama
+
+**Synonyms:**
+
+Synonyms
+ei tina madhye — of these three; yabe — when; thāke — remains; yei jana — that person who; tāṅre — to him; āsi’ — coming; āpane mile — personally meets; prabhura — of Śrī Caitanya Mahāprabhu; niyama — regular practice.
+
+**Translation:**
+
+Translation
+If one of these three was not present, He would meet the others. That was His regular practice.
+

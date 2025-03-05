@@ -1,0 +1,22 @@
+# CC Ādi 6.98
+
+**Bengali:**
+
+একমাত্র ‘অংশী’—কৃষ্ণ, ‘অংশ’—অবতার ।
+অংশী অংশে দেখি জ্যেষ্ঠ–কনিষ্ঠ–আচার ॥ ৯৮ ॥
+
+**Transliteration:**
+
+eka-mātra ‘aṁśī’ — kṛṣṇa, ‘aṁśa’ — avatāra
+aṁśī aṁśe dekhi jyeṣṭha-kaniṣṭha-ācāra
+
+**Synonyms:**
+
+Synonyms
+eka-mātra — only one; aṁśī — source of all incarnations; kṛṣṇa — Lord Kṛṣṇa; aṁśa — of the part; avatāra — incarnations; aṁśī — is the source of all incarnations; aṁśe — in the incarnation; dekhi — we can see; jyeṣṭha — as superior; kaniṣṭha — and inferior; ācāra — behavior.
+
+**Translation:**
+
+Translation
+Lord Kṛṣṇa is the source of all incarnations, and all others are His parts or partial incarnations. We find that the whole and the part behave as superior and inferior.
+

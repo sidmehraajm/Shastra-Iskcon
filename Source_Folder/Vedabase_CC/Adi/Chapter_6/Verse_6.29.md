@@ -1,0 +1,22 @@
+# CC Ādi 6.29
+
+**Bengali:**
+
+ভক্তি–উপদেশ বিনু তাঁর নাহি কার্য ।
+অতএব নাম হৈল ‘অদ্বৈত আচার্য’ ॥ ২৯ ॥
+
+**Transliteration:**
+
+bhakti-upadeśa vinu tāṅra nāhi kārya
+ataeva nāma haila ‘advaita ācārya’
+
+**Synonyms:**
+
+Synonyms
+bhakti-upadeśa — instruction of devotional service; vinu — without; tāṅra — His; nāhi — there is not; kārya — occupation; ataeva — therefore; nāma — the name; haila — became; advaita ācārya — the supreme teacher (ācārya) Advaita Prabhu.
+
+**Translation:**
+
+Translation
+Since He has no other occupation than to teach devotional service, His name is Advaita Ācārya.
+

@@ -1,0 +1,24 @@
+# CC Ādi 4.36-37
+
+**Bengali:**
+
+এই বাঞ্ছা যৈছে কৃষ্ণপ্রাকট্য–কারণ ।
+অসুরসংহার—আনুষঙ্গ প্রয়োজন ॥ ৩৬ ॥
+এই মত চৈতন্য–কৃষ্ণ পূর্ণ ভগবান্‌ ।
+যুগধর্মপ্রবর্তন নহে তাঁর কাম ॥ ৩৭ ॥
+
+**Transliteration:**
+
+ei vāñchā yaiche kṛṣṇa-prākaṭya-kāraṇa
+asura-saṁhāra — ānuṣaṅga prayojana
+
+**Synonyms:**
+
+Synonyms
+ei — this; vāñchā — desire; yaiche — just as; kṛṣṇa — of Lord Kṛṣṇa; prākaṭya — for the manifestation; kāraṇa — reason; asura-saṁhāra — the killing of demons; ānuṣaṅga — secondary; prayojana — reason; ei mata — like this; caitanya — as Lord Caitanya Mahāprabhu; kṛṣṇa — Lord Kṛṣṇa; pūrṇa — full; bhagavān — the Supreme Personality of Godhead; yuga-dharma — the religion of the age; pravartana — initiating; nahe — is not; tāṅra — of Him; kāma — the desire.
+
+**Translation:**
+
+Translation
+Just as these desires are the fundamental reason for Kṛṣṇa’s appearance whereas destroying the demons is only an incidental necessity, so for Śrī Kṛṣṇa Caitanya, the Supreme Personality of Godhead, promulgating the dharma of the age is incidental.
+

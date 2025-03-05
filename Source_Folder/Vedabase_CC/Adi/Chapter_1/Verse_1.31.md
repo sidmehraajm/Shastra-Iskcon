@@ -1,0 +1,27 @@
+# CC Ādi 1.31
+
+**Bengali:**
+
+সকল বৈষ্ণব, শুন করি’ একমন ।
+চৈতন্য–কৃষ্ণের শাস্ত্র–মত–নিরূপণ ॥ ৩১ ॥
+
+**Transliteration:**
+
+sakala vaiṣṇava, śuna kari’ eka-mana
+caitanya-kṛṣṇera śāstra-mata-nirūpaṇa
+
+**Synonyms:**
+
+Synonyms
+sakala — all; vaiṣṇava — O devotees of the Lord; śuna — please hear; kari’ — making; eka-mana — rapt attention; caitanya — Lord Caitanya Mahāprabhu; kṛṣṇera — of Lord Śrī Kṛṣṇa; śāstra — scriptural reference; mata — according to; nirūpaṇa — decision.
+
+**Translation:**
+
+Translation
+I request all my Vaiṣṇava readers to read and hear with rapt attention this narration of Śrī Kṛṣṇa Caitanya as inculcated in the revealed scriptures.
+
+**Purport:**
+
+Purport
+Lord Caitanya is the Absolute Truth, Kṛṣṇa Himself. This is substantiated by evidence from the authentic spiritual scriptures. Sometimes people accept a man as God on the basis of their whimsical sentiments and without reference to the revealed scriptures, but the author of Caitanya-caritāmṛta proves all his statements by citing the śāstras. Thus he establishes that Caitanya Mahāprabhu is the Supreme Personality of Godhead.
+

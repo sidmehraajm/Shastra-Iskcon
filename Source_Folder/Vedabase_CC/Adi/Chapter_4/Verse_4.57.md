@@ -1,0 +1,22 @@
+# CC Ādi 4.57
+
+**Bengali:**
+
+সেই দুই এক এবে চৈতন্য গোসাঞি ।
+রস আস্বাদিতে দোঁহে হৈলা একঠাঁই ॥ ৫৭ ॥
+
+**Transliteration:**
+
+sei dui eka ebe caitanya gosāñi
+rasa āsvādite doṅhe hailā eka-ṭhāṅi
+
+**Synonyms:**
+
+Synonyms
+sei — these; dui — two; eka — one; ebe — now; caitanya gosāñi — Lord Caitanya Mahāprabhu; rasa — mellow; āsvādite — to taste; doṅhe — the two; hailā — have become; eka-ṭhāṅi — one body.
+
+**Translation:**
+
+Translation
+Now, to enjoy rasa, They have appeared in one body as Lord Caitanya Mahāprabhu.
+
