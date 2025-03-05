@@ -1,0 +1,35 @@
+# ŚB 10.69.7-8
+
+**Sanskrit:**
+
+तस्यामन्त:पुरं श्रीमदर्चितं सर्वधिष्ण्यपै: ।
+हरे: स्वकौशलं यत्र त्वष्ट्रा कार्त्स्‍न्येन दर्शितम् ॥ ७ ॥
+तत्र षोडशभि: सद्मसहस्रै: समलङ्कृतम् ।
+विवेशैकतोमं शौरे: पत्नीनां भवनं महत् ॥ ८ ॥
+
+**Transliteration:**
+
+tasyām antaḥ-puraṁ śrīmad
+arcitaṁ sarva-dhiṣṇya-paiḥ
+hareḥ sva-kauśalaṁ yatra
+tvaṣṭrā kārtsnyena darśitam
+tatra ṣoḍaśabhiḥ sadma-
+sahasraiḥ samalaṅkṛtam
+viveśaikatomaṁ śaureḥ
+patnīnāṁ bhavanaṁ mahat
+
+**Synonyms:**
+
+Synonyms
+tasyām — in that (Dvārakā); antaḥ-puram — the private royal precinct; śrī-mat — opulent; arcitam — worshiped; sarva — all; dhiṣṇya — of the various planetary systems; paiḥ — by the maintainers; hareḥ — of Lord Hari; sva — his own; kauśalam — expertise; yatra — where; tvaṣṭrā — by Tvaṣṭā (Viśvakarmā, the architect of heaven); kārtsnyena — completely; darśitam — shown; tatra — there; ṣoḍaśabhiḥ — with sixteen; sadma — of residences; sahasraiḥ — thousands; samalaṅkṛtam — beautified; viveśa — (Nārada) entered; ekatamam — one of them; śaureḥ — Lord Kṛṣṇa’s; patnīnām — of the wives; bhavanam — palace; mahat — great.
+
+**Translation:**
+
+Translation
+In the city of Dvārakā was a beautiful private quarter worshiped by the planetary rulers. This district, where the demigod Viśvakarmā had shown all his divine skill, was the residential area of Lord Hari, and thus it was gorgeously decorated by the sixteen thousand palaces of Lord Kṛṣṇa’s queens. Nārada Muni entered one of these immense palaces.
+
+**Purport:**
+
+Purport
+Śrīla Jīva Gosvāmī points out that Tvaṣṭā, Viśvakarmā, manifested the expertise of the Supreme Lord, and thus he was able to build such exquisite palaces. Śrīla Prabhupāda writes: “The great kings and princes of the world used to visit these palaces just to worship [Lord Kṛṣṇa]. The architectural plans were made personally by Viśvakarmā, the engineer of the demigods, and in the construction of the palaces he exhibited all of his talents and ingenuity.”
+

@@ -1,0 +1,20 @@
+# ŚB 5.25.2
+
+**Sanskrit:**
+
+यस्येदं क्षितिमण्डलं भगवतोऽनन्तमूर्ते: सहस्रशिरस एकस्मिन्नेव शीर्षणि ध्रियमाणं सिद्धार्थ इव लक्ष्यते ॥ २ ॥
+
+**Transliteration:**
+
+yasyedaṁ kṣiti-maṇḍalaṁ bhagavato ’nanta-mūrteḥ sahasra-śirasa ekasminn eva śīrṣaṇi dhriyamāṇaṁ siddhārtha iva lakṣyate.
+
+**Synonyms:**
+
+Synonyms
+yasya — of whom; idam — this; kṣiti-maṇḍalam — universe; bhagavataḥ — of the Supreme Personality of Godhead; ananta-mūrteḥ — in the form of Anantadeva; sahasra-śirasaḥ — who has thousands of hoods; ekasmin — on one; eva — only; śīrṣaṇi — hood; dhriyamāṇam — is being sustained; siddhārthaḥ iva — and like a white mustard seed; lakṣyate — is seen.
+
+**Translation:**
+
+Translation
+Śukadeva Gosvāmī continued: This great universe, situated on one of Lord Anantadeva’s thousands of hoods, appears just like a white mustard seed. It is infinitesimal compared to the hood of Lord Ananta.
+

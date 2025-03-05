@@ -1,0 +1,22 @@
+# CC Ādi 16.24
+
+**Bengali:**
+
+শিষ্যগণ লঞা পুনঃ বিদ্যার বিলাস ।
+বিদ্যা–বলে সবা জিনি’ ঔদ্ধত্য প্রকাশ ॥ ২৪ ॥
+
+**Transliteration:**
+
+śiṣya-gaṇa lañā punaḥ vidyāra vilāsa
+vidyā-bale sabā jini’ auddhatya prakāśa
+
+**Synonyms:**
+
+Synonyms
+śiṣya-gaṇa — disciples; lañā — taking; punaḥ — again; vidyāra — of education; vilāsa — pastime; vidyā-bale — by the strength of education; saba — everyone; jini’ — conquering; auddhatya — of pride; prakāśa — manifestation.
+
+**Translation:**
+
+Translation
+After coming back from East Bengal, Śrī Caitanya Mahāprabhu again began educating others. By the strength of His education He conquered everyone, and thus He was greatly proud.
+

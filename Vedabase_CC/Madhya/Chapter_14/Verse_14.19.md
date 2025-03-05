@@ -1,0 +1,22 @@
+# CC Madhya 14.19
+
+**Bengali:**
+
+তবে মহাপ্রভু তাঁরে ঐশ্বর্য দেখাইল ।
+‘কারেহ না কহিবে’ এই নিষেধ করিল ॥ ১৯ ॥
+
+**Transliteration:**
+
+tabe mahāprabhu tāṅre aiśvarya dekhāila
+‘kāreha nā kahibe’ ei niṣedha karila
+
+**Synonyms:**
+
+Synonyms
+tabe — at that time; mahāprabhu — Śrī Caitanya Mahāprabhu; tāṅre — to the King; aiśvarya — divine power; dekhāila — showed; kāreha nā kahibe — do not speak to anyone; ei — this; niṣedha karila — forbade.
+
+**Translation:**
+
+Translation
+At that time, Śrī Caitanya Mahāprabhu displayed some of His divine opulences to the King, and He forbade him to disclose this to anyone.
+

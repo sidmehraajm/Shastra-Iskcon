@@ -1,0 +1,29 @@
+# ŚB 11.17.20
+
+**Sanskrit:**
+
+अशौचमनृतं स्तेयं नास्तिक्यं शुष्कविग्रह: ।
+काम: क्रोधश्च तर्षश्च स भावोऽन्त्यावसायिनाम् ॥ २० ॥
+
+**Transliteration:**
+
+aśaucam anṛtaṁ steyaṁ
+nāstikyaṁ śuṣka-vigrahaḥ
+kāmaḥ krodhaś ca tarṣaś ca
+sa bhāvo ’ntyāvasāyinām
+
+**Synonyms:**
+
+Synonyms
+aśaucam — dirtiness; anṛtam — dishonesty; steyam — thievery; nāstikyam — faithlessness; śuṣka-vigrahaḥ — useless quarreling; kāmaḥ — lust; krodhaḥ — anger; ca — also; tarṣaḥ — hankering; ca — also; saḥ — this; bhāvaḥ — the nature; antya — in the lowest position; avasāyinām — of those residing.
+
+**Translation:**
+
+Translation
+Dirtiness, dishonesty, thievery, faithlessness, useless quarrel, lust, anger and hankering constitute the nature of those in the lowest position outside the varṇāśrama system.
+
+**Purport:**
+
+Purport
+Here the Lord describes those who reside outside the scientific social system called varṇāśrama. In Europe and America, we have practically observed that the standards of cleanliness are abominable even among so-called educated persons. Going without bathing and the use of indecent language are common. In the modern age people whimsically speak whatever they like, dispensing with all authority, and there is therefore very little truthfulness or true wisdom. Similarly, in both the capitalistic and communistic countries, everyone is busily engaged in stealing and robbing from everyone else in the name of business, taxation or outright crime. People are not confident of the kingdom of God nor of their own eternal nature, and thus their faith is very weak. Moreover, since modern human beings are not very interested in Kṛṣṇa consciousness they constantly quarrel, bicker and fight over completely insignificant issues relating to the material body. Thus at the slightest provocation there are huge wars and massacres. Lust, anger and hankering have become practically unlimited in Kali-yuga. The symptoms and characteristics mentioned here can be abundantly observed throughout the world, wherever people have fallen away from the varṇāśrama system. Because of sinful habits such as animal killing, illicit sex, intoxication and gambling, the great majority of human beings have become caṇḍālas, or untouchables.
+

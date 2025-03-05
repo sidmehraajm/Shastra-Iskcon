@@ -1,0 +1,24 @@
+# ŚB 8.8.32
+
+**Sanskrit:**
+
+दीर्घपीवरदोर्दण्ड: कम्बुग्रीवोऽरुणेक्षण: ।
+श्यामलस्तरुण: स्रग्वी सर्वाभरणभूषित: ॥ ३२ ॥
+
+**Transliteration:**
+
+dīrgha-pīvara-dor-daṇḍaḥ
+kambu-grīvo ’ruṇekṣaṇaḥ
+śyāmalas taruṇaḥ sragvī
+sarvābharaṇa-bhūṣitaḥ
+
+**Synonyms:**
+
+Synonyms
+dīrgha — long; pīvara — stout and strong; doḥ-daṇḍaḥ — the arms; kambu — like a conchshell; grīvaḥ — the neck; aruṇa-īkṣaṇaḥ — reddish eyes; śyāmalaḥ — blackish complexion; taruṇaḥ — very young; sragvī — wearing a flower garland; sarva — all; ābharaṇa — with ornaments; bhūṣitaḥ — decorated.
+
+**Translation:**
+
+Translation
+He was strongly built; his arms were long, stout and strong; his neck, which was marked with three lines, resembled a conchshell; his eyes were reddish; and his complexion was blackish. He was very young, he was garlanded with flowers, and his entire body was fully decorated with various ornaments.
+

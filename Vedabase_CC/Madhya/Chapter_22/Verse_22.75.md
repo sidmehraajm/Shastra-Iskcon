@@ -1,0 +1,22 @@
+# CC Madhya 22.75
+
+**Bengali:**
+
+সর্ব মহা-গুণগণ বৈষ্ণব-শরীরে ।
+কৃষ্ণভক্তে কৃষ্ণের গুণ সকলি সঞ্চারে ॥ ৭৫ ॥
+
+**Transliteration:**
+
+sarva mahā-guṇa-gaṇa vaiṣṇava-śarīre
+kṛṣṇa-bhakte kṛṣṇera guṇa sakali sañcāre
+
+**Synonyms:**
+
+Synonyms
+sarva — all; mahā — great; guṇa-gaṇa — transcendental qualities; vaiṣṇava-śarīre — in the bodies of Vaiṣṇavas; kṛṣṇa-bhakte — in the devotees of Lord Kṛṣṇa; kṛṣṇera — of Lord Kṛṣṇa; guṇa — the qualities; sakali — all; sañcāre — appear.
+
+**Translation:**
+
+Translation
+“A Vaiṣṇava is one who has developed all good transcendental qualities. All the good qualities of Kṛṣṇa gradually develop in Kṛṣṇa’s devotee.
+

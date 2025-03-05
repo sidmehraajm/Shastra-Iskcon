@@ -1,0 +1,28 @@
+# CC Antya 1.142
+
+**Bengali:**
+
+ekasya śrutam eva lumpati matiṁ kṛṣṇeti nāmākṣaraṁ
+sāndronmāda-paramparām upanayaty anyasya vaṁśī-kalaḥ
+eṣa snigdha-ghana-dyutir manasi me lagnaḥ paṭe vīkṣaṇāt
+kaṣṭaṁ dhik puruṣa-traye ratir abhūn manye mṛtiḥ śreyasī
+
+**Transliteration:**
+
+ekasya — of one person; śrutam — heard; eva — certainly; lumpati — take away; matim — the mind; kṛṣṇa iti — Kṛṣṇa; nāma-akṣaram — the letters of the name; sāndra-unmāda — of intense madness; paramparām — a shower; upanayati — brings; anyasya — of another; vaṁśī-kalaḥ — the sound vibration of the flute; eṣaḥ — this third one; snigdha — giving love; ghana-dyutiḥ — lightninglike effulgence; manasi — in the mind; me — My; lagnaḥ — attachment; paṭe — in the picture; vīkṣaṇāt — by seeing; kaṣṭam dhik — oh, shame upon Me; puruṣa-traye — to three persons; ratiḥ — attachment; abhūt — has appeared; manye — I think; mṛtiḥ — death; śreyasī — better.
+
+**Synonyms:**
+
+Synonyms
+ekasya — of one person; śrutam — heard; eva — certainly; lumpati — take away; matim — the mind; kṛṣṇa iti — Kṛṣṇa; nāma-akṣaram — the letters of the name; sāndra-unmāda — of intense madness; paramparām — a shower; upanayati — brings; anyasya — of another; vaṁśī-kalaḥ — the sound vibration of the flute; eṣaḥ — this third one; snigdha — giving love; ghana-dyutiḥ — lightninglike effulgence; manasi — in the mind; me — My; lagnaḥ — attachment; paṭe — in the picture; vīkṣaṇāt — by seeing; kaṣṭam dhik — oh, shame upon Me; puruṣa-traye — to three persons; ratiḥ — attachment; abhūt — has appeared; manye — I think; mṛtiḥ — death; śreyasī — better.
+
+**Translation:**
+
+Translation
+“[Experiencing previous attachment to Kṛṣṇa (pūrva-rāga), Śrīmatī Rādhārāṇī thought:] ‘Since I have heard the name of a person called Kṛṣṇa, I have practically lost My good sense. Then, there is another person who plays His flute in such a way that after I hear the vibration, intense madness arises in My heart. And again there is still another person to whom My mind becomes attached when I see His beautiful lightninglike effulgence in His picture. Therefore I think that I am greatly condemned, for I have become simultaneously attached to three persons. It would be better for Me to die because of this.’
+
+**Purport:**
+
+Purport
+This verse is Vidagdha-mādhava 2.9.
+

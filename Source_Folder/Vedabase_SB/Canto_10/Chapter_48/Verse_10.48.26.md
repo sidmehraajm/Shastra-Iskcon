@@ -1,0 +1,32 @@
+# ŚB 10.48.26
+
+**Sanskrit:**
+
+क: पण्डितस्त्वदपरं शरणं समीयाद्
+भक्तप्रियाद‍ृतगिर: सुहृद: कृतज्ञात् ।
+सर्वान् ददाति सुहृदो भजतोऽभिकामा-
+नात्मानमप्युपचयापचयौ न यस्य ॥ २६ ॥
+
+**Transliteration:**
+
+kaḥ paṇḍitas tvad aparaṁ śaraṇaṁ samīyād
+bhakta-priyād ṛta-giraḥ suhṛdaḥ kṛta-jñāt
+sarvān dadāti suhṛdo bhajato ’bhikāmān
+ātmānam apy upacayāpacayau na yasya
+
+**Synonyms:**
+
+Synonyms
+kaḥ — what; paṇḍitaḥ — scholar; tvat — other than You; aparam — to another; śaraṇam — for shelter; samīyāt — would go; bhakta — to Your devotees; priyāt — affectionate; ṛta — always true; giraḥ — whose words; suhṛdaḥ — the well-wisher; kṛta-jñāt — grateful; sarvān — all; dadāti — You give; suhṛdaḥ — to Your well-wishing devotees; bhajataḥ — who are engaged in worshiping You; abhikāmān — desires; ātmānam — Yourself; api — even; upacaya — increase; apacayau — or diminution; na — never; yasya — whose.
+
+**Translation:**
+
+Translation
+What learned person would approach anyone but You for shelter, when You are the affectionate, grateful and truthful well-wisher of Your devotees? To those who worship You in sincere friendship You reward everything they desire, even Your own self, yet You never increase or diminish.
+
+**Purport:**
+
+Purport
+This verse describes both the Lord and His devotees as suhṛdaḥ “well-wishers.” The Lord is the well-wisher of His devotee, and the devotee lovingly desires all happiness for the Lord. Even in this world, an excess of love may sometimes produce unnecessary solicitude. For example, we often observe that a mother’s loving concern for her adult child is not always justified by an actual danger to the child. A grown child may be wealthy, competent and healthy, and yet the mother’s loving concern continues. Similarly, a pure devotee always feels loving concern for Lord Kṛṣṇa, as exemplified by mother Yaśodā, who could only think of Kṛṣṇa as her beautiful son.
+Lord Kṛṣṇa had promised Akrūra that after killing Kaṁsa He would visit his home, and now the Lord kept His promise. Akrūra recognizes this and glorifies the Lord as ṛta-giraḥ, “one who is true to His word.” The Lord is kṛta-jña, grateful for whatever little worship a devotee offers, and even if the devotee forgets, the Lord does not.
+

@@ -1,0 +1,22 @@
+# CC Madhya 14.80
+
+**Bengali:**
+
+বিদ্যানিধির জলকেলি স্বরূপের সনে ।
+গুপ্ত-দত্তে জলকেলি করে দুইজনে ॥ ৮০ ॥
+
+**Transliteration:**
+
+vidyānidhira jala-keli svarūpera sane
+gupta-datte jala-keli kare dui jane
+
+**Synonyms:**
+
+Synonyms
+vidyānidhira — of Vidyānidhi; jala-keli — water sports; svarūpera sane — with Svarūpa Dāmodara; gupta-datte — both Murāri Gupta and Vāsudeva Datta; jala-keli — water sports; kare — do; dui jane — two persons.
+
+**Translation:**
+
+Translation
+Svarūpa Dāmodara and Vidyānidhi also threw water upon each other, and Murāri Gupta and Vāsudeva Datta also sported in that way.
+

@@ -1,0 +1,31 @@
+# CC Madhya 22.51
+
+**Bengali:**
+
+মহৎ-কৃপা বিনা কোন কর্মে ‘ভক্তি’ নয় ।
+কৃষ্ণভক্তি দূরে রহু, সংসার নহে ক্ষয় ॥ ৫১ ॥
+
+**Transliteration:**
+
+mahat-kṛpā vinā kona karme ‘bhakti’ naya
+kṛṣṇa-bhakti dūre rahu, saṁsāra nahe kṣaya
+
+**Synonyms:**
+
+Synonyms
+mahat-kṛpā — the mercy of great devotees; vinā — without; kona karme — by some other activity; bhakti naya — there is not devotional service; kṛṣṇa-bhakti — love of Kṛṣṇa or devotional service to Kṛṣṇa; dūre rahu — leaving aside; saṁsāra — the bondage of material existence; nahe — there is not; kṣaya — destruction.
+
+**Translation:**
+
+Translation
+“Unless one is favored by a pure devotee, one cannot attain the platform of devotional service. To say nothing of kṛṣṇa-bhakti, one cannot even be relieved from the bondage of material existence.
+
+**Purport:**
+
+Purport
+Pious activities bring about material opulence, but one cannot acquire devotional service by any amount of material pious activity — not by giving charity, opening big hospitals and schools or working philanthropically. Devotional service can be attained only by the mercy of a pure devotee. Without a pure devotee’s mercy, one cannot even escape the bondage of material existence. The word mahat in this verse means “a pure devotee,” as Lord Kṛṣṇa confirms in the Bhagavad-gītā (9.13):
+mahātmānas tu māṁ pārtha daivīṁ prakṛtim āśritāḥ
+bhajanty ananya-manaso jñātvā bhūtādim avyayam
+“O son of Pṛthā, those who are not deluded, the great souls, are under the protection of the divine nature. They are fully engaged in devotional service because they know Me as the Supreme Personality of Godhead, original and inexhaustible.”
+One has to associate with such a mahātmā, who has accepted Kṛṣṇa as the supreme source of the entire creation. Without being a mahātmā, one cannot understand Kṛṣṇa’s absolute position. A mahātmā is rare and transcendental, and he is a pure devotee of Lord Kṛṣṇa. Foolish people consider Kṛṣṇa a human being, and they consider Lord Kṛṣṇa’s pure devotee an ordinary human being also. Whatever one may be, one must take shelter at the lotus feet of a devotee mahātmā and treat him as the most exalted well-wisher of all human society. We should take shelter of such a mahātmā and ask for his causeless mercy. Only by his benediction can one be relieved from attachment to the materialistic way of life. When one is thus relieved, he can engage in the Lord’s transcendental loving service through the mercy of the mahātmā.
+

@@ -1,0 +1,29 @@
+# ŚB 10.16.44
+
+**Sanskrit:**
+
+नम: प्रमाणमूलाय कवये शास्त्रयोनये ।
+प्रवृत्ताय निवृत्ताय निगमाय नमो नम: ॥ ४४ ॥
+
+**Transliteration:**
+
+namaḥ pramāṇa-mūlāya
+kavaye śāstra-yonaye
+pravṛttāya nivṛttāya
+nigamāya namo namaḥ
+
+**Synonyms:**
+
+Synonyms
+namaḥ — obeisances; pramāṇa — of authoritative evidence; mūlāya — to the basis; kavaye — to the author; śāstra — of the revealed scripture; yonaye — to the source; pravṛttāya — which encourages sense gratification; nivṛttāya — which encourages renunciation; nigamāya — to Him who is the origin of both kinds of scripture; namaḥ namaḥ — repeated obeisances.
+
+**Translation:**
+
+Translation
+We offer our obeisances again and again to You, who are the basis of all authoritative evidence, who are the author and ultimate source of the revealed scriptures, and who have manifested Yourself in those Vedic literatures encouraging sense gratification as well as in those encouraging renunciation of the material world.
+
+**Purport:**
+
+Purport
+If we did not have the powers of perception and cognition, evidence could not be transmitted, and if we had no tendency to believe in particular modes of evidence, persuasion could not take place. All of these processes — perception, cognition, persuasion and transmission — take place through the various potencies of the Supreme Lord. The Supreme Lord Kṛṣṇa is Himself the greatest scholar and intellectual being. He manifests the transcendental scriptures within the hearts of great devotees like Brahmā and Nārada, and in addition He incarnates as Vedavyāsa, the compiler of all Vedic knowledge. In multifarious ways the Lord generates a variety of religious scriptures, which gradually bring the conditioned souls through the various phases of reentry into the kingdom of God.
+

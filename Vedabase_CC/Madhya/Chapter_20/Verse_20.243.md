@@ -1,0 +1,22 @@
+# CC Madhya 20.243
+
+**Bengali:**
+
+প্রকাশ-বিলাসের এই কৈলুঁ বিবরণ ।
+স্বাংশের ভেদ এবে শুন, সনাতন ॥ ২৪৩ ॥
+
+**Transliteration:**
+
+prakāśa-vilāsera ei kailuṅ vivaraṇa
+svāṁśera bheda ebe śuna, sanātana
+
+**Synonyms:**
+
+Synonyms
+prakāśa-vilāsera — of pastime forms and manifestations; ei — this; kailuṅ — I have made; vivaraṇa — description; svāṁśera — of personal expansions; bheda — the differences; ebe — now; śuna — please hear; sanātana — O Sanātana Gosvāmī.
+
+**Translation:**
+
+Translation
+“I have already described the pastime and prakāśa forms. Now please hear about the different personal expansions.
+

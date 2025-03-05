@@ -1,0 +1,20 @@
+# ŚB 5.24.9
+
+**Sanskrit:**
+
+येषु महाराज मयेन मायाविना विनिर्मिता: पुरो नानामणिप्रवरप्रवेकविरचितविचित्रभवनप्राकारगोपुरसभाचैत्यचत्वरायतनादिभिर्नागासुरमिथुनपारावतशुकसारिकाकीर्णकृत्रिमभूमिभिर्विवरेश्वरगृहोत्तमै: समलङ्कृताश्चकासति ॥ ९ ॥
+
+**Transliteration:**
+
+yeṣu mahārāja mayena māyāvinā vinirmitāḥ puro nānā-maṇi-pravara-praveka-viracita-vicitra-bhavana-prākāra-gopura-sabhā-caitya-catvarāyatanādibhir nāgāsura-mithuna-pārāvata-śuka-sārikākīrṇa-kṛtrima-bhūmibhir vivareśvara-gṛhottamaiḥ samalaṅkṛtāś cakāsati.
+
+**Synonyms:**
+
+Synonyms
+yeṣu — in those lower planetary systems; mahā-rāja — O my dear King; mayena — by the demon named Maya; māyā-vinā — possessing advanced knowledge in the construction of material comforts; vinirmitāḥ — constructed; puraḥ — cities; nānā-maṇi-pravara — of valuable gems; praveka — with excellent; viracita — constructed; vicitra — wonderful; bhavana — houses; prākāra — walls; gopura — gates; sabhā — legislative meeting rooms; caitya — temples; catvara — schools; āyatana-ādibhiḥ — with hotels or recreation halls and so on; nāga — of living entities with snakelike bodies; asura — of demons, or godless persons; mithuna — by couples; pārāvata — pigeons; śuka — parrots; sārikā — mynas; ākīrṇa — crowded; kṛtrima — artificial; bhūmibhiḥ — possessing areas; vivara-īśvara — of the leaders of the planets; gṛha-uttamaiḥ — with first-class houses; samalaṅkṛtāḥ — decorated; cakāsati — shine magnificently.
+
+**Translation:**
+
+Translation
+My dear King, in the imitation heavens known as bila-svarga there is a great demon named Maya Dānava, who is an expert artist and architect. He has constructed many brilliantly decorated cities. There are many wonderful houses, walls, gates, assembly houses, temples, yards and temple compounds, as well as many hotels serving as residential quarters for foreigners. The houses for the leaders of these planets are constructed with the most valuable jewels, and they are always crowded with living entities known as Nāgas and Asuras, as well as many pigeons, parrots and similar birds. All in all, these imitation heavenly cities are most beautifully situated and attractively decorated.
+

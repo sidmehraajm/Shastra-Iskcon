@@ -1,0 +1,24 @@
+# ŚB 9.3.5
+
+**Sanskrit:**
+
+शकृन्मूत्रनिरोधोऽभूत् सैनिकानां च तत्क्षणात् ।
+राजर्षिस्तमुपालक्ष्य पुरुषान् विस्मितोऽब्रवीत् ॥ ५ ॥
+
+**Transliteration:**
+
+śakṛn-mūtra-nirodho ’bhūt
+sainikānāṁ ca tat-kṣaṇāt
+rājarṣis tam upālakṣya
+puruṣān vismito ’bravīt
+
+**Synonyms:**
+
+Synonyms
+śakṛt — of stool; mūtra — and of urine; nirodhaḥ — stoppage; abhūt — so became; sainikānām — of all the soldiers; ca — and; tat-kṣaṇāt — immediately; rājarṣiḥ — the King; tam upālakṣya — seeing the incident; puruṣān — to his men; vismitaḥ — being surprised; abravīt — began to speak.
+
+**Translation:**
+
+Translation
+Thereupon, all the soldiers of Śaryāti were immediately obstructed from passing urine and stool. Upon perceiving this, Śaryāti spoke to his associates in surprise.
+

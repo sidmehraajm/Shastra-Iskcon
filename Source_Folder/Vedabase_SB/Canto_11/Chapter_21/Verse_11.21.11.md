@@ -1,0 +1,34 @@
+# ŚB 11.21.11
+
+**Sanskrit:**
+
+शक्त्याशक्त्याथ वा बुद्ध्या समृद्ध्या च यदात्मने ।
+अघं कुर्वन्ति हि यथा देशावस्थानुसारत: ॥ ११ ॥
+
+**Transliteration:**
+
+śaktyāśaktyātha vā buddhyā
+samṛddhyā ca yad ātmane
+aghaṁ kurvanti hi yathā
+deśāvasthānusārataḥ
+
+**Synonyms:**
+
+Synonyms
+śaktyā — by relative potency; aśaktyā — impotence; atha vā — or; buddhyā — in terms of understanding; samṛddhyā — opulence; ca — and; yat — which; ātmane — to oneself; agham — sinful reaction; kurvanti — cause; hi — indeed; yathā — in actuality; deśa — place; avasthā — or one’s condition; anusārataḥ — in accordance with.
+
+**Translation:**
+
+Translation
+Impure things may or may not impose sinful reactions upon a person, depending on that person’s strength or weakness, intelligence, wealth, location and physical condition.
+
+**Purport:**
+
+Purport
+The Lord has described the purity and impurity of different places, times and material objects. According to the laws of nature, that which is impure contaminates a particular person in accordance with that person’s situation, as described here. For example, on certain occasions, such as a solar eclipse or just after childbirth, one must restrict the intake of food according to ritualistic injunctions. One who is physically weak, however, may eat without being considered impious. Ordinary persons consider the ten days following childbirth to be most auspicious, whereas one who is learned knows that this period is actually impure. Ignorance of the law does not save one from being punished, but one who consciously commits sinful activities is considered most fallen. Concerning opulence (samṛddhi), worn-out, dirty clothing or a messy residence are considered impure for a rich man but acceptable for one who is poor. The word deśa indicates that in a safe and peaceful place one is obligated to strictly perform religious rituals, whereas in a dangerous or chaotic situation one may be excused for occasional negligence of secondary principles. One who is physically healthy must offer obeisances to the Deities, attend religious functions and execute his prescribed duties, but a young child or sickly person may be excused from such activities, as indicated by the word avasthā. Ultimately, as Śrīla Rūpa Gosvāmī states:
+anyābhilāṣitā-śūnyaṁ
+jñāna-karmādy-anāvṛtam
+ānukūlyena kṛṣṇānu-
+śīlanaṁ bhaktir uttamā
+“One should render transcendental loving service to the Supreme Lord Kṛṣṇa favorably and without desire for material profit or gain through fruitive activities or philosophical speculation. That is called pure devotional service.” (Bhakti-rasāmṛta-sindhu 1.1.11) One should accept everything which is favorable for the devotional service of Lord Kṛṣṇa and reject whatever is unfavorable. One must learn the process of serving God from the bona fide spiritual master and thus always maintain one’s existence pure and free from anxiety. In general, however, when considering the relative purity and impurity of material things, all of the above-mentioned factors must be calculated.
+

@@ -1,0 +1,31 @@
+# ŚB 10.7.32
+
+**Sanskrit:**
+
+किं नस्तपश्चीर्णमधोक्षजार्चनं
+पूर्तेष्टदत्तमुत भूतसौहृदम् ।
+यत्सम्परेत: पुनरेव बालको
+दिष्टय‍ा स्वबन्धून् प्रणयन्नुपस्थित: ॥ ३२ ॥
+
+**Transliteration:**
+
+kiṁ nas tapaś cīrṇam adhokṣajārcanaṁ
+pūrteṣṭa-dattam uta bhūta-sauhṛdam
+yat samparetaḥ punar eva bālako
+diṣṭyā sva-bandhūn praṇayann upasthitaḥ
+
+**Synonyms:**
+
+Synonyms
+kim — what kind of; naḥ — by us; tapaḥ — austerity; cīrṇam — has been done for a very long time; adhokṣaja — of the Supreme Personality of Godhead; arcanam — worshiping; pūrta — constructing public roads, etc.; iṣṭa — activities for public benefit; dattam — giving charity; uta — or else; bhūta-sauhṛdam — because of love for the general public; yat — by the result of which; samparetaḥ — even though the child was practically lost in death; punaḥ eva — even again because of pious activities; bālakaḥ — the child; diṣṭyā — by fortune; sva-bandhūn — all His relatives; praṇayan — to please; upasthitaḥ — is present here.
+
+**Translation:**
+
+Translation
+Nanda Mahārāja and the others said: We must previously have performed austerities for a very long time, worshiped the Supreme Personality of Godhead, performed pious activities for public life, constructing public roads and wells, and also given charity, as a result of which this boy, although faced with death, has returned to give happiness to His relatives.
+
+**Purport:**
+
+Purport
+Nanda Mahārāja confirmed that by pious activities one can become a sādhu so that one will be happy at home and one’s children will be protected. In śāstra there are many injunctions for karmīs and jñānīs, especially for karmīs, by which they can become pious and happy even in material life. According to Vedic civilization, one should perform activities for the benefit of the public, such as constructing public roads, planting trees on both sides of the road so that people can walk in the shade, and constructing public wells so that everyone can take water without difficulty. One should perform austerity to control one’s desires, and one must simultaneously worship the Supreme Personality of Godhead. Thus one becomes pious, and as a result one is happy even in material conditions of life.
+

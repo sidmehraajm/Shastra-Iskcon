@@ -1,0 +1,24 @@
+# ŚB 9.21.23
+
+**Sanskrit:**
+
+तत्सुतो विशदस्तस्य स्येनजित् समजायत ।
+रुचिराश्वो द‍ृढहनु: काश्यो वत्सश्च तत्सुता: ॥ २३ ॥
+
+**Transliteration:**
+
+tat-suto viśadas tasya
+syenajit samajāyata
+rucirāśvo dṛḍhahanuḥ
+kāśyo vatsaś ca tat-sutāḥ
+
+**Synonyms:**
+
+Synonyms
+tat-sutaḥ — the son of Jayadratha; viśadaḥ — Viśada; tasya — the son of Viśada; syenajit — Syenajit; samajāyata — was born; rucirāśvaḥ — Rucirāśva; dṛḍhahanuḥ — Dṛḍhahanu; kāśyaḥ — Kāśya; vatsaḥ — Vatsa; ca — also; tat-sutāḥ — sons of Syenajit.
+
+**Translation:**
+
+Translation
+The son of Jayadratha was Viśada, and his son was Syenajit. The sons of Syenajit were Rucirāśva, Dṛḍhahanu, Kāśya and Vatsa.
+

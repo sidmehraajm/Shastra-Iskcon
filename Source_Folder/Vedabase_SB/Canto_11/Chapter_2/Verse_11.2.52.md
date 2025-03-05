@@ -1,0 +1,39 @@
+# ŚB 11.2.52
+
+**Sanskrit:**
+
+न यस्य स्व: पर इति वित्तेष्वात्मनि वा भिदा ।
+सर्वभूतसम: शान्त: स वै भागवतोत्तम: ॥ ५२ ॥
+
+**Transliteration:**
+
+na yasya svaḥ para iti
+vitteṣv ātmani vā bhidā
+sarva-bhūta-samaḥ śāntaḥ
+sa vai bhāgavatottamaḥ
+
+**Synonyms:**
+
+Synonyms
+na — there is not; yasya — of whom; svaḥ paraḥ iti — “mine” and “someone else’s”; vitteṣu — about his property; ātmani — about his body; vā — or; bhidā — by thinking in terms of duality; sarva-bhūta — to all living beings; samaḥ — equal; śāntaḥ — peaceful; saḥ — he; vai — indeed; bhāgavata-uttamaḥ — the best of devotees.
+
+**Translation:**
+
+Translation
+When a devotee gives up the selfish conception by which one thinks “This is my property, and that is his,” and when he is no longer concerned with the pleasures of his own material body or indifferent to the discomforts of others, he becomes fully peaceful and satisfied. He considers himself simply one among all the living beings who are equally part and parcel of the Supreme Personality of Godhead. Such a satisfied Vaiṣṇava is considered to be at the highest standard of devotional service.
+
+**Purport:**
+
+Purport
+The vision described by the phrase sarva-bhūta-samaḥ, “seeing all living entities equally,” does not include one’s vision of the Supreme Personality of Godhead. In this connection Śrīla Madhvācārya has quoted from the Harī-vaṁśa as follows:
+na kvāpi jīvaṁ viṣṇutve
+saṁsṛtau mokṣa eva ca
+“Under no circumstance should one consider the living entity equal to Lord Viṣṇu, either in conditional life or in liberation.” The impersonal speculative philosophers are fond of imagining that although in our present illusion we appear to be individual entities, at liberation we shall all merge into God and be God. Such wishful thinkers cannot reasonably explain how the omnipotent God could arrive at the embarrassing position of having to enter a yoga studio, pay weekly fees, press His nose and chant mantras to regain His divinity. As stated in the Vedas, nityo nityānāṁ cetanaś cetanānām eko bahūnāṁ yo vidadhāti kāmān. The individuality or plurality of living entities is not a product of material existence. The word nityānām, denoting the plurality of eternal entities, clearly indicates that the living entities are eternally individual parts and parcels of the Lord, who is the singular unique entity described here as ekaḥ. In Bhagavad-gītā (1.21) Arjuna said to Kṛṣṇa, rathaṁ sthāpaya me ’cyuta: “My dear Acyuta, please place my chariot between the armies.” This body is also ratha, a vehicle, and therefore the best policy is to request the infallible Lord to take charge of our conditioned body and guide us on the path back to the kingdom of God. The word acyuta means “the infallible” or “one who never falls.” Learned or sane human beings will not entertain the silly notion that the omnipotent, omniscient God has slipped and fallen because of māyā. No amount of wishful thinking can erase our eternal servitorship at the lotus feet of the Lord.
+This fact is stated by the Lord Himself in the Varāha Purāṇa:
+naivaṁ tvayānumantavyaṁ
+jīvātmāham iti kvacit
+sarvair guṇair su-sampannaṁ
+daivaṁ māṁ jñātum arhasi
+“You should never think Me one of the ordinary living entities in the jīva category. In fact I am the reservoir of all opulences and godly qualities, and therefore you should understand that I am the Supreme Lord.”
+According to Śrīla Jīva Gosvāmī and Śrīla Viśvanātha Cakravartī Ṭhākura, this verse of Śrīmad-Bhāgavatam does not forbid using a particular object in the Lord’s service, since a devotee is free to use anything favorable for serving Lord Kṛṣṇa. This acceptance of favorable objects in the service of Kṛṣṇa is called yukta-vairāgya. As stated by Śrīla Rūpa Gosvāmī, nirbandhaḥ kṛṣṇa-sambandhe: one should be attached for Kṛṣṇa’s sake, never for one’s own sake. If one interprets this verse to indicate that one should not exercise control over any material object, even if it is favorable for serving Kṛṣṇa, one falls into the bad understanding called phalgu-vairāgya, or immature renunciation. Great kings such as Mahārāja Yudhiṣṭhira and Mahārāja Parīkṣit engaged the entire earth, and other Vaiṣṇavas have engaged the entire universe in the service of Kṛṣṇa. But they completely gave up the sense of their personal proprietorship. That is the point made in this verse. Just as one becomes very much concerned about any pain in one’s own body, one should be concerned with bringing the conditioned souls to the platform of devotional service so that all of their suffering will be banished forever. That is the actual purport of not distinguishing between one body and another.
+

@@ -1,0 +1,32 @@
+# CC Ādi 10.40
+
+**Bengali:**
+
+শ্রীমুকুন্দ–দত্ত শাখা—প্রভুর সমাধ্যায়ী ।
+যাঁহার কীর্তনে নাচে চৈতন্য–গোসাঞি ॥ ৪০ ॥
+
+**Transliteration:**
+
+śrī-mukunda-datta śākhā — prabhura samādhyāyī
+yāṅhāra kīrtane nāce caitanya-gosāñi
+
+**Synonyms:**
+
+Synonyms
+śrī-mukunda-datta — Śrī Mukunda Datta; śākhā — another branch; prabhura — of Lord Śrī Caitanya Mahāprabhu; samādhyāyī — class friend; yāṅhāra — whose; kīrtane — in saṅkīrtana; caitanya-gosāñi — Śrī Caitanya Mahāprabhu.
+
+**Translation:**
+
+Translation
+Mukunda Datta, a class friend of Lord Caitanya’s, was another branch of the Caitanya tree. Lord Caitanya danced while he sang.
+
+**Purport:**
+
+Purport
+Śrī Mukunda Datta was born in the Caṭṭagrāma district, in the village of Chanharā, which is under the jurisdiction of the police station named Paṭiyā. This village is situated ten krośas, or about twenty miles, from the home of Puṇḍarīka Vidyānidhi. In the Gaura-gaṇoddeśa-dīpikā (140) it is said:
+vraje sthitau gāyakau yau madhukaṇṭha-madhuvratau
+mukunda-vāsudevau tau dattau gaurāṅga-gāyakau
+“In Vraja there were two very nice singers named Madhukaṇṭha and Madhuvrata. They appeared in caitanya-līlā as Mukunda and Vāsudeva Datta, who were singers in the society of Lord Caitanya Mahāprabhu.” When Lord Caitanya was a student, Mukunda Datta was His class friend, and they frequently engaged in logical arguments. Sometimes Lord Caitanya Mahāprabhu would fight with Mukunda Datta, using tricks of logic. This is described in the Caitanya-bhāgavata, Ādi-khaṇḍa, chapters eleven and twelve. When Lord Caitanya Mahāprabhu returned from Gayā, Mukunda Datta gave Him pleasure by reciting verses from Śrīmad-Bhāgavatam about kṛṣṇa-līlā. It was by his endeavor that Gadādhara Paṇḍita Gosvāmī became a disciple of Puṇḍarīka Vidyānidhi, as stated in Śrī Caitanya-bhāgavata, Madhya-khaṇḍa, chapter seven. When Mukunda Datta sang in the courtyard of Śrīvāsa Prabhu, Mahāprabhu danced with His singing, and when Lord Caitanya for twenty-one hours exhibited an ecstatic manifestation known as sāta-prahariyā, Mukunda Datta inaugurated the function by singing.
+Sometimes Lord Caitanya Mahāprabhu chastised Mukunda Datta by calling him khaḍajāṭhiyā beṭā because he attended many functions held by different classes of nondevotees. This is stated in the Caitanya-bhāgavata, Madhya-khaṇḍa, chapter ten. When Lord Caitanya Mahāprabhu dressed Himself as the goddess of fortune to dance in the house of Candraśekhara, Mukunda Datta began the first song.
+Before disclosing His desire to take the renounced order of life, Lord Caitanya first went to the house of Mukunda Datta, but at that time Mukunda Datta requested Lord Caitanya Mahāprabhu to continue His saṅkīrtana movement for a few days more before taking sannyāsa. This is stated in the Caitanya-bhāgavata, Madhya-khaṇḍa, chapter twenty-six. The information of Lord Caitanya’s accepting the renounced order was made known to Gadādhara Paṇḍita, Candraśekhara Ācārya and Mukunda Datta by Nityānanda Prabhu, and therefore all of them went to Katwa and arranged for kīrtana and all the paraphernalia for Lord Caitanya’s acceptance of sannyāsa. After the Lord took sannyāsa, they all followed Him, especially Śrī Nityānanda Prabhu, Gadādhara Prabhu and Mukunda Datta, who followed Him all the way to Puruṣottama-kṣetra. In this connection one may refer to Śrī Caitanya-bhāgavata, Antya-khaṇḍa, chapter two. In the place known as Jaleśvara, Nityānanda Prabhu broke the sannyāsa rod of Caitanya Mahāprabhu. Mukunda Datta was also present at that time. He went every year from Bengal to see Lord Caitanya at Jagannātha Purī.
+

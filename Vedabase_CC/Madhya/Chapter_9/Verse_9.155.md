@@ -1,0 +1,34 @@
+# CC Madhya 9.155
+
+**Bengali:**
+
+এক ঈশ্বর — ভক্তের ধ্যান-অনুরূপ ।
+একই বিগ্রহে করে নানাকার রূপ ॥ ১৫৫ ॥
+
+**Transliteration:**
+
+eka īśvara — bhaktera dhyāna-anurūpa
+eka-i vigrahe kare nānākāra rūpa
+
+**Synonyms:**
+
+Synonyms
+eka īśvara — the Lord is one; bhaktera — of the devotees; dhyāna — meditation; anurūpa — according to; eka-i — one; vigrahe — in form; kare — exhibits; nānā-ākāra — different; rūpa — forms.
+
+**Translation:**
+
+Translation
+“There is no difference between the transcendental forms of the Lord. Different forms are manifested due to different attachments of different devotees. Actually the Lord is one, but He appears in different forms just to satisfy His devotees.
+
+**Purport:**
+
+Purport
+In the Brahma-saṁhitā (5.33) it is stated:
+advaitam acyutam anādim ananta-rūpam
+ādyaṁ purāṇa-puruṣaṁ nava-yauvanaṁ ca
+The Lord is advaita, without differentiation. There is no difference between the forms of Kṛṣṇa, Rāma, Nārāyaṇa and Viṣṇu. All of Them are one. Sometimes foolish people ask whether when we chant “Rāma” in the Hare Kṛṣṇa mantra we refer to Lord Rāmacandra or Lord Balarāma. If a devotee says that the name Rāma in the Hare Kṛṣṇa mahā-mantra refers to Balarāma, a foolish person may become angry because to him the name Rāma refers to Lord Rāmacandra. Actually there is no difference between Balarāma and Lord Rāma. It does not matter whether one refers to Balarāma or to Lord Rāmacandra when chanting Hare Rāma, for there is no difference between Them. However, it is offensive to think that Balarāma is superior to Lord Rāmacandra or vice versa. Neophyte devotees do not understand this śāstric conclusion, and consequently they unnecessarily create an offensive situation. In text 154 Śrī Caitanya Mahāprabhu clarified this in a very lucid way: īśvaratve bheda mānile haya aparādha. “It is offensive for one to differentiate between the forms of the Lord.” On the other hand, one should not think that the forms of the Lord are the same as the forms of the demigods. This is certainly offensive, as confirmed by the Vaiṣṇava-tantra:
+yas tu nārāyaṇaṁ devaṁ brahma-rudrādi-daivataiḥ
+samatvenaiva vīkṣeta sa pāṣaṇḍī bhaved dhruvam
+“A pāṣaṇḍī is one who considers the great demigods such as Lord Brahmā and Lord Śiva equal to the Supreme Personality of Godhead, Nārāyaṇa.” (Hari-bhakti-vilāsa 7.117)
+The conclusion is that we should neither differentiate between the forms of the Lord nor equate the forms of the Lord with the forms of demigods or human beings. For instance, sometimes foolish sannyāsīs, thinking the body of the Lord to be material, equate daridra-nārāyaṇa with Nārāyaṇa, and this is certainly offensive. Unless one is instructed by a bona fide spiritual master, he cannot perfectly understand these different forms. The Brahma-saṁhitā confirms, vedeṣu durlabham adurlabham ātma-bhaktau. One cannot understand the differences between the forms of the Lord simply by academic study or by reading Vedic literature. One must learn from a realized devotee. Only then can one learn how to distinguish between one form of the Lord and another. The conclusion is that there is no difference between the forms of the Lord, but there is a difference between His forms and those of the demigods.
+

@@ -1,0 +1,21 @@
+# CC Antya 2.121
+
+**Bengali:**
+
+eta kahi’ mahāprabhu abhyantare gelā
+gosāñira āveśa dekhi’ sabe mauna hailā
+
+**Transliteration:**
+
+eta kahi’ — saying this; mahāprabhu — Śrī Caitanya Mahāprabhu; abhyantare gelā — entered His room; gosāñira — of Śrī Caitanya Mahāprabhu; āveśa — absorption in anger; dekhi’ — seeing; sabe — all the devotees; mauna hailā — became silent.
+
+**Synonyms:**
+
+Synonyms
+eta kahi’ — saying this; mahāprabhu — Śrī Caitanya Mahāprabhu; abhyantare gelā — entered His room; gosāñira — of Śrī Caitanya Mahāprabhu; āveśa — absorption in anger; dekhi’ — seeing; sabe — all the devotees; mauna hailā — became silent.
+
+**Translation:**
+
+Translation
+After saying this, Śrī Caitanya Mahāprabhu entered His room. Seeing Him in such an angry mood, all the devotees fell silent.
+

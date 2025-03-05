@@ -1,0 +1,22 @@
+# CC Madhya 14.41
+
+**Bengali:**
+
+আপনে বৈস, প্রভু, ভোজন করিতে ।
+তুমি না খাইলে, কেহ না পারে খাইতে ॥ ৪১ ॥
+
+**Transliteration:**
+
+āpane vaisa, prabhu, bhojana karite
+tumi nā khāile, keha nā pāre khāite
+
+**Synonyms:**
+
+Synonyms
+āpane vaisa — You personally sit down; prabhu — my Lord; bhojana karite — to eat; tumi nā khāile — without Your eating; keha — anyone; nā pāre — is not able; khāite — to eat.
+
+**Translation:**
+
+Translation
+Svarūpa Dāmodara said, “My Lord, please sit down. No one will eat until You do.”
+

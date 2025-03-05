@@ -1,0 +1,24 @@
+# ŚB 10.12.21
+
+**Sanskrit:**
+
+प्रतिस्पर्धेते सृक्कभ्यां सव्यासव्ये नगोदरे ।
+तुङ्गश‍ृङ्गालयोऽप्येतास्तद्दंष्ट्राभिश्च पश्यत ॥ २१ ॥
+
+**Transliteration:**
+
+pratispardhete sṛkkabhyāṁ
+savyāsavye nagodare
+tuṅga-śṛṅgālayo ’py etās
+tad-daṁṣṭrābhiś ca paśyata
+
+**Synonyms:**
+
+Synonyms
+pratispardhete — just resembling; sṛkkabhyām — with the corners of the mouth; savya-asavye — left and right; naga-udare — caves of a mountain; tuṅga-śṛṅga-ālayaḥ — the high mountain peaks; api — although it is so; etāḥ tat-daṁṣṭrābhiḥ — they resemble the teeth of the animal; ca — and; paśyata — just see.
+
+**Translation:**
+
+Translation
+On the left and right, the two depressions resembling mountain caves are the corners of its mouth, and the high mountain peaks are its teeth.
+

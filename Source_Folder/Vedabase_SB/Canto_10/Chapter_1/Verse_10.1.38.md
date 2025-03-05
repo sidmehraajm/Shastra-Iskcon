@@ -1,0 +1,33 @@
+# ŚB 10.1.38
+
+**Sanskrit:**
+
+मृत्युर्जन्मवतां वीर देहेन सह जायते । अद्य वाब्दशतान्ते वा मृत्युर्वै प्राणिनां ध्रुव: ॥ ३८ ॥
+
+**Transliteration:**
+
+mṛtyur janmavatāṁ vīra
+dehena saha jāyate
+adya vābda-śatānte vā
+mṛtyur vai prāṇināṁ dhruvaḥ
+
+**Synonyms:**
+
+Synonyms
+mṛtyuḥ — death; janma-vatām — of the living entities who have taken birth; vīra — O great hero; dehena saha — along with the body; jāyate — is born (one who has taken birth is sure to die); adya — today; vā — either; abda-śata — of hundreds of years; ante — at the end; vā — or; mṛtyuḥ — death; vai — indeed; prāṇinām — for every living entity; dhruvaḥ — is assured.
+
+**Translation:**
+
+Translation
+O great hero, one who takes birth is sure to die, for death is born with the body. One may die today or after hundreds of years, but death is sure for every living entity.
+
+**Purport:**
+
+Purport
+Vasudeva wanted to impress upon Kaṁsa that although Kaṁsa feared dying and therefore wanted to kill even a woman, he could not avoid death. Death is sure. Why then should Kaṁsa do something that would be detrimental to his reputation and that of his family? As confirmed in Bhagavad-gītā (2.27):
+jātasya hi dhruvo mṛtyur
+dhruvaṁ janma mṛtasya ca
+tasmād aparihārye ’rthe
+na tvaṁ śocitum arhasi
+“For one who has taken his birth, death is certain; and for one who is dead, birth is certain. Therefore, in the unavoidable discharge of your duty, you should not lament.” One should not fear death. Rather, one should prepare oneself for the next birth. One should utilize one’s time in this human form to end the process of birth and death. It is not that to save oneself from death one should entangle oneself in sinful activities. This is not good.
+

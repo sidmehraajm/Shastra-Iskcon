@@ -1,0 +1,24 @@
+# ŚB 8.23.28
+
+**Sanskrit:**
+
+सर्वमेतन्मयाख्यातं भवत: कुलनन्दन ।
+उरुक्रमस्य चरितं श्रोतृणामघमोचनम् ॥ २८ ॥
+
+**Transliteration:**
+
+sarvam etan mayākhyātaṁ
+bhavataḥ kula-nandana
+urukramasya caritaṁ
+śrotṝṇām agha-mocanam
+
+**Synonyms:**
+
+Synonyms
+sarvam — all; etat — these incidents; mayā — by me; ākhyātam — have been described; bhavataḥ — of you; kula-nandana — O Mahārāja Parīkṣit, the pleasure of your dynasty; urukramasya — of the Supreme Personality of Godhead; caritam — activities; śrotṝṇām — of the audience; agha-mocanam — such hearing of the Lord’s activities certainly vanquishes the results of sinful activities.
+
+**Translation:**
+
+Translation
+O Mahārāja Parīkṣit, pleasure of your dynasty, I have now described to you everything about the wonderful activities of the Supreme Personality of Godhead Vāmanadeva. Those who hear about this are certainly freed from all the results of sinful activities.
+

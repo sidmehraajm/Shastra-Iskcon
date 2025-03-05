@@ -1,0 +1,22 @@
+# CC Madhya 18.160
+
+**Bengali:**
+
+সেই বৃক্ষ-নিকটে চরে বহু গাভীগণ ।
+তাহা দেখি’ মহাপ্রভুর উল্লসিত মন ॥ ১৬০ ॥
+
+**Transliteration:**
+
+sei vṛkṣa-nikaṭe care bahu gābhī-gaṇa
+tāhā dekhi’ mahāprabhura ullasita mana
+
+**Synonyms:**
+
+Synonyms
+sei — that; vṛkṣa-nikaṭe — near the tree; care — were grazing; bahu — many; gābhī-gaṇa — cows; tāhā — that; dekhi’ — seeing; mahāprabhura — of Śrī Caitanya Mahāprabhu; ullasita mana — the mind became very pleased.
+
+**Translation:**
+
+Translation
+There were many cows grazing near that tree, and the Lord was very pleased to see them.
+

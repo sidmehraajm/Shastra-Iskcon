@@ -1,0 +1,48 @@
+# ŚB 11.3.5
+
+**Sanskrit:**
+
+गुणैर्गुणान्स भुञ्जान आत्मप्रद्योतितै: प्रभु: ।
+मन्यमान इदं सृष्टमात्मानमिह सज्जते ॥ ५ ॥
+
+**Transliteration:**
+
+guṇair guṇān sa bhuñjāna
+ātma-pradyotitaiḥ prabhuḥ
+manyamāna idaṁ sṛṣṭam
+ātmānam iha sajjate
+
+**Synonyms:**
+
+Synonyms
+guṇaiḥ — with the modes (the senses); guṇān — the modes (the objects of the senses); saḥ — he (the individual living being); bhuñjānaḥ — enjoying; ātma — by the Supreme Soul; pradyotitaiḥ — enlivened; prabhuḥ — the master; manyamānaḥ — thinking; idam — this; sṛṣṭam — created (body); ātmānam — as his own self; iha — in this; sajjate — he becomes entangled.
+
+**Translation:**
+
+Translation
+The individual living being, the master of the material body, uses his material senses, which have been activated by the Supersoul, to try to enjoy sense objects composed of the three modes of nature. Thus he misidentifies the created material body with the unborn eternal self and becomes entangled in the illusory energy of the Lord.
+
+**Purport:**
+
+Purport
+In this verse the living entity is called prabhuḥ, or “master,” because he is a minute part and parcel of the supreme master, Kṛṣṇa. Similarly, in Bhagavad-gītā (15.8) the Lord has described the living entity as īśvaraḥ, “the controller.”
+śarīraṁ yad avāpnoti
+yac cāpy utkrāmatīśvaraḥ
+gṛhītvaitāni saṁyāti
+vāyur gandhān ivāśayāt
+“The living entity in the material world carries his various conceptions of life from one body to another as the air carries aromas.” Śrīla Prabhupāda has commented in his purport, “Here the living entity is described as īśvaraḥ, the controller of his own body. If he likes, he can change his body to a higher grade, and if he likes he can move to a lower class. Minute independence is there. The change his body undergoes depends upon him.” This statement confirms the words sva-mātrā and ātma-prasiddhaye in text 3 of this chapter. If the Supreme Lord were to interfere with the minute independence of the living entity, there would be no question of the living entity’s engaging in the loving service of the Lord, since love implies a spontaneous free choice by the lover. Here the word prabhuḥ indicates that just as a child, having received a toy car from his father, pedals on the sidewalk, imitating the father, who drives an actual car, the living entity pedals around the material universe in the innumerable material bodies selected for him by the Supreme Lord from an assortment of 8,400,000 species. Thus the living entity, infatuated with the false ego of the material body, creates a fearful situation in which he undergoes repeated birth and death, as described in the statement bhayaṁ dvitīyābhiniveśataḥ syāt (Bhāg. 11.2.37).
+Śrīla Jīva Gosvāmī has given another explanation for this verse. If the word prabhuḥ is taken to mean the Supreme Lord, the word guṇaiḥ can be understood to mean “good qualities,” since guṇa can refer to the material modes of nature or to admirable qualities (as in the verse yasyāsti bhaktir bhagavaty akiñcanā sarvair guṇais tatra samāsate surāḥ). This verse would then mean that the Lord, by His transcendental qualities (guṇaiḥ), such as mercy, is able to relish the transcendental qualities (guṇān) of His pure devotees. Ātma-pratyoditaiḥ would then indicate that by surrendering unto the Lord, who is the reservoir of all good qualities, the pure devotees become similarly endowed with godly qualities. The words manyamāna idaṁ sṛṣṭam ātmānam would indicate that the Lord accepts the body of His pure devotee to be on the same spiritual level as He Himself, as indicated in the verse ācāryaṁ māṁ vijānīyān nāvamanyeta karhicit. The Lord is attracted by the loving devotional service of His pure devotees and thus becomes entangled in the network of their loving relationship with Him. For example, after the Battle of Kurukṣetra, when Kṛṣṇa was leaving for His own city, Dvārakā, the loving appeal of Mahārāja Yudhiṣṭhira forced the Lord to remain for several more weeks in Hastināpura. Similarly, when the elderly gopīs of Vṛndāvana clapped their hands, Kṛṣṇa would dance like a puppet, keeping time to their rhythm. In relation to this subject matter, Śrīla Jīva Gosvāmī has quoted a verse from Śrīmad-Bhāgavatam (9.4.68):
+sādhavo hṛdayaṁ mahyaṁ
+sādhūnāṁ hṛdayaṁ tv aham
+mad-anyat te na jānanti
+nāhaṁ tebhyo manāg api
+“The pure devotee is always within the core of My heart, and I am always in the heart of the pure devotee. My devotees do not know anything but Me, and I do not know anyone but them.”
+According to Śrīla Viśvanātha Cakravartī Ṭhākura the word prabhuḥ may also be understood as follows. The word pra indicates prakarṣeṇa, or “excessively,” and bhū indicates bhavati, or “taking birth.” Thus prabhuḥ indicates prakarṣeṇa deva-tiryag-ādiṣu bhavatīti saḥ, or repeatedly taking birth among the demigods, animals, human beings and other forms of life.
+Confirming the statement by Śrīla Jīva Gosvāmī concerning the Lord’s attachment to the spiritualized body of a pure devotee, Śrīla Bhaktisiddhānta Sarasvatī Ṭhākura has quoted the following verses from Caitanya-caritāmṛta (Antya 4.192-93):
+dīkṣā-kāle bhakta kare ātma-samarpaṇa
+sei-kāle kṛṣṇa tāre kare ātma-sama
+“At the time of initiation, when a devotee fully surrenders unto the service of the Lord, Kṛṣṇa accepts him to be as good as Himself.”
+sei deha kare tāra cid-ānanda-maya
+aprākṛta-dehe tāṅra caraṇa bhajaya
+“When the devotee’s body is thus transformed into spiritual existence, the devotee, in that transcendental body, renders service to the lotus feet of the Lord.”
+

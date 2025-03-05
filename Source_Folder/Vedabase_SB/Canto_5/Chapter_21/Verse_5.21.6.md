@@ -1,0 +1,20 @@
+# ŚB 5.21.6
+
+**Sanskrit:**
+
+यावद्दक्षिणायनमहानि वर्धन्ते यावदुदगयनं रात्रय: ॥ ६ ॥
+
+**Transliteration:**
+
+yāvad dakṣiṇāyanam ahāni vardhante yāvad udagayanaṁ rātrayaḥ.
+
+**Synonyms:**
+
+Synonyms
+yāvat — until; dakṣiṇa-ayanam — the sun passes to the southern side; ahāni — the days; vardhante — increase; yāvat — until; udagayanam — the sun passes to the northern side; rātrayaḥ — the nights.
+
+**Translation:**
+
+Translation
+Until the sun travels to the south the days grow longer, and until it travels to the north the nights grow longer.
+

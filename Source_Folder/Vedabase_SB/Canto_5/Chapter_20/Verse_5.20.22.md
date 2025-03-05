@@ -1,0 +1,25 @@
+# ŚB 5.20.22
+
+**Sanskrit:**
+
+यासामम्भ: पवित्रममलमुपयुञ्जाना: पुरुषऋषभद्रविणदेवकसंज्ञा वर्षपुरुषा आपोमयं देवमपां पूर्णेनाञ्जलिना यजन्ते ॥ २२ ॥
+
+**Transliteration:**
+
+yāsām ambhaḥ pavitram amalam upayuñjānāḥ puruṣa-ṛṣabha-draviṇa-devaka-saṁjñā varṣa-puruṣā āpomayaṁ devam apāṁ pūrṇenāñjalinā yajante.
+
+**Synonyms:**
+
+Synonyms
+yāsām — of all the rivers; ambhaḥ — the water; pavitram — very sanctified; amalam — very clean; upayuñjānāḥ — using; puruṣa — Puruṣa; ṛṣabha — Ṛṣabha; draviṇa — Draviṇa; devaka — Devaka; saṁjñāḥ — endowed with the names; varṣa-puruṣāḥ — the inhabitants of those varṣas; āpaḥ-mayam — Varuṇa, the lord of water; devam — as the worshipable deity; apām — of water; pūrṇena — with full; añjalinā — folded palms; yajante — do worship.
+
+**Translation:**
+
+Translation
+The inhabitants of Krauñcadvīpa are divided into four castes, called the Puruṣas, Ṛṣabhas, Draviṇas and Devakas. Using the waters of those sanctified rivers, they worship the Supreme Personality of Godhead by offering a palmful of water at the lotus feet of Varuṇa, the demigod who has a form of water.
+
+**Purport:**
+
+Purport
+Viśvanātha Cakravartī Ṭhākura says, āpomayaḥ asmayam: with joined palms the inhabitants of the various sections of Krauñcadvīpa offer the sanctified waters of the rivers to a deity made of stone or iron.
+

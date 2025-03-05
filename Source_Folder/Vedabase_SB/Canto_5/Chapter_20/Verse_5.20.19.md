@@ -1,0 +1,20 @@
+# ŚB 5.20.19
+
+**Sanskrit:**
+
+योऽसौ गुहप्रहरणोन्मथितनितम्बकुञ्जोऽपि क्षीरोदेनासिच्यमानो भगवता वरुणेनाभिगुप्तो विभयो बभूव ॥ १९ ॥
+
+**Transliteration:**
+
+yo ’sau guha-praharaṇonmathita-nitamba-kuñjo ’pi kṣīrodenā-sicyamāno bhagavatā varuṇenābhigupto vibhayo babhūva.
+
+**Synonyms:**
+
+Synonyms
+yaḥ — which; asau — that (mountain); guha-praharaṇa — by the weapons of Kārttikeya, the son of Lord Śiva; unmathita — shaken; nitamba-kuñjaḥ — whose trees and vegetables along the slopes; api — although; kṣīra-udena — by the Ocean of Milk; āsicyamānaḥ — being always bathed; bhagavatā — by the greatly powerful; varuṇena — the demigod known as Varuṇa; abhiguptaḥ — protected; vibhayaḥ babhūva — has become fearless.
+
+**Translation:**
+
+Translation
+Although the vegetables living on the slopes of Mount Krauñca were attacked and devastated by the weapons of Kārttikeya, the mountain has become fearless because it is always bathed on all sides by the Ocean of Milk and protected by Varuṇadeva.
+

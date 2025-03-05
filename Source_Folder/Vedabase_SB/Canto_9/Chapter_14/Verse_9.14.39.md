@@ -1,0 +1,29 @@
+# ŚB 9.14.39
+
+**Sanskrit:**
+
+संवत्सरान्ते हि भवानेकरात्रं मयेश्वर: ।
+रंस्यत्यपत्यानि च ते भविष्यन्त्यपराणि भो: ॥ ३९ ॥
+
+**Transliteration:**
+
+saṁvatsarānte hi bhavān
+eka-rātraṁ mayeśvaraḥ
+raṁsyaty apatyāni ca te
+bhaviṣyanty aparāṇi bhoḥ
+
+**Synonyms:**
+
+Synonyms
+saṁvatsara-ante — at the end of every year; hi — indeed; bhavān — your good self; eka-rātram — one night only; mayā — with me; īśvaraḥ — my husband; raṁsyati — will enjoy sex life; apatyāni — children; ca — also; te — your; bhaviṣyanti — will generate; aparāṇi — others, one after another; bhoḥ — O my dear King.
+
+**Translation:**
+
+Translation
+O my dear King, you will be able to enjoy with me as my husband at the end of every year, for one night only. In this way you will have other children, one after another.
+
+**Purport:**
+
+Purport
+Although Urvaśī had adversely explained the nature of woman, Mahārāja Purūravā was very much attached to her, and therefore she wanted to give the King some concession by agreeing to be his wife for one night at the end of each year.
+

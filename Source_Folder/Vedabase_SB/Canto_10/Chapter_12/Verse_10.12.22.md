@@ -1,0 +1,24 @@
+# ŚB 10.12.22
+
+**Sanskrit:**
+
+आस्तृतायाममार्गोऽयं रसनां प्रतिगर्जति ।
+एषामन्तर्गतं ध्वान्तमेतदप्यन्तराननम् ॥ २२ ॥
+
+**Transliteration:**
+
+āstṛtāyāma-mārgo ’yaṁ
+rasanāṁ pratigarjati
+eṣāṁ antar-gataṁ dhvāntam
+etad apy antar-ānanam
+
+**Synonyms:**
+
+Synonyms
+āstṛta-āyāma — the length and breadth; mārgaḥ ayam — a broad way; rasanām — the tongue; pratigarjati — resembles; eṣām antaḥ-gatam — on the inside of the mountains; dhvāntam — darkness; etat — this; api — indeed; antaḥ-ānanam — the inside of the mouth.
+
+**Translation:**
+
+Translation
+In length and breadth the animal’s tongue resembles a broad traffic-way, and the inside of its mouth is very, very dark, like a cave in a mountain.
+

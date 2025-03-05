@@ -1,0 +1,24 @@
+# ŚB 9.2.26
+
+**Sanskrit:**
+
+तस्यावीक्षित् सुतो यस्य मरुत्तश्चक्रवर्त्यभूत् ।
+संवर्तोऽयाजयद् यं वै महायोग्यङ्गिर:सुत: ॥ २६ ॥
+
+**Transliteration:**
+
+tasyāvīkṣit suto yasya
+maruttaś cakravarty abhūt
+saṁvarto ’yājayad yaṁ vai
+mahā-yogy aṅgiraḥ-sutaḥ
+
+**Synonyms:**
+
+Synonyms
+tasya — of him (Karandhama); avīkṣit — named Avīkṣit; sutaḥ — the son; yasya — of whom (Avīkṣit); maruttaḥ — (the son) named Marutta; cakravartī — the emperor; abhūt — became; saṁvartaḥ — Saṁvarta; ayājayat — engaged in performing sacrifice; yam — unto whom (Marutta); vai — indeed; mahā-yogī — the great mystic; aṅgiraḥ-sutaḥ — the son of Aṅgirā.
+
+**Translation:**
+
+Translation
+From Karandhama came a son named Avīkṣit, and from Avīkṣit a son named Marutta, who was the emperor. The great mystic Saṁvarta, the son of Aṅgirā, engaged Marutta in performing a sacrifice [yajña].
+

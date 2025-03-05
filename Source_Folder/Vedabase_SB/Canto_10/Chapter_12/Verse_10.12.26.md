@@ -1,0 +1,26 @@
+# ŚB 10.12.26
+
+**Sanskrit:**
+
+तावत् प्रविष्टास्त्वसुरोदरान्तरं
+परं न गीर्णा: शिशव: सवत्सा: ।
+प्रतीक्षमाणेन बकारिवेशनं
+हतस्वकान्तस्मरणेन रक्षसा ॥ २६ ॥
+
+**Transliteration:**
+
+tāvat praviṣṭās tv asurodarāntaraṁ
+paraṁ na gīrṇāḥ śiśavaḥ sa-vatsāḥ
+pratīkṣamāṇena bakāri-veśanaṁ
+hata-sva-kānta-smaraṇena rakṣasā
+
+**Synonyms:**
+
+Synonyms
+tāvat — in the meantime; praviṣṭāḥ — all entered; tu — indeed; asura-udara-antaram — within the belly of the great demon; param — but; na gīrṇāḥ — they were not swallowed; śiśavaḥ — all the boys; sa-vatsāḥ — along with their calves; pratīkṣamāṇena — who was just waiting for; baka-ari — of the enemy of Bakāsura; veśanam — the entering; hata-sva-kānta-smaraṇena — the asura was thinking of his own dead relatives, who would not be satisfied unless Kṛṣṇa were dead; rakṣasā — by the demon.
+
+**Translation:**
+
+Translation
+In the meantime, while Kṛṣṇa was considering how to stop them, all the cowherd boys entered the mouth of the demon. The demon, however, did not swallow them, for he was thinking of his own relatives who had been killed by Kṛṣṇa and was just waiting for Kṛṣṇa to enter his mouth.
+

@@ -1,0 +1,22 @@
+# CC Ādi 17.291
+
+**Bengali:**
+
+লুকাইলা দুই ভুজ রাধার অগ্রেতে ।
+বহু যত্ন কৈলা কৃষ্ণ, নারিল রাখিতে ॥ ২৯১ ॥
+
+**Transliteration:**
+
+lukāilā dui bhuja rādhāra agrete
+bahu yatna kailā kṛṣṇa, nārila rākhite
+
+**Synonyms:**
+
+Synonyms
+lukāilā — He hid; dui — two; bhuja — arms; rādhāra — of Śrīmatī Rādhārāṇī; agrete — in front; bahu — much; yatna — endeavor; kailā — did; kṛṣṇa — Lord Kṛṣṇa; nārila — was unable; rākhite — to keep.
+
+**Translation:**
+
+Translation
+In front of Śrīmatī Rādhārāṇī, Śrī Kṛṣṇa had to hide the two extra arms. He tried His best to keep four arms before Her, but He was completely unable to do so.
+

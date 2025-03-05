@@ -1,0 +1,22 @@
+# CC Madhya 14.137
+
+**Bengali:**
+
+মানিনী নিরুৎসাহে ছাড়ে বিভূষণ ।
+ভূমে বসি’ নখে লেখে, মলিন-বদন ॥ ১৩৭ ॥
+
+**Transliteration:**
+
+māninī nirutsāhe chāḍe vibhūṣaṇa
+bhūme vasi’ nakhe lekhe, malina-vadana
+
+**Synonyms:**
+
+Synonyms
+māninī — proud, egoistic woman; nirutsāhe — because of disappointment; chāḍe — gives up; vibhūṣaṇa — all kinds of ornaments; bhūme vasi’ — sitting on the ground; nakhe — with the nails; lekhe — marks lines; malina-vadana — with a morose face.
+
+**Translation:**
+
+Translation
+“When a woman is neglected and disappointed, out of egoistic pride she gives up her ornaments and morosely sits down on the ground, marking lines on it with her nails.
+

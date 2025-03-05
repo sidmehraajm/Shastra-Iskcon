@@ -1,0 +1,24 @@
+# ŚB 1.14.15
+
+**Sanskrit:**
+
+धूम्रा दिश: परिधय: कम्पते भू: सहाद्रिभि: ।
+निर्घातश्च महांस्तात साकं च स्तनयित्नुभि: ॥ १५ ॥
+
+**Transliteration:**
+
+dhūmrā diśaḥ paridhayaḥ
+kampate bhūḥ sahādribhiḥ
+nirghātaś ca mahāṁs tāta
+sākaṁ ca stanayitnubhiḥ
+
+**Synonyms:**
+
+Synonyms
+dhūmrāḥ — smoky; diśaḥ — all directions; paridhayaḥ — encirclement; kampate — throbbing; bhūḥ — the earth; saha adribhiḥ — along with the hills and mountains; nirghātaḥ — bolt from the blue; ca — also; mahān — very great; tāta — O Bhīma; sākam — with; ca — also; stanayitnubhiḥ — thundering sound without any cloud.
+
+**Translation:**
+
+Translation
+Just see how the smoke encircles the sky. It appears that the earth and mountains are throbbing. Just hear the cloudless thunder and see the bolts from the blue.
+

@@ -1,0 +1,29 @@
+# ŚB 10.8.44
+
+**Sanskrit:**
+
+सद्योनष्टस्मृतिर्गोपी सारोप्यारोहमात्मजम् ।
+प्रवृद्धस्‍नेहकलिलहृदयासीद् यथा पुरा ॥ ४४ ॥
+
+**Transliteration:**
+
+sadyo naṣṭa-smṛtir gopī
+sāropyāroham ātmajam
+pravṛddha-sneha-kalila-
+hṛdayāsīd yathā purā
+
+**Synonyms:**
+
+Synonyms
+sadyaḥ — after all these philosophical speculations, mother Yaśodā fully surrendered to the Supreme Personality of Godhead; naṣṭa-smṛtiḥ — having gotten rid of the memory of seeing the universal form within Kṛṣṇa’s mouth; gopī — mother Yaśodā; sā — she; āropya — seating; āroham — on the lap; ātmajam — her son; pravṛddha — increased; sneha — by affection; kalila — affected; hṛdayā — the core of her heart; āsīt — became situated; yathā purā — as she was formerly.
+
+**Translation:**
+
+Translation
+Immediately forgetting Yoga-māyā’s illusion that Kṛṣṇa had shown the universal form within His mouth, mother Yaśodā took her son on her lap as before, feeling increased affection in her heart for her transcendental child.
+
+**Purport:**
+
+Purport
+Mother Yaśodā regarded the vision of the universal form within Kṛṣṇa’s mouth as an arrangement of Yoga-māyā, like a dream. As one forgets everything after a dream, mother Yaśodā immediately forgot the entire incident. As her natural feeling of affection increased, she decided to herself, “Now let this incident be forgotten. I do not mind. Here is my son. Let me kiss Him.”
+

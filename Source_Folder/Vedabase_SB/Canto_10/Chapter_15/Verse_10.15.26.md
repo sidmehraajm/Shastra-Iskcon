@@ -1,0 +1,30 @@
+# ŚB 10.15.26
+
+**Sanskrit:**
+
+प्रयच्छ तानि न: कृष्ण गन्धलोभितचेतसाम् ।
+वाञ्छास्ति महती राम गम्यतां यदि रोचते ॥ २६ ॥
+
+**Transliteration:**
+
+prayaccha tāni naḥ kṛṣṇa
+gandha-lobhita-cetasām
+vāñchāsti mahatī rāma
+gamyatāṁ yadi rocate
+
+**Synonyms:**
+
+Synonyms
+prayaccha — please give; tāni — them; naḥ — to us; kṛṣṇa — O Kṛṣṇa; gandha — by the fragrance; lobhita — made greedy; cetasām — whose minds; vāñchā — the desire; asti — is; mahatī — great; rāma — O Rāma; gamyatām — let us go; yadi — if; rocate — it appears like a good idea.
+
+**Translation:**
+
+Translation
+O Kṛṣṇa! Please get those fruits for us. Our minds are so attracted by their aroma! Dear Balarāma, our desire to have those fruits is very great. If You think it’s a good idea, let’s go to that Tāla forest.
+
+**Purport:**
+
+Purport
+Although neither man nor bird nor beast could even approach the Tāla forest, the cowherd boys had so much faith in Lord Kṛṣṇa and Lord Balarāma that they took it for granted the two Lords could effortlessly kill the sinful ass demons and acquire the delicious tāla fruits. Lord Kṛṣṇa’s cowherd boyfriends are exalted, self-realized souls who would not ordinarily become greedy for sweet fruits. In fact, they are simply joking with the Lord and enthusing His pastimes, urging Him to perform unprecedented heroic feats in the Tāla forest. Innumerable demons disturbed the sublime atmosphere of Vṛndāvana during Lord Kṛṣṇa’s presence there, and the Lord would kill such demons as a popular daily event.
+Since Lord Kṛṣṇa had already killed many demons, on this particular day He decided to give first honors to Lord Balarāma, who would demolish the first demon, Dhenuka. By the words yadi rocate, the cowherd boys indicate that Lord Kṛṣṇa and Lord Balarāma need not kill the demon simply to satisfy them; rather, They should do so only if the Lords Themselves found the concept appealing.
+

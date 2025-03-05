@@ -1,0 +1,22 @@
+# CC Madhya 6.247
+
+**Bengali:**
+
+বিনয় শুনি’ তুষ্ট্যে প্রভু কৈল আলিঙ্গন ।
+কহিল, — যাঞা করহ ঈশ্বর দরশন ॥ ২৪৭ ॥
+
+**Transliteration:**
+
+vinaya śuni’ tuṣṭye prabhu kaila āliṅgana
+kahila, — yāñā karaha īśvara daraśana
+
+**Synonyms:**
+
+Synonyms
+vinaya śuni’ — upon hearing this humbleness of Sārvabhauma Bhaṭṭācārya; tuṣṭye — in satisfaction; prabhu — the Lord; kaila — did; āliṅgana — embracing; kahila — said; yāñā — going; karaha — do; īśvara daraśana — visiting the temple of Lord Jagannātha.
+
+**Translation:**
+
+Translation
+Śrī Caitanya Mahāprabhu was very pleased with this humble statement. After embracing the Bhaṭṭācārya, He said, “Now go see Lord Jagannātha in the temple.”
+

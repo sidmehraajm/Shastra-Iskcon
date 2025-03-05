@@ -1,0 +1,29 @@
+# CC Madhya 8.137
+
+**Bengali:**
+
+ঈশ্বরঃ পরমঃ কৃষ্ণঃ সচ্চিদানন্দবিগ্রহ ।
+অনাদিরাদির্গোবিন্দঃ সর্বকারণকারণম্ ॥ ১৩৭ ॥
+
+**Transliteration:**
+
+īśvaraḥ paramaḥ kṛṣṇaḥ
+sac-cid-ānanda-vigrahaḥ
+anādir ādir govindaḥ
+sarva-kāraṇa-kāraṇam
+
+**Synonyms:**
+
+Synonyms
+īśvaraḥ — the controller; paramaḥ — supreme; kṛṣṇaḥ — Lord Kṛṣṇa; sat — eternal existence; cit — absolute knowledge; ānanda — absolute bliss; vigrahaḥ — whose form; anādiḥ — without beginning; ādiḥ — the origin of everything; govindaḥ — a name of Lord Kṛṣṇa; sarva — all; kāraṇa — of causes; kāraṇam — He is the original cause.
+
+**Translation:**
+
+Translation
+“ ‘Kṛṣṇa, who is known as Govinda, is the supreme controller. He has an eternal, blissful, spiritual body. He is the origin of all. He has no other origin, for He is the prime cause of all causes.’
+
+**Purport:**
+
+Purport
+This verse is from the Brahma-saṁhitā (5.1).
+

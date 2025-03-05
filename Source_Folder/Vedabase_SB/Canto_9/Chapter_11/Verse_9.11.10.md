@@ -1,0 +1,24 @@
+# ŚB 9.11.10
+
+**Sanskrit:**
+
+इति लोकाद् बहुमुखाद् दुराराध्यादसंविद: ।
+पत्या भीतेन सा त्यक्ता प्राप्ता प्राचेतसाश्रमम् ॥ १० ॥
+
+**Transliteration:**
+
+iti lokād bahu-mukhād
+durārādhyād asaṁvidaḥ
+patyā bhītena sā tyaktā
+prāptā prācetasāśramam
+
+**Synonyms:**
+
+Synonyms
+iti — thus; lokāt — from persons; bahu-mukhāt — who can talk nonsensically in various ways; durārādhyāt — whom it is very difficult to stop; asaṁvidaḥ — who are without full knowledge; patyā — by the husband; bhītena — being afraid; sā — mother Sītā; tyaktā — was abandoned; prāptā — went; prācetasa-āśramam — to the hermitage of Prācetasa (Vālmīki Muni).
+
+**Translation:**
+
+Translation
+Śukadeva Gosvāmī said: Men with a poor fund of knowledge and a heinous character speak nonsensically. Fearing such rascals, Lord Rāmacandra abandoned His wife, Sītādevī, although she was pregnant. Thus Sītādevī went to the āśrama of Vālmīki Muni.
+

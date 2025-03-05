@@ -1,0 +1,29 @@
+# ŚB 4.24.13
+
+**Sanskrit:**
+
+प्राचीनबर्हिष: पुत्रा: शतद्रुत्यां दशाभवन् ।
+तुल्यनामव्रता: सर्वे धर्मस्‍नाता: प्रचेतस: ॥ १३ ॥
+
+**Transliteration:**
+
+prācīnabarhiṣaḥ putrāḥ
+śatadrutyāṁ daśābhavan
+tulya-nāma-vratāḥ sarve
+dharma-snātāḥ pracetasaḥ
+
+**Synonyms:**
+
+Synonyms
+prācīnabarhiṣaḥ — of King Prācīnabarhi; putrāḥ — sons; śatadrutyām — in the womb of Śatadruti; daśa — ten; abhavan — became manifest; tulya — equally; nāma — name; vratāḥ — vow; sarve — all; dharma — religiosity; snātāḥ — completely merged in; pracetasaḥ — all of them being designated as Pracetās.
+
+**Translation:**
+
+Translation
+King Prācīnabarhi begot ten children in the womb of Śatadruti. All of them were equally endowed with religiosity, and all of them were known as the Pracetās.
+
+**Purport:**
+
+Purport
+The word dharma-snātāḥ is significant, for the ten children were all merged in the practice of religion. In addition, they possessed all good qualities. One is supposed to be perfect when one is perfectly religious, perfect in the execution of one’s vows to render devotional service, perfect in knowledge, perfect in good behavior, and so on. All the Pracetās were on the same level of perfection.
+

@@ -1,0 +1,29 @@
+# ŚB 10.8.17
+
+**Sanskrit:**
+
+पुरानेन व्रजपते साधवो दस्युपीडिता: ।
+अराजके रक्ष्यमाणा जिग्युर्दस्यून्समेधिता: ॥ १७ ॥
+
+**Transliteration:**
+
+purānena vraja-pate
+sādhavo dasyu-pīḍitāḥ
+arājake rakṣyamāṇā
+jigyur dasyūn samedhitāḥ
+
+**Synonyms:**
+
+Synonyms
+purā — formerly; anena — by Kṛṣṇa; vraja-pate — O King of Vraja; sādhavaḥ — those who were honest; dasyu-pīḍitāḥ — being disturbed by rogues and thieves; arājake — when there was an irregular government; rakṣyamāṇāḥ — were protected; jigyuḥ — conquered; dasyūn — the rogues and thieves; samedhitāḥ — flourished.
+
+**Translation:**
+
+Translation
+O Nanda Mahārāja, as recorded in history, when there was an irregular, incapable government, Indra having been dethroned, and people were being harassed and disturbed by thieves, this child appeared in order to protect the people and enable them to flourish, and He curbed the rogues and thieves.
+
+**Purport:**
+
+Purport
+Indra is the king of the universe. Demons, thieves and rogues always disturb Indra (indrāri-vyākulaṁ lokam), but when indrāris, the enemies of Indra, become prominent, Kṛṣṇa appears. Kṛṣṇas tu bhagavān svayaṁ/ indrāri-vyākulaṁ lokaṁ mṛḍayanti yuge yuge (Bhāg. 1.3.28).
+

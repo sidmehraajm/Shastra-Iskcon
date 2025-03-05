@@ -1,0 +1,25 @@
+# ŚB 5.26.25
+
+**Sanskrit:**
+
+ये त्विह वै दाम्भिका दम्भयज्ञेषु पशून् विशसन्ति तानमुष्मिँल्लोके वैशसे नरके पतितान्निरयपतयो यातयित्वा विशसन्ति ॥ २५ ॥
+
+**Transliteration:**
+
+ye tv iha vai dāmbhikā dambha-yajñeṣu paśūn viśasanti tān amuṣmiḻ loke vaiśase narake patitān niraya-patayo yātayitvā viśasanti.
+
+**Synonyms:**
+
+Synonyms
+ye — persons who; tu — but; iha — in this life; vai — indeed; dāmbhikāḥ — very proud of wealth and a prestigious position; dambha-yajñeṣu — in a sacrifice performed to increase prestige; paśūn — animals; viśasanti — kill; tān — them; amuṣmin loke — in the next world; vaiśase — Vaiśasa or Viśasana; narake — into the hell; patitān — fallen; niraya-patayaḥ — assistants of Yamarāja; yātayitvā — causing sufficient pain; viśasanti — kill.
+
+**Translation:**
+
+Translation
+A person who in this life is proud of his eminent position, and who heedlessly sacrifices animals simply for material prestige, is put into the hell called Viśasana after death. There the assistants of Yamarāja kill him after giving him unlimited pain.
+
+**Purport:**
+
+Purport
+In Bhagavad-gītā (6.41) Kṛṣṇa says, śucīnāṁ śrīmatāṁ gehe yoga-bhraṣṭo ’bhijāyate: “Because of his previous connection with bhakti-yoga, a man is born into a prestigious family of brāhmaṇas or aristocrats.” Having taken such a birth, one should utilize it to perfect bhakti-yoga. However, due to bad association one often forgets that his prestigious position has been given to him by the Supreme Personality of Godhead, and he misuses it by performing various kinds of so-called yajñas like Kālī-pūjā or Durgā-pūjā, in which poor animals are sacrificed. How such a person is punished is described herein. The word dambha-yajñeṣu in this verse is significant. If one violates the Vedic instructions while performing yajña and simply makes a show of sacrifice for the purpose of killing animals, he is punishable after death. In Calcutta there are many slaughterhouses where animal flesh is sold that has supposedly been offered in sacrifice before the goddess Kālī. The śāstras enjoin that one can sacrifice a small goat before the goddess Kālī once a month. Nowhere is it said that one can maintain a slaughterhouse in the name of temple worship and daily kill animals unnecessarily. Those who do so receive the punishments described herein.
+

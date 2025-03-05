@@ -1,0 +1,22 @@
+# CC Ādi 12.4
+
+**Bengali:**
+
+বৃক্ষের দ্বিতীয় স্কন্ধ—আচার্য–গোসাঞি ।
+তাঁর যত শাখা হইল, তার লেখা নাঞি ॥ ৪ ॥
+
+**Transliteration:**
+
+vṛkṣera dvitīya skandha — ācārya-gosāñi
+tāṅra yata śākhā ha-ila, tāra lekhā nāñi
+
+**Synonyms:**
+
+Synonyms
+vṛkṣera — of the tree; dvitīya skandha — the second big branch; ācārya-gosāñi — Śrī Advaita Ācārya Gosvāmī; tāṅra — His; yata — all; śākhā — branches; ha-ila — became; tāra — of that; lekhā — description; nāñi — there is not.
+
+**Translation:**
+
+Translation
+Śrī Advaita Prabhu was the second big branch of the tree. There are many subbranches, but it is impossible to mention them all.
+

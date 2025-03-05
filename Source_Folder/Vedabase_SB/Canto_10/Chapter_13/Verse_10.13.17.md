@@ -1,0 +1,29 @@
+# ŚB 10.13.17
+
+**Sanskrit:**
+
+क्‍वाप्यद‍ृष्ट्वान्तर्विपिने वत्सान्पालांश्च विश्ववित् ।
+सर्वं विधिकृतं कृष्ण: सहसावजगाम ह ॥ १७ ॥
+
+**Transliteration:**
+
+kvāpy adṛṣṭvāntar-vipine
+vatsān pālāṁś ca viśva-vit
+sarvaṁ vidhi-kṛtaṁ kṛṣṇaḥ
+sahasāvajagāma ha
+
+**Synonyms:**
+
+Synonyms
+kva api — anywhere; adṛṣṭvā — not seeing at all; antaḥ-vipine — within the forest; vatsān — the calves; pālān ca — and their caretakers, the cowherd boys; viśva-vit — Kṛṣṇa, who is aware of everything going on throughout the whole cosmic manifestation; sarvam — everything; vidhi-kṛtam — was executed by Brahmā; kṛṣṇaḥ — Lord Kṛṣṇa; sahasā — immediately; avajagāma ha — could understand.
+
+**Translation:**
+
+Translation
+When Kṛṣṇa was unable to find the calves and their caretakers, the cowherd boys, anywhere in the forest, He could suddenly understand that this was the work of Lord Brahmā.
+
+**Purport:**
+
+Purport
+Although Kṛṣṇa is viśva-vit, the knower of everything happening in the entire cosmic manifestation, as an innocent child He showed ignorance of Brahmā’s actions, although He could immediately understand that these were the doings of Brahmā. This pastime is called brahma-vimohana, the bewilderment of Brahmā. Brahmā was already bewildered by Kṛṣṇa’s activities as an innocent child, and now he would be further bewildered.
+

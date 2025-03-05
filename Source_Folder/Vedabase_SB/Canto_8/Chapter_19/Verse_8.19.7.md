@@ -1,0 +1,24 @@
+# ŚB 8.19.7
+
+**Sanskrit:**
+
+निशम्य तद्वधं भ्राता हिरण्यकशिपु: पुरा ।
+हन्तुं भ्रातृहणं क्रुद्धो जगाम निलयं हरे: ॥ ७ ॥
+
+**Transliteration:**
+
+niśamya tad-vadhaṁ bhrātā
+hiraṇyakaśipuḥ purā
+hantuṁ bhrātṛ-haṇaṁ kruddho
+jagāma nilayaṁ hareḥ
+
+**Synonyms:**
+
+Synonyms
+niśamya — after hearing; tat-vadham — the killing of Hiraṇyākṣa; bhrātā — the brother; hiraṇyakaśipuḥ — Hiraṇyakaśipu; purā — formerly; hantum — just to kill; bhrātṛ-haṇam — the killer of his brother; kruddhaḥ — very angry; jagāma — went; nilayam — to the residence; hareḥ — of the Supreme Personality of Godhead.
+
+**Translation:**
+
+Translation
+When Hiraṇyakaśipu heard the news of his brother’s being killed, with great anger he went to the residence of Viṣṇu, the killer of his brother, wanting to kill Lord Viṣṇu.
+

@@ -1,0 +1,22 @@
+# CC Madhya 10.20
+
+**Bengali:**
+
+ঠাকুরের নিকট, আর হইবে নির্জনে ।
+এমত নির্ণয় করি’ দেহ এক স্থানে ॥ ২০ ॥
+
+**Transliteration:**
+
+ṭhākurera nikaṭa, āra ha-ibe nirjane
+e-mata nirṇaya kari’ deha’ eka sthāne
+
+**Synonyms:**
+
+Synonyms
+ṭhākurera nikaṭa — near the place of Lord Jagannātha; āra — also; ha-ibe — must be; nirjane — secluded; e-mata — in this way; nirṇaya kari’ — considering carefully; deha’ — please give; eka sthāne — one place.
+
+**Translation:**
+
+Translation
+“Lord Caitanya’s residence should be very secluded and also near the temple of Jagannātha. Please consider this proposal and give me a nice place for Him.”
+

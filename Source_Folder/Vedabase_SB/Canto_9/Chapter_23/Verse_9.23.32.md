@@ -1,0 +1,24 @@
+# ŚB 9.23.32
+
+**Sanskrit:**
+
+तस्य पत्नीसहस्राणां दशानां सुमहायशा: ।
+दशलक्षसहस्राणि पुत्राणां तास्वजीजनत् ॥ ३२ ॥
+
+**Transliteration:**
+
+tasya patnī-sahasrāṇāṁ
+daśānāṁ sumahā-yaśāḥ
+daśa-lakṣa-sahasrāṇi
+putrāṇāṁ tāsv ajījanat
+
+**Synonyms:**
+
+Synonyms
+tasya — of Śaśabindu; patnī — wives; sahasrāṇām — of thousands; daśānām — ten; su-mahā-yaśāḥ — greatly famous; daśa — ten; lakṣa — lakhs (one lakh equals one hundred thousand); sahasrāṇi — thousands; putrāṇām — of sons; tāsu — in them; ajījanat — he begot.
+
+**Translation:**
+
+Translation
+The famous Śaśabindu had ten thousand wives, and by each he begot a lakh of sons. Therefore the number of his sons was ten thousand lakhs.
+

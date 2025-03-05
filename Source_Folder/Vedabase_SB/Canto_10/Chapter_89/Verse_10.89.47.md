@@ -1,0 +1,29 @@
+# ŚB 10.89.47
+
+**Sanskrit:**
+
+सप्त द्वीपान् ससिन्धूंश्च सप्तसप्तगिरीनथ ।
+लोकालोकं तथातीत्य विवेश सुमहत्तम: ॥ ४७ ॥
+
+**Transliteration:**
+
+sapta dvīpān sa-sindhūṁś ca
+sapta sapta girīn atha
+lokālokaṁ tathātītya
+viveśa su-mahat tamaḥ
+
+**Synonyms:**
+
+Synonyms
+sapta — seven; dvīpān — islands; sa — with; sindhūn — their oceans; ca — and; sapta sapta — seven each; girīn — mountains; atha — then; loka-alokam — the mountain range separating light from darkness; tathā — also; atītya — crossing; viveśa — He entered; su-mahat — vast; tamaḥ — darkness.
+
+**Translation:**
+
+Translation
+The Lord’s chariot passed over the seven islands of the middle universe, each with its ocean and its seven principal mountains. Then it crossed the Lokāloka boundary and entered the vast region of total darkness.
+
+**Purport:**
+
+Purport
+In Kṛṣṇa, the Supreme Personality of Godhead, Śrīla Prabhupāda notes: “Kṛṣṇa passed over all these planets and reached the covering of the universe. This covering is described in the Śrīmad-Bhāgavatam as great darkness. This material world as a whole is described as dark. In the open space there is sunlight, and therefore it is illuminated, but in the covering, because of the absence of sunlight, it is naturally dark.”
+

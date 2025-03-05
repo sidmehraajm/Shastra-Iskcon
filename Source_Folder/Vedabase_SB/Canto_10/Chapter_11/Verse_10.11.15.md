@@ -1,0 +1,24 @@
+# ŚB 10.11.15
+
+**Sanskrit:**
+
+कृष्ण कृष्णारविन्दाक्ष तात एहि स्तनं पिब ।
+अलं विहारै: क्षुत्क्षान्त: क्रीडाश्रान्तोऽसि पुत्रक ॥ १५ ॥
+
+**Transliteration:**
+
+kṛṣṇa kṛṣṇāravindākṣa
+tāta ehi stanaṁ piba
+alaṁ vihāraiḥ kṣut-kṣāntaḥ
+krīḍā-śrānto ’si putraka
+
+**Synonyms:**
+
+Synonyms
+kṛṣṇa kṛṣṇa aravinda-akṣa — O Kṛṣṇa, my son, lotus-eyed Kṛṣṇa; tāta — O darling; ehi — come here; stanam — the milk of my breast; piba — drink; alam vihāraiḥ — after this there is no necessity of playing; kṣut-kṣāntaḥ — tired because of hunger; krīḍā-śrāntaḥ — fatigued from playing; asi — You must be; putraka — O my son.
+
+**Translation:**
+
+Translation
+Mother Yaśodā said: My dear son Kṛṣṇa, lotus-eyed Kṛṣṇa, come here and drink the milk of my breast. My dear darling, You must be very tired because of hunger and the fatigue of playing so long. There is no need to play any more.
+

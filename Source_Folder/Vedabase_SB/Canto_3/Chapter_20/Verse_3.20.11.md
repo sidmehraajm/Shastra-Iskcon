@@ -1,0 +1,24 @@
+# ŚB 3.20.11
+
+**Sanskrit:**
+
+सद्वितीया: किमसृजन् स्वतन्त्रा उत कर्मसु ।
+आहोस्वित्संहता: सर्व इदं स्म समकल्पयन् ॥ ११ ॥
+
+**Transliteration:**
+
+sa-dvitīyāḥ kim asṛjan
+svatantrā uta karmasu
+āho svit saṁhatāḥ sarva
+idaṁ sma samakalpayan
+
+**Synonyms:**
+
+Synonyms
+sa-dvitīyāḥ — with their wives; kim — whether; asṛjan — created; sva-tantrāḥ — remaining independent; uta — or; karmasu — in their actions; āho svit — or else; saṁhatāḥ — jointly; sarve — all the Prajāpatis; idam — this; sma samakalpayan — produced.
+
+**Translation:**
+
+Translation
+Did they evolve the creation in conjunction with their respective wives, did they remain independent in their action, or did they all jointly produce it?
+

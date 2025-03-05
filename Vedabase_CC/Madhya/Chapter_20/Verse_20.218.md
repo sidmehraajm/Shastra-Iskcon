@@ -1,0 +1,36 @@
+# CC Madhya 20.218
+
+**Bengali:**
+
+এইমত ব্রহ্মাণ্ড-মধ্যে সবার ‘পরকাশ’ ।
+সপ্তদ্বীপে নবখণ্ডে যাঁহার বিলাস ॥ ২১৮ ॥
+
+**Transliteration:**
+
+ei-mata brahmāṇḍa-madhye sabāra ‘parakāśa’
+sapta-dvīpe nava-khaṇḍe yāṅhāra vilāsa
+
+**Synonyms:**
+
+Synonyms
+ei-mata — in this way; brahmāṇḍa-madhye — within this universe; sabāra — of all of Them; parakāśa — manifestations; sapta-dvīpe — on seven islands; nava-khaṇḍe — in different sections, nine in number; yāṅhāra vilāsa — the pastimes of whom.
+
+**Translation:**
+
+Translation
+“Within the universe the Lord is situated in different spiritual manifestations. These are situated on seven islands in nine sections. Thus Their pastimes are going on.
+
+**Purport:**
+
+Purport
+The seven islands are mentioned in the Siddhāntaśiromaṇi:
+bhūmer ardhaṁ kṣāra-sindhor udak-sthaṁ
+jambu-dvīpaṁ prāhur ācārya-varyāḥ
+ardhe ’nyasmin dvīpa-ṣaṭkasya yāmye
+kṣāra-kṣīrādy-ambudhīnāṁ niveśaḥ
+śākaṁ tataḥ śālmalam atra kauśaṁ
+krauñcaṁ ca gomedaka-puṣkare ca
+dvayor dvayor antaram ekam ekaṁ
+samudrayor dvīpam udāharanti
+The seven islands (dvīpas) are known as (1) Jambu, (2) Śāka, (3) Śālmalī, (4) Kuśa, (5) Krauñca, (6) Gomeda, or Plakṣa, and (7) Puṣkara. The planets are called dvīpas. Outer space is like an ocean of air. Just as there are islands in the watery ocean, these planets in the ocean of space are called dvīpas, or islands in outer space. There are nine khaṇḍas, known as (1) Bhārata, (2) Kinnara, (3) Hari, (4) Kuru, (5) Hiraṇmaya, (6) Ramyaka, (7) Ilāvṛta, (8) Bhadrāśva and (9) Ketumāla. These are different parts of Jambudvīpa. A valley between two mountains is called a khaṇḍa or varṣa.
+

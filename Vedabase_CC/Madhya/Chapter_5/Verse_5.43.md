@@ -1,0 +1,22 @@
+# CC Madhya 5.43
+
+**Bengali:**
+
+পুত্র বলে, — “প্রতিমা সাক্ষী, সেহ দূর দেশে ।
+কে তোমার সাক্ষী দিবে, চিন্তা কর কিসে ॥ ৪৩ ॥
+
+**Transliteration:**
+
+putra bale, — “pratimā sākṣī, seha dūra deśe
+ke tomāra sākṣī dibe, cintā kara kise
+
+**Synonyms:**
+
+Synonyms
+putra bale — his son says; pratimā — the Deity; sākṣī — witness; seha — He also; dūra — distant; deśe — in country; ke — who; tomāra — of you; sākṣī — witness; dibe — will give; cintā — anxiety; kara — you do; kise — why.
+
+**Translation:**
+
+Translation
+His son replied, “The Deity may be a witness, but He is in a distant country. How can He come to bear witness against you? Why are you so anxious over this?
+

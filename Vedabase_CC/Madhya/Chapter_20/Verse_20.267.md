@@ -1,0 +1,29 @@
+# CC Madhya 20.267
+
+**Bengali:**
+
+আদ্যোঽবতারঃ পুরুষঃ পরস্য কালঃ স্বভাবঃ সদসন্মনশ্চ ।
+দ্রব্যং বিকারো গুণ ইন্দ্রিয়াণি বিরাট্ স্বরাট্ স্থাস্নু চরিষ্ণু ভূম্নঃ ॥ ২৬৭ ॥
+
+**Transliteration:**
+
+ādyo ’vatāraḥ puruṣaḥ parasya
+kālaḥ svabhāvaḥ sad-asan manaś ca
+dravyaṁ vikāro guṇa indriyāṇi
+virāṭ svarāṭ sthāsnu cariṣṇu bhūmnaḥ
+
+**Synonyms:**
+
+Synonyms
+ādyaḥ avatāraḥ — the original incarnation; puruṣaḥ — Kāraṇābdhiśāyī Viṣṇu; parasya — of the Supreme Lord; kālaḥ — time; svabhāvaḥ — space; sat-asat — cause and effect; manaḥ ca — as well as the mind; dravyam — the five elements; vikāraḥ — transformation or the false ego; guṇaḥ — modes of nature; indriyāṇi — senses; virāṭ — the universal form; svarāṭ — Garbhodakaśāyī Viṣṇu; sthāsnu — immovable; cariṣṇu — movable; bhūmnaḥ — of the Supreme Personality of Godhead.
+
+**Translation:**
+
+Translation
+“ ‘Kāraṇābdhiśāyī Viṣṇu [Mahā-Viṣṇu] is the first incarnation of the Supreme Lord, and He is the master of eternal time, space, cause and effects, the mind, the elements, the material ego, the modes of nature, the senses, the universal form of the Lord, Garbhodakaśāyī Viṣṇu and the sum total of all living beings, both moving and nonmoving.’
+
+**Purport:**
+
+Purport
+This is a quotation from Śrīmad-Bhāgavatam (2.6.42). For an explanation, refer to Ādi-līlā, chapter five, verse 83.
+

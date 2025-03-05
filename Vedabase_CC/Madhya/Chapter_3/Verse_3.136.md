@@ -1,0 +1,22 @@
+# CC Madhya 3.136
+
+**Bengali:**
+
+এইমত দশদিন ভোজন-কীর্তন ।
+একরূপে করি’ করে প্রভুর সেবন ॥ ১৩৬ ॥
+
+**Transliteration:**
+
+ei-mata daśa-dina bhojana-kīrtana
+eka-rūpe kari’ kare prabhura sevana
+
+**Synonyms:**
+
+Synonyms
+ei-mata — in this way; daśa-dina — continuously for ten days; bhojana-kīrtana — eating and chanting; eka-rūpe — without change; kari’ — doing; kare — does; prabhura — of the Lord; sevana — service.
+
+**Translation:**
+
+Translation
+For ten continuous days Advaita Ācārya held feasting and chanting in the evening. He served the Lord in this way without any change.
+

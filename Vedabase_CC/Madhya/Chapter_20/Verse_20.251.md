@@ -1,0 +1,32 @@
+# CC Madhya 20.251
+
+**Bengali:**
+
+বিষ্ণোস্তু ত্রীণি রূপাণি পুরুষাখ্যান্যথো বিদুঃ ।
+একন্তু মহতঃ স্রষ্টৃ দ্বিতীয়ং ত্বণ্ডসংস্থিতম্ ।
+তৃতীয়ং সর্বভূতস্থং তানি জ্ঞাত্বা বিমুচ্যতে ॥ ২৫১ ॥
+
+**Transliteration:**
+
+viṣṇos tu trīṇi rūpāṇi
+puruṣākhyāny atho viduḥ
+ekaṁ tu mahataḥ sraṣṭṛ
+dvitīyaṁ tv aṇḍa-saṁsthitam
+tṛtīyaṁ sarva-bhūta-sthaṁ
+tāni jñātvā vimucyate
+
+**Synonyms:**
+
+Synonyms
+viṣṇoḥ — of Lord Viṣṇu; tu — certainly; trīṇi — three; rūpāṇi — forms; puruṣa-ākhyāni — celebrated as the puruṣas; viduḥ — they know; ekam — one of them; tu — but; mahataḥ sraṣṭṛ — the creator of the total material energy; dvitīyam — the second; tu — but; aṇḍa-saṁsthitam — situated within the universe; tṛtīyam — the third; sarva-bhūta-stham — within the hearts of all living entities; tāni — these three; jñātvā — knowing; vimucyate — one becomes liberated.
+
+**Translation:**
+
+Translation
+“ ‘Viṣṇu has three forms called puruṣas. The first, Mahā-Viṣṇu, is the creator of the total material energy [mahat], the second is Garbhodaśāyī, who is situated within each universe, and the third is Kṣīrodaśāyī, who lives in the heart of every living being. He who knows these three becomes liberated from the clutches of māyā.’
+
+**Purport:**
+
+Purport
+This verse appears in the Laghu-bhāgavatāmṛta (Pūrva-khaṇḍa 2.9), where it has been quoted from the Sātvata-tantra.
+

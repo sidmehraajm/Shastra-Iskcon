@@ -1,0 +1,29 @@
+# CC Madhya 22.155
+
+**Bengali:**
+
+তত্তদ্ভাবাদিমাধুর্যে শ্রুতে ধীর্যদপেক্ষতে ।
+নাত্র শাস্ত্রং ন যুক্তিঞ্চ তল্লোভোৎপত্তিলক্ষণম্ ॥ ১৫৫ ॥
+
+**Transliteration:**
+
+tat-tad-bhāvādi-mādhurye
+śrute dhīr yad apekṣate
+nātra śāstraṁ na yuktiṁ ca
+tal lobhotpatti-lakṣaṇam
+
+**Synonyms:**
+
+Synonyms
+tat-tat — respective; bhāva-ādi-mādhurye — the sweetness of the loving moods (namely śānta-rasa, dāsya-rasa, sakhya-rasa, vātsalya-rasa and mādhurya-rasa) of the inhabitants of Vṛndāvana; śrute — when heard; dhīḥ — the intelligence; yat — which; apekṣate — depends on; na — not; atra — here; śāstram — revealed scriptures; na — not; yuktim — logic and argument; ca — also; tat — that; lobha — of covetousness to follow in the footsteps; utpatti-lakṣaṇam — the symptom of awakening.
+
+**Translation:**
+
+Translation
+“ ‘When an advanced, realized devotee hears about the affairs of the devotees of Vṛndāvana — in the mellows of śānta, dāsya, sakhya, vātsalya and mādhurya — he becomes inclined in one of these ways, and his intelligence becomes attracted. Indeed, he begins to covet that particular type of devotion. When such covetousness is awakened, one’s intelligence no longer depends on the instructions of śāstra [revealed scripture] or on logic and argument.’
+
+**Purport:**
+
+Purport
+This verse is also found in the Bhakti-rasāmṛta-sindhu (1.2.292).
+

@@ -1,0 +1,27 @@
+# CC Ādi 6.28
+
+**Bengali:**
+
+জীব নিস্তারিল কৃষ্ণভক্তি করি’ দান ।
+গীতা–ভাগবতে কৈল ভক্তির ব্যাখ্যান ॥ ২৮ ॥
+
+**Transliteration:**
+
+jīva nistārila kṛṣṇa-bhakti kari’ dāna
+gītā-bhāgavate kaila bhaktira vyākhyāna
+
+**Synonyms:**
+
+Synonyms
+jīva — the living entities; nistārila — delivered; kṛṣṇa-bhakti — devotional service to Lord Kṛṣṇa; kari’ — making; dāna — gift; gītā-bhāgavate — in the Bhagavad-gītā and Śrīmad-Bhāgavatam; bhaktira vyākhyāna — explanation of devotional service.
+
+**Translation:**
+
+Translation
+He delivered all living beings by offering the gift of kṛṣṇa-bhakti. He explained the Bhagavad-gītā and Śrīmad-Bhāgavatam in the light of devotional service.
+
+**Purport:**
+
+Purport
+Although Śrī Advaita Prabhu is an incarnation of Viṣṇu, for the welfare of the conditioned souls He manifested Himself as a servitor of the Supreme Personality of Godhead, and throughout all His activities He showed Himself to be an eternal servitor. Lord Caitanya and Lord Nityānanda also manifested the same principle, although They also belong to the category of Viṣṇu. If Lord Caitanya, Lord Nityānanda and Advaita Prabhu had exhibited Their all-powerful Viṣṇu potencies within this material world, people would have become greater impersonalists, monists and self-worshipers than they had already become under the spell of this age. Therefore the Personality of Godhead and His different incarnations and forms played the parts of devotees to instruct the conditioned souls how to approach the transcendental stage of devotional service. Advaita Ācārya especially intended to teach the conditioned souls about devotional service. The word ācārya means “teacher.” The special function of such a teacher is to make people Kṛṣṇa conscious. A bona fide teacher following in the footsteps of Advaita Ācārya has no other business than to spread the principles of Kṛṣṇa consciousness all over the world. The real qualification of an ācārya is that he presents himself as a servant of the Supreme. Such a bona fide ācārya can never support the demoniac activities of atheistic men who present themselves as God. It is the main business of an ācārya to defy such imposters posing as God before the innocent public.
+

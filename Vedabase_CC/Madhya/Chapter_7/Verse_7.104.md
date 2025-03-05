@@ -1,0 +1,22 @@
+# CC Madhya 7.104
+
+**Bengali:**
+
+সেই যাই’ আর গ্রামে করে উপদেশ ।
+এইমত ‘বৈষ্ণব’ হৈল সব দক্ষিণ-দেশ ॥ ১০৪ ॥
+
+**Transliteration:**
+
+sei yāi’ āra grāme kare upadeśa
+ei-mata ‘vaiṣṇava’ haila saba dakṣiṇa-deśa
+
+**Synonyms:**
+
+Synonyms
+sei — that man; yāi’ — going; āra — different; grāme — to the villages; kare — gives; upadeśa — instruction; ei-mata — in this way; vaiṣṇava — devotees; haila — became; saba — all; dakṣiṇa-deśa — the people of South India.
+
+**Translation:**
+
+Translation
+In this way, as empowered men went from one village to another, all the people of South India became devotees.
+

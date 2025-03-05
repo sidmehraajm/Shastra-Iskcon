@@ -1,0 +1,29 @@
+# ŚB 6.1.25
+
+**Sanskrit:**
+
+स बद्धहृदयस्तस्मिन्नर्भके कलभाषिणि ।
+निरीक्षमाणस्तल्लीलां मुमुदे जरठो भृशम् ॥ २५ ॥
+
+**Transliteration:**
+
+sa baddha-hṛdayas tasminn
+arbhake kala-bhāṣiṇi
+nirīkṣamāṇas tal-līlāṁ
+mumude jaraṭho bhṛśam
+
+**Synonyms:**
+
+Synonyms
+saḥ — he; baddha-hṛdayaḥ — being very attached; tasmin — to that; arbhake — small child; kala-bhāṣiṇi — who could not talk clearly but talked in broken language; nirīkṣamāṇaḥ — seeing; tat — his; līlām — pastimes (such as walking and talking to his father); mumude — enjoyed; jaraṭhaḥ — the old man; bhṛśam — very much.
+
+**Translation:**
+
+Translation
+Because of the child’s broken language and awkward movements, old Ajāmila was very much attached to him. He always took care of the child and enjoyed the child’s activities.
+
+**Purport:**
+
+Purport
+Here it is clearly mentioned that the child Nārāyaṇa was so young that he could not even speak or walk properly. Since the old man was very attached to the child, he enjoyed the child’s activities, and because the child’s name was Nārāyaṇa, the old man always chanted the holy name of Nārāyaṇa. Although he was referring to the small child and not to the original Nārāyaṇa, the name of Nārāyaṇa is so powerful that even by chanting his son’s name he was becoming purified (harer nāma harer nāma harer nāmaiva kevalam). Śrīla Rūpa Gosvāmī has therefore declared that if one’s mind is somehow or other attracted by the holy name of Kṛṣṇa (tasmāt kenāpy upāyena manaḥ kṛṣṇe niveśayet), one is on the path of liberation. It is customary in Hindu society for parents to give their children names like Kṛṣṇadāsa, Govinda dāsa, Nārāyaṇa dāsa and Vṛndāvana dāsa. Thus they chant the names Kṛṣṇa, Govinda, Nārāyaṇa and Vṛndāvana and get the chance to be purified.
+

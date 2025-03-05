@@ -1,0 +1,23 @@
+# ŚB 4.11.24
+
+**Sanskrit:**
+
+न चैते पुत्रक भ्रातुर्हन्तारो धनदानुगा: । विसर्गादानयोस्तात पुंसो दैवं हि कारणम् ॥ २४ ॥
+
+**Transliteration:**
+
+na caite putraka bhrātur
+hantāro dhanadānugāḥ
+visargādānayos tāta
+puṁso daivaṁ hi kāraṇam
+
+**Synonyms:**
+
+Synonyms
+na — never; ca — also; ete — all these; putraka — my dear son; bhrātuḥ — of your brother; hantāraḥ — killers; dhanada — of Kuvera; anugāḥ — followers; visarga — of birth; ādānayoḥ — of death; tāta — my dear son; puṁsaḥ — of a living entity; daivam — the Supreme; hi — certainly; kāraṇam — the cause.
+
+**Translation:**
+
+Translation
+My dear son, those Yakṣas, who are descendants of Kuvera, are not actually the killers of your brother; the birth and death of every living entity are caused by the Supreme, who is certainly the cause of all causes.
+

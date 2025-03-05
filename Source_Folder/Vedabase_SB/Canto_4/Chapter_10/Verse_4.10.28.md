@@ -1,0 +1,24 @@
+# ŚB 4.10.28
+
+**Sanskrit:**
+
+एवंविधान्यनेकानि त्रासनान्यमनस्विनाम् ।
+ससृजुस्तिग्मगतय आसुर्या माययासुरा: ॥ २८ ॥
+
+**Transliteration:**
+
+evaṁ-vidhāny anekāni
+trāsanāny amanasvinām
+sasṛjus tigma-gataya
+āsuryā māyayāsurāḥ
+
+**Synonyms:**
+
+Synonyms
+evam-vidhāni — (phenomena) like this; anekāni — many varieties of; trāsanāni — fearful; amanasvinām — to the less intelligent men; sasṛjuḥ — they created; tigma-gatayaḥ — of heinous nature; āsuryā — demoniac; māyayā — by illusion; asurāḥ — the demons.
+
+**Translation:**
+
+Translation
+The demon Yakṣas are by nature very heinous, and by their demoniac power of illusion they can create many strange phenomena to frighten one who is less intelligent.
+

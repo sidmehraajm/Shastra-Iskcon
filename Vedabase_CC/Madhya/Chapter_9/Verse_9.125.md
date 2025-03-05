@@ -1,0 +1,22 @@
+# CC Madhya 9.125
+
+**Bengali:**
+
+আমি জীব, — ক্ষুদ্রবুদ্ধি, সহজে অস্থির ।
+ঈশ্বরের লীলা — কোটিসমুদ্র-গম্ভীর ॥ ১২৫ ॥
+
+**Transliteration:**
+
+āmi jīva, — kṣudra-buddhi, sahaje asthira
+īśvarera līlā — koṭi-samudra-gambhīra
+
+**Synonyms:**
+
+Synonyms
+āmi jīva — I am an ordinary living being; kṣudra-buddhi — possessing limited intelligence; sahaje asthira — very easily agitated; īśvarera līlā — the pastimes of the Lord; koṭi-samudra — as millions of oceans; gambhīra — as deep.
+
+**Translation:**
+
+Translation
+Veṅkaṭa Bhaṭṭa then said, “I am an ordinary human being. Since my intelligence is very limited and I am easily agitated, my mind cannot enter within the deep ocean of the pastimes of the Lord.
+

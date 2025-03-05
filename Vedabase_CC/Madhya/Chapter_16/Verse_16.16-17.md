@@ -1,0 +1,24 @@
+# CC Madhya 16.16-17
+
+**Bengali:**
+
+আচার্যরত্ন, বিদ্যানিধি, শ্রীবাস, রামাই ।
+বাসুদেব, মুরারি, গোবিন্দাদি তিন ভাই ॥ ১৬ ॥
+রাঘব পণ্ডিত নিজ-ঝালি সাজাঞা ।
+কুলীন-গ্ৰামবাসী চলে পট্টডোরী লঞা ॥ ১৭ ॥
+
+**Transliteration:**
+
+ācāryaratna, vidyānidhi, śrīvāsa, rāmāi
+vāsudeva, murāri, govindādi tina bhāi
+
+**Synonyms:**
+
+Synonyms
+ācāryaratna — Ācāryaratna; vidyānidhi — Vidyānidhi; śrīvāsa — Śrīvāsa; rāmāi — Rāmāi; vāsudeva — Vāsudeva; murāri — Murāri; govinda-ādi tina bhāi — Govinda and his two brothers; rāghava paṇḍita — Rāghava Paṇḍita; nija-jhāli — his own bags; sājāñā — assorting; kulīna-grāma-vāsī — the inhabitants of Kulīna-grāma; cale — went; paṭṭa-ḍorī lañā — taking silken ropes.
+
+**Translation:**
+
+Translation
+All the devotees of Navadvīpa departed, including Ācāryaratna, Vidyānidhi, Śrīvāsa, Rāmāi, Vāsudeva, Murāri, Govinda and his two brothers and Rāghava Paṇḍita, who took bags of assorted foods. The inhabitants of Kulīna-grāma, carrying silken ropes, also departed.
+

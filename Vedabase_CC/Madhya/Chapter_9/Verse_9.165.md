@@ -1,0 +1,22 @@
+# CC Madhya 9.165
+
+**Bengali:**
+
+প্রভুর বিয়োগে ভট্ট হৈল অচেতন ।
+এই রঙ্গলীলা করে শচীর নন্দন ॥ ১৬৫ ॥
+
+**Transliteration:**
+
+prabhura viyoge bhaṭṭa haila acetana
+ei raṅga-līlā kare śacīra nandana
+
+**Synonyms:**
+
+Synonyms
+prabhura viyoge — on account of separation from Śrī Caitanya Mahāprabhu; bhaṭṭa — Veṅkaṭa Bhaṭṭa; haila — became; acetana — unconscious; ei — this; raṅga-līlā — pastime at Śrī Raṅga-kṣetra; kare — does; śacīra nandana — the son of mother Śacī.
+
+**Translation:**
+
+Translation
+When He did so, Veṅkaṭa Bhaṭṭa fell down unconscious. Such are the pastimes of Lord Śrī Caitanya Mahāprabhu, the son of mother Śacī, at Śrī Raṅga-kṣetra.
+

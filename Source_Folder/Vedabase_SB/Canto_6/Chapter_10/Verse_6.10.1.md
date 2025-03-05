@@ -1,0 +1,26 @@
+# ŚB 6.10.1
+
+**Sanskrit:**
+
+श्रीबादरायणिरुवाच
+इन्द्रमेवं समादिश्य भगवान् विश्वभावन: ।
+पश्यतामनिमेषाणां तत्रैवान्तर्दधे हरि: ॥ १ ॥
+
+**Transliteration:**
+
+śrī-bādarāyaṇir uvāca
+indram evaṁ samādiśya
+bhagavān viśva-bhāvanaḥ
+paśyatām animeṣāṇāṁ
+tatraivāntardadhe hariḥ
+
+**Synonyms:**
+
+Synonyms
+śrī-bādarāyaṇiḥ uvāca — Śrī Śukadeva Gosvāmī said; indram — Indra, the heavenly King; evam — thus; samādiśya — after instructing; bhagavān — the Supreme Personality of Godhead; viśva-bhāvanaḥ — the original cause of all cosmic manifestations; paśyatām animeṣāṇām — while the demigods were looking on; tatra — then and there; eva — indeed; antardadhe — disappeared; hariḥ — the Lord.
+
+**Translation:**
+
+Translation
+Śrī Śukadeva Gosvāmī said: After instructing Indra in this way, the Supreme Personality of Godhead, Hari, the cause of the cosmic manifestation, then and there disappeared from the presence of the onlooking demigods.
+

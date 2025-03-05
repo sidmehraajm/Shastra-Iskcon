@@ -1,0 +1,33 @@
+# CC Madhya 23.104
+
+**Bengali:**
+
+বৃন্দাবনে কৃষ্ণসেবা, বৈষ্ণব-আচার ।
+ভক্তিস্মৃতিশাস্ত্র করি’ করিহ প্রচার ॥ ১০৪ ॥
+
+**Transliteration:**
+
+vṛndāvane kṛṣṇa-sevā, vaiṣṇava-ācāra
+bhakti-smṛti-śāstra kari’ kariha pracāra
+
+**Synonyms:**
+
+Synonyms
+vṛndāvane — in Vṛndāvana; kṛṣṇa-sevā — the service of Lord Kṛṣṇa; vaiṣṇava-ācāra — behavior of Vaiṣṇavas; bhakti-smṛti-śāstra — the reference books of devotional service; kari’ — compiling; kariha — do; pracāra — preaching.
+
+**Translation:**
+
+Translation
+“Establish devotional service to Lord Kṛṣṇa and Rādhārāṇī in Vṛndāvana. You should also compile bhakti scriptures and preach the bhakti cult from Vṛndāvana.”
+
+**Purport:**
+
+Purport
+Sanātana Gosvāmī was enjoined (1) to broadcast the revealed scriptures on devotional service and establish the conclusions of devotional service, (2) to reestablish lost places of pilgrimage like Vṛndāvana and Rādhā-kuṇḍa, (3) to establish the Vṛndāvana method of temple worship and install Deities in temples (Śrī Sanātana Gosvāmī established the Madana-mohana temple, and Rūpa Gosvāmī established the Govindajī temple), and (4) to enunciate the behavior of a Vaiṣṇava (as Śrīla Sanātana Gosvāmī did in the Hari-bhakti-vilāsa). In this way Sanātana Gosvāmī was empowered to establish the cult of Vaiṣṇavism. As stated by Śrīnivāsa Ācārya in his Ṣaḍ-gosvāmy-aṣṭaka (2):
+nānā-śāstra-vicāraṇaika-nipuṇau sad-dharma-saṁsthāpakau
+lokānāṁ hita-kāriṇau tri-bhuvane mānyau śaraṇyākarau
+rādhā-kṛṣṇa-padāravinda-bhajanānandena mattālikau
+vande rūpa-sanātanau raghu-yugau śrī-jīva-gopālakau
+“I offer my respectful obeisances unto the six Gosvāmīs, namely Śrī Sanātana Gosvāmī, Śrī Rūpa Gosvāmī, Śrī Raghunātha Bhaṭṭa Gosvāmī, Śrī Raghunātha dāsa Gosvāmī, Śrī Jīva Gosvāmī and Śrī Gopāla Bhaṭṭa Gosvāmī, who are very expert in scrutinizingly studying all the revealed scriptures with the aim of establishing eternal religious principles for the benefit of all human beings. Thus they are honored all over the three worlds, and they are worth taking shelter of because they are absorbed in the mood of the gopīs and are engaged in the transcendental loving service of Rādhā and Kṛṣṇa.”
+This Kṛṣṇa consciousness movement continues the tradition of the six Gosvāmīs, especially Śrīla Sanātana Gosvāmī and Śrīla Rūpa Gosvāmī. Serious students of this Kṛṣṇa consciousness movement must understand their great responsibility to preach the cult of Vṛndāvana (devotional service to the Lord) all over the world. We now have a nice temple in Vṛndāvana, and serious students should take advantage of it. I am very hopeful that some of our students can take up this responsibility and render the best service to humanity by educating people in Kṛṣṇa consciousness.
+

@@ -1,0 +1,24 @@
+# ŚB 10.4.12
+
+**Sanskrit:**
+
+किं मया हतया मन्द जात: खलु तवान्तकृत् ।
+यत्र क्‍व वा पूर्वशत्रुर्मा हिंसी: कृपणान् वृथा ॥ १२ ॥
+
+**Transliteration:**
+
+kiṁ mayā hatayā manda
+jātaḥ khalu tavānta-kṛt
+yatra kva vā pūrva-śatrur
+mā hiṁsīḥ kṛpaṇān vṛthā
+
+**Synonyms:**
+
+Synonyms
+kim — what is the use; mayā — me; hatayā — in killing; manda — O you fool; jātaḥ — has already been born; khalu — indeed; tava anta-kṛt — who will kill you; yatra kva vā — somewhere else; pūrva-śatruḥ — your former enemy; mā — do not; hiṁsīḥ — kill; kṛpaṇān — other poor children; vṛthā — unnecessarily.
+
+**Translation:**
+
+Translation
+O Kaṁsa, you fool, what will be the use of killing me? The Supreme Personality of Godhead, who has been your enemy from the very beginning and who will certainly kill you, has already taken His birth somewhere else. Therefore, do not unnecessarily kill other children.
+

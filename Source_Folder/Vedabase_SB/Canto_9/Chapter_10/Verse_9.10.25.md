@@ -1,0 +1,24 @@
+# ŚB 9.10.25
+
+**Sanskrit:**
+
+स्वान् स्वान् बन्धून् परिष्वज्य लक्ष्मणेषुभिरर्दितान् ।
+रुरुदु: सुस्वरं दीना घ्नन्त्य आत्मानमात्मना ॥ २५ ॥
+
+**Transliteration:**
+
+svān svān bandhūn pariṣvajya
+lakṣmaṇeṣubhir arditān
+ruruduḥ susvaraṁ dīnā
+ghnantya ātmānam ātmanā
+
+**Synonyms:**
+
+Synonyms
+svān svān — their own respective husbands; bandhūn — friends; pariṣvajya — embracing; lakṣmaṇa-iṣubhiḥ — by the arrows of Lakṣmaṇa; arditān — who were killed; ruruduḥ — all the wives cried piteously; su-svaram — it was very sweet to hear; dīnāḥ — very poor; ghnantyaḥ — striking; ātmānam — their breasts; ātmanā — by themselves.
+
+**Translation:**
+
+Translation
+Striking their breasts in affliction because their husbands had been killed by the arrows of Lakṣmaṇa, the women embraced their respective husbands and cried piteously in voices appealing to everyone.
+

@@ -1,0 +1,23 @@
+# ŚB 10.1.60
+
+**Sanskrit:**
+
+प्रतियातु कुमारोऽयं न ह्यस्मादस्ति मे भयम् । अष्टमाद् युवयोर्गर्भान्मृत्युर्मे विहित: किल ॥ ६० ॥
+
+**Transliteration:**
+
+pratiyātu kumāro ’yaṁ
+na hy asmād asti me bhayam
+aṣṭamād yuvayor garbhān
+mṛtyur me vihitaḥ kila
+
+**Synonyms:**
+
+Synonyms
+pratiyātu — my dear Vasudeva, take back your child and go home; kumāraḥ — newborn child; ayam — this; na — not; hi — indeed; asmāt — from him; asti — there is; me — my; bhayam — fear; aṣṭamāt — from the eighth; yuvayoḥ — of both you and your wife; garbhāt — from the pregnancy; mṛtyuḥ — death; me — my; vihitaḥ — has been ordained; kila — indeed.
+
+**Translation:**
+
+Translation
+O Vasudeva, you may take back your child and go home. I have no fear of your first child. It is the eighth child of you and Devakī I am concerned with because that is the child by whom I am destined to be killed.
+

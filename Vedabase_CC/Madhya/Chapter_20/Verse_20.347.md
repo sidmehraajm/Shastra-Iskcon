@@ -1,0 +1,29 @@
+# CC Madhya 20.347
+
+**Bengali:**
+
+কলিং সভাজয়ন্ত্যার্যা গুণজ্ঞাঃ সারভাগিনঃ ।
+যত্র সঙ্কীর্তনেনৈব সর্বস্বার্থোঽভিলভ্যতে ॥ ৩৪৭ ॥
+
+**Transliteration:**
+
+kaliṁ sabhājayanty āryā
+guṇa-jñāḥ sāra-bhāginaḥ
+yatra saṅkīrtanenaiva
+sarva-svārtho ’bhilabhyate
+
+**Synonyms:**
+
+Synonyms
+kalim — Kali-yuga; sabhājayanti — worship; āryāḥ — advanced people; guṇa-jñāḥ — appreciating this good quality of Kali-yuga; sāra-bhāginaḥ — persons who accept the essence of life; yatra — in which age; saṅkīrtanena — simply by performing the saṅkīrtana-yajña, the chanting of the Hare Kṛṣṇa mantra; sarva-sva-arthaḥ — all interests of life; abhilabhyate — are achieved.
+
+**Translation:**
+
+Translation
+“ ‘Those who are advanced and highly qualified and are interested in the essence of life know the good qualities of Kali-yuga. Such people worship the Age of Kali because in this age one can advance in spiritual knowledge and attain life’s goal simply by chanting the Hare Kṛṣṇa mahā-mantra.’
+
+**Purport:**
+
+Purport
+This is a quotation from Śrīmad-Bhāgavatam (11.5.36) spoken by the great sage Karabhājana Ṛṣi, one of the nine Yogendras. The sage was informing Mahārāja Nimi about the people’s duty to worship the Supreme Personality of Godhead according to different processes in different yugas.
+

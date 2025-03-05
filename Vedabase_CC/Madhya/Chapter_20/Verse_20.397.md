@@ -1,0 +1,28 @@
+# CC Madhya 20.397
+
+**Bengali:**
+
+অতএব গোলোকস্থানে নিত্য বিহার ।
+ব্রহ্মাণ্ডগণে ক্রমে প্রাকট্য তাহার ॥ ৩৯৭ ॥
+
+**Transliteration:**
+
+ataeva goloka-sthāne nitya vihāra
+brahmāṇḍa-gaṇe krame prākaṭya tāhāra
+
+**Synonyms:**
+
+Synonyms
+ataeva — therefore; goloka-sthāne — in the original Goloka Vṛndāvana planet; nitya vihāra — eternal pastimes; brahmāṇḍa-gaṇe — within the material universes; krame — gradually; prākaṭya — manifestation; tāhāra — of them.
+
+**Translation:**
+
+Translation
+“The eternal pastimes of Kṛṣṇa are continuously taking place in the original Goloka Vṛndāvana planet. These same pastimes are gradually manifested within the material world, in each and every brahmāṇḍa.
+
+**Purport:**
+
+Purport
+Śrīla Bhaktisiddhānta Sarasvatī Ṭhākura elucidates this complicated explanation of Kṛṣṇa’s pastimes. Kṛṣṇa’s pastimes are always present in the material world in one of the many universes. These pastimes appear in the universes one after the other, just as the sun moves across the sky and measures the time. Kṛṣṇa’s appearance may be manifested in this universe at one moment, and immediately after His birth, this pastime is manifested in the next universe. After His killing of Pūtanā is manifested in this universe, it is next manifested in another universe. Thus all the pastimes of Kṛṣṇa are eternally existing both in the original Goloka Vṛndāvana planet and in the material universes. The 125 years calculated in our solar system to be Kṛṣṇa’s lifetime equal one moment for Kṛṣṇa. One moment these pastimes are manifested in one universe, and the next moment they are manifested in the next universe. There are unlimited universes, and Kṛṣṇa’s pastimes are manifested one moment after the other in all of them. This rotation is explained through the example of the sun’s moving across the sky. Kṛṣṇa appears and disappears in innumerable universes, just as the sun appears and disappears during the day. Although the sun appears to rise and set, it is continuously shining somewhere on the earth. Similarly, although Kṛṣṇa’s pastimes seem to appear and disappear, they are continuously existing in one brahmāṇḍa (universe) or another. Thus all of Kṛṣṇa’s līlās are present simultaneously throughout the innumerable universes. By our limited senses we cannot appreciate this; therefore Kṛṣṇa’s eternal pastimes are very difficult for us to understand. One should try to understand how they are taking place by understanding the example of the sun. Although the Lord is appearing constantly in the material universes, His pastimes are eternally present in the original Goloka Vṛndāvana. Therefore these pastimes are called nitya-līlā (eternally present pastimes). Because we cannot see what is going on in other universes, it is a little difficult for us to understand how Kṛṣṇa is eternally manifesting His pastimes. There are fourteen Manus in one day of Brahmā, and this time calculation is also taking place in other universes. Kṛṣṇa’s pastimes are manifested before fourteen Manus expire. Although it is a little difficult to understand the eternal pastimes of Kṛṣṇa in this way, we must accept the verdict of the Vedic literatures.
+There are two types of devotees — the sādhaka, who is preparing for perfection, and the siddha, who is already perfect. As far as those who are already perfect are concerned, Lord Kṛṣṇa says in the Bhagavad-gītā (4.9), tyaktvā dehaṁ punar janma naiti mām eti so ’rjuna: “After giving up this material body, such a devotee comes to Me.” After leaving the material body, the perfect devotee takes birth from the womb of a gopī on a planet where Kṛṣṇa’s pastimes are going on. This may be in this universe or another universe. This statement is found in the Ujjvala-nīlamaṇi, which is commented upon by Viśvanātha Cakravartī Ṭhākura. When a devotee becomes perfect, he is transferred to a universe where Kṛṣṇa’s pastimes are taking place. Kṛṣṇa’s eternal associates go wherever Kṛṣṇa manifests His pastimes. As stated before, first the father and mother of Kṛṣṇa appear, then the other associates. Quitting his material body, the perfect devotee also goes to associate with Kṛṣṇa and His other associates.
+

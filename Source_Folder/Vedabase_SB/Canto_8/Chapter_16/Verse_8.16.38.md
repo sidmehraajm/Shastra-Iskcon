@@ -1,0 +1,24 @@
+# ŚB 8.16.38
+
+**Sanskrit:**
+
+एतैर्मन्त्रैर्हृषीकेशमावाहनपुरस्कृतम् ।
+अर्चयेच्छ्रद्धया युक्त: पाद्योपस्पर्शनादिभि: ॥ ३८ ॥
+
+**Transliteration:**
+
+etair mantrair hṛṣīkeśam
+āvāhana-puraskṛtam
+arcayec chraddhayā yuktaḥ
+pādyopasparśanādibhiḥ
+
+**Synonyms:**
+
+Synonyms
+etaiḥ mantraiḥ — by chanting all these mantras; hṛṣīkeśam — unto the Supreme Personality of Godhead, the master of all senses; āvāhana — calling; puraskṛtam — honoring Him in all respects; arcayet — one should worship; śraddhayā — with faith and devotion; yuktaḥ — engaged; pādya-upasparśana-ādibhiḥ — with the paraphernalia of worship (pādya, arghya, etc.).
+
+**Translation:**
+
+Translation
+Kaśyapa Muni continued: By chanting all these mantras, welcoming the Supreme Personality of Godhead with faith and devotion, and offering Him items of worship [such as pādya and arghya], one should worship Keśava, Hṛṣīkeśa, Kṛṣṇa, the Supreme Personality of Godhead.
+

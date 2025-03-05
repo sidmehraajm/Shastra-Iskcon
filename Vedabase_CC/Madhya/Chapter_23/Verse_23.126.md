@@ -1,0 +1,22 @@
+# CC Madhya 23.126
+
+**Bengali:**
+
+প্রভুর উপদেশামৃত শুনে যেই জন ।
+অচিরাৎ মিলয়ে তাঁরে কৃষ্ণপ্রেমধন ॥ ১২৬ ॥
+
+**Transliteration:**
+
+prabhura upadeśāmṛta śune yei jana
+acirāt milaye tāṅre kṛṣṇa-prema-dhana
+
+**Synonyms:**
+
+Synonyms
+prabhura — of Śrī Caitanya Mahāprabhu; upadeśa-amṛta — the nectar of the instructions; śune — hears; yei jana — anyone who; acirāt — without delay; milaye — meets; tāṅre — him; kṛṣṇa-prema-dhana — the treasure of love of Kṛṣṇa.
+
+**Translation:**
+
+Translation
+Whoever hears these instructions given to Sanātana Gosvāmī by the Lord comes very soon to realize love of God, Kṛṣṇa.
+

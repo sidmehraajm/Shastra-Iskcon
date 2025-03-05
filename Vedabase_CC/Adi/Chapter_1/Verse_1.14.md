@@ -1,0 +1,24 @@
+# CC Ādi 1.14
+
+**Bengali:**
+
+পঞ্চতত্ত্বাত্মকং কৃষ্ণং ভক্তরূপস্বরূপকম্‌ ।
+ভক্তাবতারং ভক্তাখ্যং নমামি ভক্তশক্তিকম্‌ ॥ ১৪ ॥
+
+**Transliteration:**
+
+pañca-tattvātmakaṁ kṛṣṇaṁ
+bhakta-rūpa-svarūpakam
+bhaktāvatāraṁ bhaktākhyaṁ
+namāmi bhakta-śaktikam
+
+**Synonyms:**
+
+Synonyms
+pañca-tattva-ātmakam — comprehending the five transcendental subject matters; kṛṣṇam — unto Lord Kṛṣṇa; bhakta-rūpa — in the form of a devotee; sva-rūpakam — in the expansion of a devotee; bhakta-avatāram — in the incarnation of a devotee; bhakta-ākhyam — known as a devotee; namāmi — I offer my obeisances; bhakta-śaktikam — the energy of the Supreme Personality of Godhead, who supplies energy to the devotee.
+
+**Translation:**
+
+Translation
+I offer my obeisances unto the Supreme Lord, Kṛṣṇa, who is nondifferent from His features as a devotee, devotional incarnation, devotional manifestation, pure devotee and devotional energy.
+

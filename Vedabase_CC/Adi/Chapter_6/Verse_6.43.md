@@ -1,0 +1,27 @@
+# CC Ādi 6.43
+
+**Bengali:**
+
+সেই অভিমান–সুখে আপনা পাসরে ।
+‘কৃষ্ণদাস’ হও—জীবে উপদেশ করে ॥ ৪৩ ॥
+
+**Transliteration:**
+
+sei abhimāna-sukhe āpanā pāsare
+‘kṛṣṇa-dāsa’ hao — jīve upadeśa kare
+
+**Synonyms:**
+
+Synonyms
+sei — that; abhimāna-sukhe — in the happiness of that conception; āpanā — Himself; pāsare — He forgets; kṛṣṇa-dāsa hao — You are servants of Lord Kṛṣṇa; jīve — the living beings; upadeśa kare — He instructs.
+
+**Translation:**
+
+Translation
+He forgets Himself in the joy of that conception and teaches all living entities, “You are servants of Śrī Caitanya Mahāprabhu.”
+
+**Purport:**
+
+Purport
+The transcendental devotional service of the Supreme Personality of Godhead is so ecstatic that even the Lord Himself plays the part of a devotee. Forgetting Himself to be the Supreme, He personally teaches the whole world how to render service to the Supreme Personality of Godhead.
+

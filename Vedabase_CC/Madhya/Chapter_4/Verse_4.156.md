@@ -1,0 +1,22 @@
+# CC Madhya 4.156
+
+**Bengali:**
+
+পুরী দেখি’ সেবক সব সম্মান করিল ।
+ক্ষীরপ্রসাদ দিয়া তাঁরে ভিক্ষা করাইল ॥ ১৫৬ ॥
+
+**Transliteration:**
+
+purī dekhi’ sevaka saba sammāna karila
+kṣīra-prasāda diyā tāṅre bhikṣā karāila
+
+**Synonyms:**
+
+Synonyms
+purī dekhi’ — by seeing Mādhavendra Purī; sevaka — the priest or servant; saba sammāna — all respects; karila — offered; kṣīra-prasāda — sweet rice prasādam; tāṅre — him; bhikṣā karāila — made to eat.
+
+**Translation:**
+
+Translation
+When the priest of Gopīnātha saw Mādhavendra Purī again, he offered all respects to him and, giving him the sweet rice prasādam, made him eat.
+

@@ -1,0 +1,32 @@
+# ŚB 10.11.43
+
+**Sanskrit:**
+
+गृहीत्वापरपादाभ्यां सहलाङ्गूलमच्युत: ।
+भ्रामयित्वा कपित्थाग्रे प्राहिणोद्गतजीवितम् ।
+स कपित्थैर्महाकाय: पात्यमानै: पपात ह ॥ ४३ ॥
+
+**Transliteration:**
+
+gṛhītvāpara-pādābhyāṁ
+saha-lāṅgūlam acyutaḥ
+bhrāmayitvā kapitthāgre
+prāhiṇod gata-jīvitam
+sa kapitthair mahā-kāyaḥ
+pātyamānaiḥ papāta ha
+
+**Synonyms:**
+
+Synonyms
+gṛhītvā — capturing; apara-pādābhyām — with the hind legs; saha — along with; lāṅgūlam — the tail; acyutaḥ — Kṛṣṇa, the Supreme Personality of Godhead; bhrāmayitvā — twirling around very severely; kapittha-agre — on the top of a kapittha tree; prāhiṇot — threw him; gata-jīvitam — lifeless body; saḥ — that demon; kapitthaiḥ — with the kapittha trees; mahā-kāyaḥ — assumed a great body; pātyamānaiḥ — and while the tree fell down; papāta ha — he fell dead on the ground.
+
+**Translation:**
+
+Translation
+Thereafter, Śrī Kṛṣṇa caught the demon by the hind legs and tail, twirled the demon’s whole body very strongly until the demon was dead, and threw him into the top of a kapittha tree, which then fell down, along with the body of the demon, who had assumed a great form.
+
+**Purport:**
+
+Purport
+Kṛṣṇa killed the demon in such a way as to get the kapittha fruits to fall so that He and Balarāma and the other boys could take advantage of the opportunity to eat them. The kapittha is sometimes called kṣatbelphala. The pulp of this fruit is very palatable. It is sweet and sour, and everyone likes it.
+

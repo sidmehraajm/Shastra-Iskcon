@@ -1,0 +1,30 @@
+# ŚB 4.18.32
+
+**Sanskrit:**
+
+प्राक्पृथोरिह नैवैषा पुरग्रामादिकल्पना ।
+यथासुखं वसन्ति स्म तत्र तत्राकुतोभया: ॥ ३२ ॥
+
+**Transliteration:**
+
+prāk pṛthor iha naivaiṣā
+pura-grāmādi-kalpanā
+yathā-sukhaṁ vasanti sma
+tatra tatrākutobhayāḥ
+
+**Synonyms:**
+
+Synonyms
+prāk — before; pṛthoḥ — King Pṛthu; iha — on this planet; na — never; eva — certainly; eṣā — this; pura — of towns; grāma-ādi — of villages, etc.; kalpanā — planned arrangement; yathā — as; sukham — convenient; vasanti sma — lived; tatra tatra — here and there; akutaḥ-bhayāḥ — without hesitation.
+
+**Translation:**
+
+Translation
+Before the reign of King Pṛthu there was no planned arrangement for different cities, villages, pasturing grounds, etc. Everything was scattered, and everyone constructed his residential quarters according to his own convenience. However, from the time of King Pṛthu, plans were made for towns and villages.
+
+**Purport:**
+
+Purport
+From this statement it appears that town and city planning is not new but has been coming down since the time of King Pṛthu. In India we can see regular planning methods evident in very old cities. In Śrīmad-Bhāgavatam there are many descriptions of such ancient cities. Even five thousand years ago, Lord Kṛṣṇa’s capital, Dvārakā, was well planned, and similar other cities — Mathurā and Hastināpura (now New Delhi) — were also well planned. Thus the planning of cities and towns is not a modern innovation but was existing in bygone ages.
+Thus end the Bhaktivedanta purports of the Fourth Canto, Eighteenth Chapter, of the Śrīmad-Bhāgavatam, entitled “Pṛthu Mahārāja Milks the Earth Planet.”
+

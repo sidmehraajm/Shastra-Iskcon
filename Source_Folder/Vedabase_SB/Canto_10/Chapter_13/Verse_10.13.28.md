@@ -1,0 +1,29 @@
+# ŚB 10.13.28
+
+**Sanskrit:**
+
+एकदा चारयन् वत्सान्सरामो वनमाविशत् ।
+पञ्चषासु त्रियामासु हायनापूरणीष्वज: ॥ २८ ॥
+
+**Transliteration:**
+
+ekadā cārayan vatsān
+sa-rāmo vanam āviśat
+pañca-ṣāsu tri-yāmāsu
+hāyanāpūraṇīṣv ajaḥ
+
+**Synonyms:**
+
+Synonyms
+ekadā — one day; cārayan vatsān — while taking care of all the calves; sa-rāmaḥ — along with Balarāma; vanam — within the forest; āviśat — entered; pañca-ṣāsu — five or six; tri-yāmāsu — nights; hāyana — a whole year; apūraṇīṣu — not being fulfilled (five or six days before the completion of one year); ajaḥ — Lord Śrī Kṛṣṇa.
+
+**Translation:**
+
+Translation
+One day, five or six nights before the completion of the year, Kṛṣṇa, tending the calves, entered the forest along with Balarāma.
+
+**Purport:**
+
+Purport
+Up to this time, even Balarāma was captivated by the bewilderment that covered Brahmā. Even Balarāma did not know that all the calves and cowherd boys were expansions of Kṛṣṇa or that He Himself was also an expansion of Kṛṣṇa. This was disclosed to Balarāma just five or six days before the completion of the year.
+

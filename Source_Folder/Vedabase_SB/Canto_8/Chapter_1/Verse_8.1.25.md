@@ -1,0 +1,24 @@
+# ŚB 8.1.25
+
+**Sanskrit:**
+
+धर्मस्य सूनृतायां तु भगवान्पुरुषोत्तम: ।
+सत्यसेन इति ख्यातो जात: सत्यव्रतै: सह ॥ २५ ॥
+
+**Transliteration:**
+
+dharmasya sūnṛtāyāṁ tu
+bhagavān puruṣottamaḥ
+satyasena iti khyāto
+jātaḥ satyavrataiḥ saha
+
+**Synonyms:**
+
+Synonyms
+dharmasya — of the demigod in charge of religion; sūnṛtāyām — in the womb of his wife named Sūnṛtā; tu — indeed; bhagavān — the Supreme Personality of Godhead; puruṣa-uttamaḥ — the Supreme Personality of Godhead; satyasenaḥ — Satyasena; iti — thus; khyātaḥ — celebrated; jātaḥ — took birth; satyavrataiḥ — the Satyavratas; saha — with.
+
+**Translation:**
+
+Translation
+In this manvantara, the Supreme Personality of Godhead appeared from the womb of Sūnṛtā, who was the wife of Dharma, the demigod in charge of religion. The Lord was celebrated as Satyasena, and He appeared with other demigods, known as the Satyavratas.
+

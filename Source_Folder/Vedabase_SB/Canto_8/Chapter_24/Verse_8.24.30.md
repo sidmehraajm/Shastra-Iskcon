@@ -1,0 +1,31 @@
+# ŚB 8.24.30
+
+**Sanskrit:**
+
+न तेऽरविन्दाक्ष पदोपसर्पणं
+मृषा भवेत् सर्वसुहृत्प्रियात्मन: ।
+यथेतरेषां पृथगात्मनां सता-
+मदीद‍ृशो यद् वपुरद्भ‍ुतं हि न: ॥ ३० ॥
+
+**Transliteration:**
+
+na te ’ravindākṣa padopasarpaṇaṁ
+mṛṣā bhavet sarva-suhṛt-priyātmanaḥ
+yathetareṣāṁ pṛthag-ātmanāṁ satām
+adīdṛśo yad vapur adbhutaṁ hi naḥ
+
+**Synonyms:**
+
+Synonyms
+na — never; te — of Your Lordship; aravinda-akṣa — My Lord, whose eyes are like the petals of a lotus; pada-upasarpaṇam — worship of the lotus feet; mṛṣā — useless; bhavet — can become; sarva-suhṛt — the friend of everyone; priya — dear to everyone; ātmanaḥ — the Supersoul of everyone; yathā — as; itareṣām — of others (the demigods); pṛthak-ātmanām — living entities who have material bodies different from the soul; satām — of those who are spiritually fixed; adīdṛśaḥ — You have manifested; yat — that; vapuḥ — body; adbhutam — wonderful; hi — indeed; naḥ — unto us.
+
+**Translation:**
+
+Translation
+O my Lord, possessing eyes like the petals of a lotus, the worship of the demigods, who are in the bodily concept of life, is fruitless in all respects. But because You are the supreme friend and dearmost Supersoul of everyone, worship of Your lotus feet is never useless. You have therefore manifested Your form as a fish.
+
+**Purport:**
+
+Purport
+The demigods like Indra, Candra and Sūrya are ordinary living entities who are differentiated parts and parcels of the Supreme Personality of Godhead. The Lord expands Himself through the living beings (nityo nityānāṁ cetanaś cetanānām (Kaṭha Upaniṣad 2.2.13). His personal viṣṇu-tattva forms, which are all spiritual, are called svāṁśa, and the living entities who are differentiated parts are called vibhinnāṁśa. Some of the vibhinnāṁśa forms are spiritual, and some are a combination of matter and spirit. The conditioned souls in the material world are different from their external bodies made of material energy. Thus the demigods living in the upper planetary systems and the living entities living in the lower planetary system are of the same nature. Nonetheless, those living as human beings on this planet are sometimes attracted to worshiping the demigods in the higher planetary systems. Such worship is temporary. As the human beings on this planet have to change their bodies (tathā dehāntara-prāptiḥ), the living entities known as Indra, Candra, Varuṇa and so on will also have to change their bodies in due course of time. As stated in Bhagavad-gītā, antavat tu phalaṁ teṣāṁ tad bhavaty alpa-medhasām: “Men of small intelligence worship the demigods, and their fruits are limited and temporary.” Kāmais tais tair hṛta jñānāḥ prapadyante ’nya-devatāḥ: those who do not know the position of the demigods are inclined to worship the demigods for some material purpose, but the results of such worship are never permanent. Consequently, here it is said, yathetareṣāṁ pṛthag-ātmanāṁ satām, padopasarpaṇaṁ mṛṣā bhavet. In other words, if one is to worship someone else, he must worship the Supreme Personality of Godhead. Then his worship will never be fruitless. Svalpam apy asya dharmasya trāyate mahato bhayāt: even a slight attempt to worship the Supreme Personality of Godhead is a permanent asset. Therefore, as recommended in Śrīmad-Bhāgavatam, tyaktvā sva-dharmaṁ caraṇāmbujaṁ hareḥ. One should take to the worship of the lotus feet of Hari, even if this means giving up the so-called occupational duty assigned because of the particular body one has accepted. Because worship in terms of the body is temporary, it does not bear any permanent fruit. But worship of the Supreme Personality of Godhead gives immense benefit.
+

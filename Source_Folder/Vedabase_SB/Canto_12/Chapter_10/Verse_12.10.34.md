@@ -1,0 +1,30 @@
+# ŚB 12.10.34
+
+**Sanskrit:**
+
+वरमेकं वृणेऽथापि पूर्णात् कामाभिवर्षणात् ।
+भगवत्यच्युतां भक्तिं तत्परेषु तथा त्वयि ॥ ३४ ॥
+
+**Transliteration:**
+
+varam ekaṁ vṛṇe ’thāpi
+pūrṇāt kāmābhivarṣaṇāt
+bhagavaty acyutāṁ bhaktiṁ
+tat-pareṣu tathā tvayi
+
+**Synonyms:**
+
+Synonyms
+varam — benediction; ekam — one; vṛṇe — I request; atha api — nevertheless; pūrṇāt — from him who is completely full; kāma-abhivarṣaṇāt — who showers down the fulfillment of desires; bhagavati — for the Supreme Personality of Godhead; acyutām — infallible; bhaktim — devotional service; tat-pareṣu — for those who are dedicated to Him; tathā — and also; tvayi — for yourself.
+
+**Translation:**
+
+Translation
+But I do request one benediction from you, who are full of all perfection and able to shower down the fulfillment of all desires. I ask to have unfailing devotion for the Supreme Personality of Godhead and for His dedicated devotees, especially you.
+
+**Purport:**
+
+Purport
+The words tat-pareṣu tathā tvayi clearly indicate that Lord Śiva is a devotee of the Supreme Lord, not the Supreme Lord Himself. Because the representative of God is offered the same protocol as God Himself, Mārkaṇḍeya Ṛṣi addressed Lord Śiva as “lord” in previous verses. But now it is clearly revealed that, as stated throughout Vedic literature, Lord Śiva is an eternal servant of God and not God Himself.
+Desire manifests itself within the mind and heart according to the subtle laws governing consciousness. Pure desire to engage in the loving service of the Lord brings one to the most exalted platform of consciousness, and such a perfect understanding of life is available only by the special mercy of the Lord’s devotees.
+

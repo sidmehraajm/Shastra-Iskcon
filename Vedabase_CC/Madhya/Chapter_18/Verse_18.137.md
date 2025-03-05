@@ -1,0 +1,22 @@
+# CC Madhya 18.137
+
+**Bengali:**
+
+এত বলি’ ঝাঁপ দিলা জলের উপরে ।
+ডুবিয়া রহিলা প্রভু জলের ভিতরে ॥ ১৩৭ ॥
+
+**Transliteration:**
+
+eta bali’ jhāṅpa dilā jalera upare
+ḍubiyā rahilā prabhu jalera bhitare
+
+**Synonyms:**
+
+Synonyms
+eta bali’ — saying this; jhāṅpa dilā — jumped; jalera upare — above the water; ḍubiyā — sinking; rahilā — remained; prabhu — Śrī Caitanya Mahāprabhu; jalera bhitare — within the water.
+
+**Translation:**
+
+Translation
+While considering how Akrūra remained within the water, Śrī Caitanya Mahāprabhu immediately jumped in and stayed under water for some time.
+

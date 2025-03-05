@@ -1,0 +1,27 @@
+# CC Ādi 14.94
+
+**Bengali:**
+
+কত দিনে মিশ্র পুত্রের হাতে খড়ি দিল ।
+অল্প দিনে দ্বাদশ–ফলা অক্ষর শিখিল ॥ ৯৪ ॥
+
+**Transliteration:**
+
+kata dine miśra putrera hāte khaḍi dila
+alpa dine dvādaśa-phalā akṣara śikhila
+
+**Synonyms:**
+
+Synonyms
+kata dine — after some days; miśra — Jagannātha Miśra; putrera — of his son; hāte — in the hand; khaḍi — chalk; dila — gave; alpa — within a very few; dine — days; dvādaśa-phalā — twelve combinations of letters; akṣara — letters; śikhila — learned.
+
+**Translation:**
+
+Translation
+After some days Jagannātha Miśra inaugurated the primary education of his son by performing the hāte khaḍi ceremony. Within a very few days the Lord learned all the letters and combinations of letters.
+
+**Purport:**
+
+Purport
+The twelve phalā, or combinations of letters, are called repha; mūrdhanya (cerebral), ṇa; dāntavya (dental), na; ma; ya; ra; la; va; ṛ; ṝ; ḷ; and ḷ. Hāte khaḍi is the primary educational beginning. At the age of four or five years, on an auspicious day called vidyārambha marking the beginning of primary education, there is a ceremony worshiping Lord Viṣṇu, and after that the teacher gives the child a long chalk pencil. Then, guiding the hand of the student, he instructs him how to write the letters of the alphabet (a, ā, i, etc.) by writing big letters on the floor. When the child is a little advanced in writing, he is given a slate for his primary education, which ends when he learns the two-letter combinations, which are called phalā, as mentioned above.
+

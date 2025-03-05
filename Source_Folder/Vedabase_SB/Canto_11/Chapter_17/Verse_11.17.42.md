@@ -1,0 +1,30 @@
+# ŚB 11.17.42
+
+**Sanskrit:**
+
+ब्राह्मणस्य हि देहोऽयं क्षुद्रकामाय नेष्यते ।
+कृच्छ्राय तपसे चेह प्रेत्यानन्तसुखाय च ॥ ४२ ॥
+
+**Transliteration:**
+
+brāhmaṇasya hi deho ’yaṁ
+kṣudra-kāmāya neṣyate
+kṛcchrāya tapase ceha
+pretyānanta-sukhāya ca
+
+**Synonyms:**
+
+Synonyms
+brāhmaṇasya — of a brāhmaṇa; hi — certainly; dehaḥ — body; ayam — this; kṣudra — insignificant; kāmāya — for sense gratification; na — not; iṣyate — is meant; kṛcchrāya — for difficult; tapase — austerities; ca — also; iha — in this world; pretya — after death; ananta — unlimited; sukhāya — happiness; ca — also.
+
+**Translation:**
+
+Translation
+The body of a brāhmaṇa is not intended to enjoy insignificant material sense gratification; rather, by accepting difficult austerities in his life, a brāhmaṇa will enjoy unlimited happiness after death.
+
+**Purport:**
+
+Purport
+One may ask why a brāhmaṇa should voluntarily accept inconvenience in keeping his body and soul together. In this verse the Lord explains that advanced human life is meant for serious austerity and not for insignificant sense gratification. By spiritual advancement one is fixed in transcendental bliss on the spiritual platform and gives up useless absorption in the temporary material body. One should remain detached from the material body, accepting only the bare necessities of life. The brāhmaṇas, by accepting a troublesome form of livelihood, never forget that the material body is destined to grow old, become diseased and die in misery. Thus remaining alert and transcendental, an advanced brāhmaṇa, at the end of this life, goes back home, back to Godhead, where he enjoys unlimited spiritual bliss. Without such higher awareness, how can one be considered a qualified brāhmaṇa?
+Those devotees engaged twenty-four hours a day in spreading the mission of Lord Kṛṣṇa are beyond the platform of renunciation or sense gratification because they engage everything in Lord Kṛṣṇa’s service. A pure devotee of the Lord eats only to get strength for serving the Lord and does not accept either sumptuous or meager food simply for the body’s sake. However, everything may be accepted for the Lord, even sumptuous meals. A brāhmaṇa who is not working day and night to spread the glories of the Lord should feel embarrassed to eat sumptuously for his personal sense gratification, but a renounced Vaiṣṇava preacher may accept invitations from all classes of pious people, and just to bless their homes he will eat the opulent foods they offer to him. Similarly, he sometimes eats sumptuously to get strength for defeating atheists and impersonalists. As stated in Vedic literature, one cannot be a highly qualified brāhmaṇa unless one becomes a devotee of the Lord. And among the devotees, those who are preaching Kṛṣṇa consciousness are the best, as confirmed by the Lord Himself in the Eighteenth Chapter of Bhagavad-gītā.
+

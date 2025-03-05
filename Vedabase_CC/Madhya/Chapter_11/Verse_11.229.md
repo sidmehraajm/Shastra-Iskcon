@@ -1,0 +1,22 @@
+# CC Madhya 11.229
+
+**Bengali:**
+
+মধ্যে রহি’ মহাপ্রভু করেন দরশন ।
+তাহাঁ এক ঐশ্বর্য তাঁর হইল প্রকটন ॥ ২২৯ ॥
+
+**Transliteration:**
+
+madhye rahi’ mahāprabhu karena daraśana
+tāhāṅ eka aiśvarya tāṅra ha-ila prakaṭana
+
+**Synonyms:**
+
+Synonyms
+madhye rahi’ — keeping in the middle; mahāprabhu — Śrī Caitanya Mahāprabhu; karena daraśana — looks over; tāhāṅ — there; eka — one; aiśvarya — miracle; tāṅra — of Him; ha-ila — became; prakaṭana — exhibited.
+
+**Translation:**
+
+Translation
+While this dancing was going on, Śrī Caitanya Mahāprabhu watched them and performed a miracle.
+

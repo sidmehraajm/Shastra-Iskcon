@@ -1,0 +1,813 @@
+
+--- Processing Adi Lila: https://vedabase.io/en/library/cc/adi/ ---
+
+--- Processing Antya Lila: https://vedabase.io/en/library/cc/antya/ ---
+Found 20 chapters in Antya Lila.
+Loading Chapter 1 of Antya: https://vedabase.io/en/library/cc/antya/1/
+Found 221 verses in Antya Chapter 1.
+Scraping: CC Antya 1.1
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.1.md
+Scraping: CC Antya 1.2
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.2.md
+Scraping: CC Antya 1.3-4
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.3-4.md
+Scraping: CC Antya 1.5
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.5.md
+Scraping: CC Antya 1.6
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.6.md
+Scraping: CC Antya 1.7
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.7.md
+Scraping: CC Antya 1.8
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.8.md
+Scraping: CC Antya 1.9
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.9.md
+Scraping: CC Antya 1.10
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.10.md
+Scraping: CC Antya 1.11
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.11.md
+Scraping: CC Antya 1.12
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.12.md
+Scraping: CC Antya 1.13
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.13.md
+Scraping: CC Antya 1.14
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.14.md
+Scraping: CC Antya 1.15
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.15.md
+Scraping: CC Antya 1.16
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.16.md
+Scraping: CC Antya 1.17
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.17.md
+Scraping: CC Antya 1.18
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.18.md
+Scraping: CC Antya 1.19
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.19.md
+Scraping: CC Antya 1.20
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.20.md
+Scraping: CC Antya 1.21
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.21.md
+Scraping: CC Antya 1.22
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.22.md
+Scraping: CC Antya 1.23
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.23.md
+Scraping: CC Antya 1.24
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.24.md
+Scraping: CC Antya 1.25
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.25.md
+Scraping: CC Antya 1.26
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.26.md
+Scraping: CC Antya 1.27
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.27.md
+Scraping: CC Antya 1.28
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.28.md
+Scraping: CC Antya 1.29
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.29.md
+Scraping: CC Antya 1.30
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.30.md
+Scraping: CC Antya 1.31
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.31.md
+Scraping: CC Antya 1.32
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.32.md
+Scraping: CC Antya 1.33
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.33.md
+Scraping: CC Antya 1.34
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.34.md
+Scraping: CC Antya 1.35
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.35.md
+Scraping: CC Antya 1.36
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.36.md
+Scraping: CC Antya 1.37
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.37.md
+Scraping: CC Antya 1.38
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.38.md
+Scraping: CC Antya 1.39
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.39.md
+Scraping: CC Antya 1.40
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.40.md
+Scraping: CC Antya 1.41
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.41.md
+Scraping: CC Antya 1.42
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.42.md
+Scraping: CC Antya 1.43
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.43.md
+Scraping: CC Antya 1.44
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.44.md
+Scraping: CC Antya 1.45
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.45.md
+Scraping: CC Antya 1.46
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.46.md
+Scraping: CC Antya 1.47
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.47.md
+Scraping: CC Antya 1.48
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.48.md
+Scraping: CC Antya 1.49
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.49.md
+Scraping: CC Antya 1.50
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.50.md
+Scraping: CC Antya 1.51
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.51.md
+Scraping: CC Antya 1.52
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.52.md
+Scraping: CC Antya 1.53
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.53.md
+Scraping: CC Antya 1.54
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.54.md
+Scraping: CC Antya 1.55
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.55.md
+Scraping: CC Antya 1.56
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.56.md
+Scraping: CC Antya 1.57
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.57.md
+Scraping: CC Antya 1.58
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.58.md
+Scraping: CC Antya 1.59
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.59.md
+Scraping: CC Antya 1.60
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.60.md
+Scraping: CC Antya 1.61
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.61.md
+Scraping: CC Antya 1.62
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.62.md
+Scraping: CC Antya 1.63
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.63.md
+Scraping: CC Antya 1.64
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.64.md
+Scraping: CC Antya 1.65
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.65.md
+Scraping: CC Antya 1.66
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.66.md
+Scraping: CC Antya 1.67
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.67.md
+Scraping: CC Antya 1.68
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.68.md
+Scraping: CC Antya 1.69
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.69.md
+Scraping: CC Antya 1.70
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.70.md
+Scraping: CC Antya 1.71
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.71.md
+Scraping: CC Antya 1.72
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.72.md
+Scraping: CC Antya 1.73
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.73.md
+Scraping: CC Antya 1.74
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.74.md
+Scraping: CC Antya 1.75
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.75.md
+Scraping: CC Antya 1.76
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.76.md
+Scraping: CC Antya 1.77
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.77.md
+Scraping: CC Antya 1.78
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.78.md
+Scraping: CC Antya 1.79
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.79.md
+Scraping: CC Antya 1.80
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.80.md
+Scraping: CC Antya 1.81
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.81.md
+Scraping: CC Antya 1.82
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.82.md
+Scraping: CC Antya 1.83
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.83.md
+Scraping: CC Antya 1.84
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.84.md
+Scraping: CC Antya 1.85
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.85.md
+Scraping: CC Antya 1.86
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.86.md
+Scraping: CC Antya 1.87
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.87.md
+Scraping: CC Antya 1.88
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.88.md
+Scraping: CC Antya 1.89
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.89.md
+Scraping: CC Antya 1.90
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.90.md
+Scraping: CC Antya 1.91
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.91.md
+Scraping: CC Antya 1.92
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.92.md
+Scraping: CC Antya 1.93
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.93.md
+Scraping: CC Antya 1.94
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.94.md
+Scraping: CC Antya 1.95
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.95.md
+Scraping: CC Antya 1.96
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.96.md
+Scraping: CC Antya 1.97
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.97.md
+Scraping: CC Antya 1.98
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.98.md
+Scraping: CC Antya 1.99
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.99.md
+Scraping: CC Antya 1.100
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.100.md
+Scraping: CC Antya 1.101
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.101.md
+Scraping: CC Antya 1.102
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.102.md
+Scraping: CC Antya 1.103-104
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.103-104.md
+Scraping: CC Antya 1.105
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.105.md
+Scraping: CC Antya 1.106
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.106.md
+Scraping: CC Antya 1.107
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.107.md
+Scraping: CC Antya 1.108
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.108.md
+Scraping: CC Antya 1.109
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.109.md
+Scraping: CC Antya 1.110
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.110.md
+Scraping: CC Antya 1.111
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.111.md
+Scraping: CC Antya 1.112
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.112.md
+Scraping: CC Antya 1.113
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.113.md
+Scraping: CC Antya 1.114
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.114.md
+Scraping: CC Antya 1.115
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.115.md
+Scraping: CC Antya 1.116
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.116.md
+Scraping: CC Antya 1.117
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.117.md
+Scraping: CC Antya 1.118
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.118.md
+Scraping: CC Antya 1.119
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.119.md
+Scraping: CC Antya 1.120
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.120.md
+Scraping: CC Antya 1.121
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.121.md
+Scraping: CC Antya 1.122
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.122.md
+Scraping: CC Antya 1.123
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.123.md
+Scraping: CC Antya 1.124
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.124.md
+Scraping: CC Antya 1.125
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.125.md
+Scraping: CC Antya 1.126
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.126.md
+Scraping: CC Antya 1.127
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.127.md
+Scraping: CC Antya 1.128
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.128.md
+Scraping: CC Antya 1.129
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.129.md
+Scraping: CC Antya 1.130
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.130.md
+Scraping: CC Antya 1.131
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.131.md
+Scraping: CC Antya 1.132
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.132.md
+Scraping: CC Antya 1.133
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.133.md
+Scraping: CC Antya 1.134
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.134.md
+Scraping: CC Antya 1.135
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.135.md
+Scraping: CC Antya 1.136
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.136.md
+Scraping: CC Antya 1.137
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.137.md
+Scraping: CC Antya 1.138
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.138.md
+Scraping: CC Antya 1.139
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.139.md
+Scraping: CC Antya 1.140
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.140.md
+Scraping: CC Antya 1.141
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.141.md
+Scraping: CC Antya 1.142
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.142.md
+Scraping: CC Antya 1.143
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.143.md
+Scraping: CC Antya 1.144
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.144.md
+Scraping: CC Antya 1.145
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.145.md
+Scraping: CC Antya 1.146
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.146.md
+Scraping: CC Antya 1.147
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.147.md
+Scraping: CC Antya 1.148
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.148.md
+Scraping: CC Antya 1.149
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.149.md
+Scraping: CC Antya 1.150
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.150.md
+Scraping: CC Antya 1.151
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.151.md
+Scraping: CC Antya 1.152
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.152.md
+Scraping: CC Antya 1.153
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.153.md
+Scraping: CC Antya 1.154
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.154.md
+Scraping: CC Antya 1.155
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.155.md
+Scraping: CC Antya 1.156
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.156.md
+Scraping: CC Antya 1.157
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.157.md
+Scraping: CC Antya 1.158
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.158.md
+Scraping: CC Antya 1.159
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.159.md
+Scraping: CC Antya 1.160
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.160.md
+Scraping: CC Antya 1.161
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.161.md
+Scraping: CC Antya 1.162
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.162.md
+Scraping: CC Antya 1.163
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.163.md
+Scraping: CC Antya 1.164
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.164.md
+Scraping: CC Antya 1.165
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.165.md
+Scraping: CC Antya 1.166
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.166.md
+Scraping: CC Antya 1.167
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.167.md
+Scraping: CC Antya 1.168
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.168.md
+Scraping: CC Antya 1.169
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.169.md
+Scraping: CC Antya 1.170
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.170.md
+Scraping: CC Antya 1.171
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.171.md
+Scraping: CC Antya 1.172
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.172.md
+Scraping: CC Antya 1.173
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.173.md
+Scraping: CC Antya 1.174
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.174.md
+Scraping: CC Antya 1.175
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.175.md
+Scraping: CC Antya 1.176
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.176.md
+Scraping: CC Antya 1.177
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.177.md
+Scraping: CC Antya 1.178
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.178.md
+Scraping: CC Antya 1.179
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.179.md
+Scraping: CC Antya 1.180
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.180.md
+Scraping: CC Antya 1.181
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.181.md
+Scraping: CC Antya 1.182
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.182.md
+Scraping: CC Antya 1.183
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.183.md
+Scraping: CC Antya 1.184
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.184.md
+Scraping: CC Antya 1.185
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.185.md
+Scraping: CC Antya 1.186
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.186.md
+Scraping: CC Antya 1.187
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.187.md
+Scraping: CC Antya 1.188
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.188.md
+Scraping: CC Antya 1.189
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.189.md
+Scraping: CC Antya 1.190
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.190.md
+Scraping: CC Antya 1.191
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.191.md
+Scraping: CC Antya 1.192
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.192.md
+Scraping: CC Antya 1.193
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.193.md
+Scraping: CC Antya 1.194
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.194.md
+Scraping: CC Antya 1.195
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.195.md
+Scraping: CC Antya 1.196
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.196.md
+Scraping: CC Antya 1.197
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.197.md
+Scraping: CC Antya 1.198
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.198.md
+Scraping: CC Antya 1.199
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.199.md
+Scraping: CC Antya 1.200
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.200.md
+Scraping: CC Antya 1.201
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.201.md
+Scraping: CC Antya 1.202
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.202.md
+Scraping: CC Antya 1.203
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.203.md
+Scraping: CC Antya 1.204
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.204.md
+Scraping: CC Antya 1.205
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.205.md
+Scraping: CC Antya 1.206
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.206.md
+Scraping: CC Antya 1.207
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.207.md
+Scraping: CC Antya 1.208
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.208.md
+Scraping: CC Antya 1.209
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.209.md
+Scraping: CC Antya 1.210
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.210.md
+Scraping: CC Antya 1.211
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.211.md
+Scraping: CC Antya 1.212
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.212.md
+Scraping: CC Antya 1.213
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.213.md
+Scraping: CC Antya 1.214
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.214.md
+Scraping: CC Antya 1.215
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.215.md
+Scraping: CC Antya 1.216
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.216.md
+Scraping: CC Antya 1.217
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.217.md
+Scraping: CC Antya 1.218
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.218.md
+Scraping: CC Antya 1.219
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.219.md
+Scraping: CC Antya 1.220
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.220.md
+Scraping: CC Antya 1.221
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.221.md
+Scraping: CC Antya 1.222
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.222.md
+Scraping: CC Antya 1.223
+Loading Chapter 2 of Antya: https://vedabase.io/en/library/cc/antya/2/
+Saved: Vedabase_CC/Antya/Chapter_1/Verse_1.223.md
+Found 167 verses in Antya Chapter 2.
+Scraping: CC Antya 2.1
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.1.md
+Scraping: CC Antya 2.2
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.2.md
+Scraping: CC Antya 2.3
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.3.md
+Scraping: CC Antya 2.4
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.4.md
+Scraping: CC Antya 2.5-6
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.5-6.md
+Scraping: CC Antya 2.7
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.7.md
+Scraping: CC Antya 2.8
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.8.md
+Scraping: CC Antya 2.9
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.9.md
+Scraping: CC Antya 2.10
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.10.md
+Scraping: CC Antya 2.11
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.11.md
+Scraping: CC Antya 2.12
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.12.md
+Scraping: CC Antya 2.13
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.13.md
+Scraping: CC Antya 2.14
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.14.md
+Scraping: CC Antya 2.15
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.15.md
+Scraping: CC Antya 2.16
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.16.md
+Scraping: CC Antya 2.17
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.17.md
+Scraping: CC Antya 2.18
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.18.md
+Scraping: CC Antya 2.19
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.19.md
+Scraping: CC Antya 2.20
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.20.md
+Scraping: CC Antya 2.21
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.21.md
+Scraping: CC Antya 2.22
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.22.md
+Scraping: CC Antya 2.23
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.23.md
+Scraping: CC Antya 2.24-25
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.24-25.md
+Scraping: CC Antya 2.26
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.26.md
+Scraping: CC Antya 2.27
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.27.md
+Scraping: CC Antya 2.28
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.28.md
+Scraping: CC Antya 2.29
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.29.md
+Scraping: CC Antya 2.30
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.30.md
+Scraping: CC Antya 2.31
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.31.md
+Scraping: CC Antya 2.32
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.32.md
+Scraping: CC Antya 2.33
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.33.md
+Scraping: CC Antya 2.34-35
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.34-35.md
+Scraping: CC Antya 2.36
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.36.md
+Scraping: CC Antya 2.37
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.37.md
+Scraping: CC Antya 2.38
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.38.md
+Scraping: CC Antya 2.39
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.39.md
+Scraping: CC Antya 2.40
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.40.md
+Scraping: CC Antya 2.41
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.41.md
+Scraping: CC Antya 2.42
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.42.md
+Scraping: CC Antya 2.43
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.43.md
+Scraping: CC Antya 2.44
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.44.md
+Scraping: CC Antya 2.45
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.45.md
+Scraping: CC Antya 2.46
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.46.md
+Scraping: CC Antya 2.47
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.47.md
+Scraping: CC Antya 2.48-49
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.48-49.md
+Scraping: CC Antya 2.50
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.50.md
+Scraping: CC Antya 2.51
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.51.md
+Scraping: CC Antya 2.52
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.52.md
+Scraping: CC Antya 2.53
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.53.md
+Scraping: CC Antya 2.54
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.54.md
+Scraping: CC Antya 2.55
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.55.md
+Scraping: CC Antya 2.56
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.56.md
+Scraping: CC Antya 2.57
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.57.md
+Scraping: CC Antya 2.58
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.58.md
+Scraping: CC Antya 2.59
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.59.md
+Scraping: CC Antya 2.60
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.60.md
+Scraping: CC Antya 2.61
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.61.md
+Scraping: CC Antya 2.62
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.62.md
+Scraping: CC Antya 2.63
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.63.md
+Scraping: CC Antya 2.64
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.64.md
+Scraping: CC Antya 2.65
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.65.md
+Scraping: CC Antya 2.66
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.66.md
+Scraping: CC Antya 2.67
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.67.md
+Scraping: CC Antya 2.68
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.68.md
+Scraping: CC Antya 2.69
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.69.md
+Scraping: CC Antya 2.70
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.70.md
+Scraping: CC Antya 2.71
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.71.md
+Scraping: CC Antya 2.72
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.72.md
+Scraping: CC Antya 2.73
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.73.md
+Scraping: CC Antya 2.74
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.74.md
+Scraping: CC Antya 2.75
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.75.md
+Scraping: CC Antya 2.76
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.76.md
+Scraping: CC Antya 2.77
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.77.md
+Scraping: CC Antya 2.78
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.78.md
+Scraping: CC Antya 2.79
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.79.md
+Scraping: CC Antya 2.80
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.80.md
+Scraping: CC Antya 2.81
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.81.md
+Scraping: CC Antya 2.82
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.82.md
+Scraping: CC Antya 2.83
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.83.md
+Scraping: CC Antya 2.84
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.84.md
+Scraping: CC Antya 2.85
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.85.md
+Scraping: CC Antya 2.86
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.86.md
+Scraping: CC Antya 2.87
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.87.md
+Scraping: CC Antya 2.88
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.88.md
+Scraping: CC Antya 2.89
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.89.md
+Scraping: CC Antya 2.90
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.90.md
+Scraping: CC Antya 2.91
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.91.md
+Scraping: CC Antya 2.92
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.92.md
+Scraping: CC Antya 2.93
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.93.md
+Scraping: CC Antya 2.94
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.94.md
+Scraping: CC Antya 2.95
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.95.md
+Scraping: CC Antya 2.96
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.96.md
+Scraping: CC Antya 2.97
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.97.md
+Scraping: CC Antya 2.98
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.98.md
+Scraping: CC Antya 2.99
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.99.md
+Scraping: CC Antya 2.100
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.100.md
+Scraping: CC Antya 2.101
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.101.md
+Scraping: CC Antya 2.102
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.102.md
+Scraping: CC Antya 2.103
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.103.md
+Scraping: CC Antya 2.104
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.104.md
+Scraping: CC Antya 2.105
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.105.md
+Scraping: CC Antya 2.106
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.106.md
+Scraping: CC Antya 2.107
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.107.md
+Scraping: CC Antya 2.108
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.108.md
+Scraping: CC Antya 2.109
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.109.md
+Scraping: CC Antya 2.110
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.110.md
+Scraping: CC Antya 2.111
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.111.md
+Scraping: CC Antya 2.112
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.112.md
+Scraping: CC Antya 2.113
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.113.md
+Scraping: CC Antya 2.114
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.114.md
+Scraping: CC Antya 2.115
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.115.md
+Scraping: CC Antya 2.116
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.116.md
+Scraping: CC Antya 2.117
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.117.md
+Scraping: CC Antya 2.118
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.118.md
+Scraping: CC Antya 2.119
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.119.md
+Scraping: CC Antya 2.120
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.120.md
+Scraping: CC Antya 2.121
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.121.md
+Scraping: CC Antya 2.122
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.122.md
+Scraping: CC Antya 2.123
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.123.md
+Scraping: CC Antya 2.124
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.124.md
+Scraping: CC Antya 2.125
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.125.md
+Scraping: CC Antya 2.126
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.126.md
+Scraping: CC Antya 2.127
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.127.md
+Scraping: CC Antya 2.128
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.128.md
+Scraping: CC Antya 2.129
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.129.md
+Scraping: CC Antya 2.130
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.130.md
+Scraping: CC Antya 2.131
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.131.md
+Scraping: CC Antya 2.132
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.132.md
+Scraping: CC Antya 2.133
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.133.md
+Scraping: CC Antya 2.134
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.134.md
+Scraping: CC Antya 2.135
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.135.md
+Scraping: CC Antya 2.136
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.136.md
+Scraping: CC Antya 2.137
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.137.md
+Scraping: CC Antya 2.138
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.138.md
+Scraping: CC Antya 2.139
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.139.md
+Scraping: CC Antya 2.140
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.140.md
+Scraping: CC Antya 2.141
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.141.md
+Scraping: CC Antya 2.142
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.142.md
+Scraping: CC Antya 2.143
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.143.md
+Scraping: CC Antya 2.144
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.144.md
+Scraping: CC Antya 2.145
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.145.md
+Scraping: CC Antya 2.146
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.146.md
+Scraping: CC Antya 2.147
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.147.md
+Scraping: CC Antya 2.148
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.148.md
+Scraping: CC Antya 2.149
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.149.md
+Scraping: CC Antya 2.150
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.150.md
+Scraping: CC Antya 2.151
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.151.md
+Scraping: CC Antya 2.152
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.152.md
+Scraping: CC Antya 2.153-154
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.153-154.md
+Scraping: CC Antya 2.155
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.155.md
+Scraping: CC Antya 2.156
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.156.md
+Scraping: CC Antya 2.157
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.157.md
+Scraping: CC Antya 2.158
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.158.md
+Scraping: CC Antya 2.159
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.159.md
+Scraping: CC Antya 2.160
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.160.md
+Scraping: CC Antya 2.161
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.161.md
+Scraping: CC Antya 2.162
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.162.md
+Scraping: CC Antya 2.163
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.163.md
+Scraping: CC Antya 2.164
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.164.md
+Scraping: CC Antya 2.165
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.165.md
+Scraping: CC Antya 2.166
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.166.md
+Scraping: CC Antya 2.167
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.167.md
+Scraping: CC Antya 2.168
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.168.md
+Scraping: CC Antya 2.169
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.169.md
+Scraping: CC Antya 2.170
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.170.md
+Scraping: CC Antya 2.171
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.171.md
+Scraping: CC Antya 2.172
+Loading Chapter 3 of Antya: https://vedabase.io/en/library/cc/antya/3/
+Saved: Vedabase_CC/Antya/Chapter_2/Verse_2.172.md
+Found 268 verses in Antya Chapter 3.
+Scraping: CC Antya 3.1
+Saved: Vedabase_CC/Antya/Chapter_3/Verse_3.1.md
+Scraping: CC Antya 3.2
+Saved: Vedabase_CC/Antya/Chapter_3/Verse_3.2.md
+Scraping: CC Antya 3.3
+Saved: Vedabase_CC/Antya/Chapter_3/Verse_3.3.md
+Scraping: CC Antya 3.4-5
+Saved: Vedabase_CC/Antya/Chapter_3/Verse_3.4-5.md
+Scraping: CC Antya 3.6
+Saved: Vedabase_CC/Antya/Chapter_3/Verse_3.6.md
+Scraping: CC Antya 3.7
+Saved: Vedabase_CC/Antya/Chapter_3/Verse_3.7.md
+Scraping: CC Antya 3.8
+Saved: Vedabase_CC/Antya/Chapter_3/Verse_3.8.md
+Scraping: CC Antya 3.9
+Saved: Vedabase_CC/Antya/Chapter_3/Verse_3.9.md
+Scraping: CC Antya 3.10
+Saved: Vedabase_CC/Antya/Chapter_3/Verse_3.10.md
+Scraping: CC Antya 3.11
+Saved: Vedabase_CC/Antya/Chapter_3/Verse_3.11.md
+Scraping: CC Antya 3.12
+Saved: Vedabase_CC/Antya/Chapter_3/Verse_3.12.md
+Scraping: CC Antya 3.13
+Saved: Vedabase_CC/Antya/Chapter_3/Verse_3.13.md
+Scraping: CC Antya 3.14
+Saved: Vedabase_CC/Antya/Chapter_3/Verse_3.14.md

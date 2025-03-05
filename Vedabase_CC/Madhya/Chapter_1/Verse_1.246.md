@@ -1,0 +1,22 @@
+# CC Madhya 1.246
+
+**Bengali:**
+
+ছয় বৎসর ঐছে প্রভু করিলা বিলাস ।
+কভু ইতি-উতি, কভু ক্ষেত্রবাস ॥ ২৪৬ ॥
+
+**Transliteration:**
+
+chaya vatsara aiche prabhu karilā vilāsa
+kabhu iti-uti, kabhu kṣetra-vāsa
+
+**Synonyms:**
+
+Synonyms
+chaya vatsara — six years; aiche — in that way; prabhu — the Lord; karilā — did; vilāsa — pastimes; kabhu — sometimes; iti-uti — here and there; kabhu — sometimes; kṣetra-vāsa — residing at Jagannātha Purī.
+
+**Translation:**
+
+Translation
+The Lord traveled all over India for six years. He was sometimes here and sometimes there, performing His transcendental pastimes, and sometimes He remained at Jagannātha Purī.
+

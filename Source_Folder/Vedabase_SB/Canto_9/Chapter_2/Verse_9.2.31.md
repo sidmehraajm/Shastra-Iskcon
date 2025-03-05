@@ -1,0 +1,24 @@
+# ŚB 9.2.31
+
+**Sanskrit:**
+
+तं भेजेऽलम्बुषा देवी भजनीयगुणालयम् ।
+वराप्सरा यत: पुत्रा: कन्या चेलविलाभवत् ॥ ३१ ॥
+
+**Transliteration:**
+
+taṁ bheje ’lambuṣā devī
+bhajanīya-guṇālayam
+varāpsarā yataḥ putrāḥ
+kanyā celavilābhavat
+
+**Synonyms:**
+
+Synonyms
+tam — him (Tṛṇabindu); bheje — accepted as husband; alambuṣā — the girl Alambuṣā; devī — goddess; bhajanīya — worthy of accepting; guṇa-ālayam — the reservoir of all good qualities; vara-apsarāḥ — the best of the Apsarās; yataḥ — from whom (Tṛṇabindu); putrāḥ — some sons; kanyā — a daughter; ca — and; ilavilā — named Ilavilā; abhavat — was born.
+
+**Translation:**
+
+Translation
+The best of the Apsarās, the highly qualified girl named Alambuṣā, accepted the similarly qualified Tṛṇabindu as her husband. She gave birth to a few sons and a daughter known as Ilavilā.
+

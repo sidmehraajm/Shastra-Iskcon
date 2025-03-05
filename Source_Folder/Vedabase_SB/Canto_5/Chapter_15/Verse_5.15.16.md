@@ -1,0 +1,31 @@
+# ŚB 5.15.16
+
+**Sanskrit:**
+
+तत्रायं श्लोक:—
+प्रैयव्रतं वंशमिमं विरजश्चरमोद्भ‍व: । अकरोदत्यलं कीर्त्या विष्णु: सुरगणं यथा ॥ १६ ॥
+
+**Transliteration:**
+
+tatrāyaṁ ślokaḥ —
+praiyavrataṁ vaṁśam imaṁ
+virajaś caramodbhavaḥ
+akarod aty-alaṁ kīrtyā
+viṣṇuḥ sura-gaṇaṁ yathā
+
+**Synonyms:**
+
+Synonyms
+tatra — in that connection; ayam ślokaḥ — there is this famous verse; praiyavratam — coming from King Priyavrata; vaṁśam — the dynasty; imam — this; virajaḥ — King Viraja; carama-udbhavaḥ — the source of one hundred sons (headed by Śatajit); akarot — decorated; ati-alam — very greatly; kīrtyā — by his reputation; viṣṇuḥ — Lord Viṣṇu, the Supreme Personality of Godhead; sura-gaṇam — the demigods; yathā — just as.
+
+**Translation:**
+
+Translation
+There is a famous verse about King Viraja. “Because of his high qualities and wide fame, King Viraja became the jewel of the dynasty of King Priyavrata, just as Lord Viṣṇu, by His transcendental potency, decorates and blesses the demigods.”
+
+**Purport:**
+
+Purport
+Within a garden, a flowering tree attains a good reputation because of its fragrant flowers. Similarly, if there is a famous man in a family, he is compared to a fragrant flower in a forest. Because of him, an entire family can become famous in history. Because Lord Kṛṣṇa took birth in the Yadu dynasty, the Yadu dynasty and the Yādavas have remained famous for all time. Because of King Viraja’s appearance, the family of Mahārāja Priyavrata has remained famous for all time.
+Thus end the Bhaktivedanta purports of the Fifth Canto, Fifteenth Chapter, of the Śrīmad-Bhāgavatam, entitled “The Glories of the Descendants of King Priyavrata.”
+

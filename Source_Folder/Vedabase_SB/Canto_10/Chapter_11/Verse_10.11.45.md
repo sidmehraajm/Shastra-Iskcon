@@ -1,0 +1,29 @@
+# ŚB 10.11.45
+
+**Sanskrit:**
+
+तौ वत्सपालकौ भूत्वा सर्वलोकैकपालकौ ।
+सप्रातराशौ गोवत्सांश्चारयन्तौ विचेरतु: ॥ ४५ ॥
+
+**Transliteration:**
+
+tau vatsa-pālakau bhūtvā
+sarva-lokaika-pālakau
+saprātar-āśau go-vatsāṁś
+cārayantau viceratuḥ
+
+**Synonyms:**
+
+Synonyms
+tau — Kṛṣṇa and Balarāma; vatsa-pālakau — as if taking care of the calves; bhūtvā — so becoming; sarva-loka-eka-pālakau — although They are the maintainers of all living beings throughout the whole universe; sa-prātaḥ-āśau — finishing breakfast in the morning; go-vatsān — all the calves; cārayantau — tending; viceratuḥ — wandered here and there.
+
+**Translation:**
+
+Translation
+After the killing of the demon, Kṛṣṇa and Balarāma finished Their breakfast in the morning, and while continuing to take care of the calves, They wandered here and there. Kṛṣṇa and Balarāma, the Supreme Personalities of Godhead, who maintain the entire creation, now took charge of the calves as if cowherd boys.
+
+**Purport:**
+
+Purport
+Paritrāṇāya sādhūnāṁ vināśāya ca duṣkṛtām. Kṛṣṇa’s daily business here in this material world was to kill the duṣkṛtīs. This did not hamper His daily affairs, for it was routine work. While He tended the calves on the bank of the river Yamunā, two or three incidents took place every day, and although these were serious, killing the demons one after another appeared to be His daily routine work.
+

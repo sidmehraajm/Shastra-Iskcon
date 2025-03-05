@@ -1,0 +1,29 @@
+# ŚB 4.1.39
+
+**Sanskrit:**
+
+क्रतोरपि क्रिया भार्या वालखिल्यानसूयत ।
+ऋषीन्षष्टिसहस्राणि ज्वलतो ब्रह्मतेजसा ॥ ३९ ॥
+
+**Transliteration:**
+
+krator api kriyā bhāryā
+vālakhilyān asūyata
+ṛṣīn ṣaṣṭi-sahasrāṇi
+jvalato brahma-tejasā
+
+**Synonyms:**
+
+Synonyms
+kratoḥ — of the great sage Kratu; api — also; kriyā — Kriyā; bhāryā — wife; vālakhilyān — just like Vālakhilya; asūyata — begot; ṛṣīn — sages; ṣaṣṭi — sixty; sahasrāṇi — thousand; jvalataḥ — very brilliant; brahma-tejasā — by dint of the Brahman effulgence.
+
+**Translation:**
+
+Translation
+Kratu’s wife, Kriyā, gave birth to sixty thousand great sages, named the Vālakhilyas. All these sages were greatly advanced in spiritual knowledge, and their bodies were illuminated by such knowledge.
+
+**Purport:**
+
+Purport
+Kriyā was the sixth daughter of Kardama Muni, and she produced sixty thousand sages, who were known as the Vālakhilyas because they all retired from family life as vānaprasthas.
+

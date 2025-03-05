@@ -1,0 +1,61 @@
+# ŚB 10.87.28
+
+**Sanskrit:**
+
+त्वमकरण: स्वराडखिलकारकशक्तिधर-
+स्तव बलिमुद्वहन्ति समदन्त्यजयानिमिषा: ।
+वर्षभुजोऽखिलक्षितिपतेरिव विश्वसृजो
+विदधति यत्र ये त्वधिकृता भवतश्चकिता: ॥ २८ ॥
+
+**Transliteration:**
+
+tvam akaraṇaḥ sva-rāḍ akhila-kāraka-śakti-dharas
+tava balim udvahanti samadanty ajayānimiṣāḥ
+varṣa-bhujo ’khila-kṣiti-pater iva viśva-sṛjo
+vidadhati yatra ye tv adhikṛtā bhavataś cakitāḥ
+
+**Synonyms:**
+
+Synonyms
+tvam — You; akaraṇaḥ — devoid of material senses; sva-rāṭ — self-effulgent; akhila — of all; kāraka — sensory functions; śakti — of the potencies; dharaḥ — the maintainer; tava — Your; balim — tribute; udvahanti — carry; samadanti — and partake of; ajayā — along with material nature; animiṣāḥ — the demigods; varṣa — of districts of a kingdom; bhujaḥ — the rulers; akhila — entire; kṣiti — of the land; pateḥ — of the lord; iva — as if; viśva — of the universe; sṛjaḥ — the creators; vidadhati — execute; yatra — in which; ye — they; tu — indeed; adhikṛtā — assigned; bhavataḥ — of You; cakitāḥ — afraid.
+
+**Translation:**
+
+Translation
+Though You have no material senses, You are the self-effulgent sustainer of everyone’s sensory powers. The demigods and material nature herself offer You tribute, while also enjoying the tribute offered them by their worshipers, just as subordinate rulers of various districts in a kingdom offer tribute to their lord, the ultimate proprietor of the land, while also enjoying the tribute paid them by their own subjects. In this way the universal creators faithfully execute their assigned services out of fear of You.
+
+**Purport:**
+
+Purport
+All intelligent living beings should acknowledge the sovereignty of the Lord and willingly engage in devotional service to Him. Such is the consensus of the personified Vedas. But Lord Nārāyaṇa, while hearing these prayers, may have reasonably asked, “Since I also have a bodily form with sense organs and limbs, am I not just another doer and enjoyer? Especially since as the Supersoul in every being’s heart I supervise countless organs and limbs, how am I not implicated in the sum total of everyone’s sense gratification?” “No,” the assembled śrutis here rejoin, “You have no material senses, yet You are the absolute controller of all.” As expressed in the Śvetāśvatara Upaniṣad (3.19):
+apāṇi-pādo javano grahītā
+paśyaty acakṣuḥ sa śṛṇoty akarṇaḥ
+sa vetti vedyaṁ na ca tasya vettā
+tam āhur agryaṁ puruṣaṁ purāṇam
+“He has no feet or hands, yet He is the swiftest runner and can grasp anything. Though without eyes or ears, He sees and hears. Nobody knows Him, yet He is the knower and the object of knowledge. Sages describe Him as the supreme, original Personality of Godhead.”
+The hands, feet, eyes and ears of the Supreme Person are not like those of an ordinary, conditioned soul, which are derived from false ego, a material substance. Rather, the Lord’s transcendentally beautiful features are direct manifestations of His internal nature. Thus, unlike the soul and body of conditioned living beings, the Lord and His bodily form are identical in all respects. Moreover, His lotus hands, lotus feet, lotus eyes and other limbs are not restricted in their functions. Śrī Brahmā, the Lord’s first creature, glorifies Him on this account:
+angāni yasya sakalendriya-vṛttimanti
+paśyanti pānti kalayanti ciraṁ jaganti
+ānanda-cinmaya-sad-ujjvala-vigrahasya
+govindam ādi-puruṣam tam ahaṁ bhajāmi
+“I worship Govinda, the primeval Lord, whose transcendental form is full of bliss, truth and substantiality and thus emanates the most dazzling splendor. Each of the limbs of that transcendental figure possesses in itself the full-fledged functions of all the organs, and He eternally sees, maintains and manifests the infinite universes, both spiritual and material.” (Brahma-saṁhitā 5.32)
+Śrīla Viśvanātha Cakravartī gives an alternative explanation of the phrase akhila-śakti-dhara: The power that the Supreme Lord maintains within Himself is akhila, free from the limitations of all that is khila, or inferior and insignificant. He energizes the living being’s senses, as described by the Kena Upaniṣad (1.2): Śrotrasya śrotraṁ manaso mano yad vāco ha vācam. “He is the ear’s ear, the mind’s mind, and the voice’s capacity of speech.” And the Śvetāśvatara Upaniṣad (6.8) declares:
+na tasya kāryaṁ karaṇaṁ ca vidyate
+na tat-samaś cābhyadhikaś ca dṛśyate
+parāsya śaktir vividhaiva śrūyate
+svābhāvikī jñāna-bala-kriyā ca
+“He has no material work to perform, nor any material senses with which to perform it. No one can be found who is equal to or greater than Him. From the Vedas we hear how that Supreme Lord possesses multifarious energies — the potencies of knowledge, strength and action — each of which acts autonomously.”
+Indra and the other demigods who rule over mortal beings are themselves servants of the Personality of Godhead, as are their superiors — Brahmā and his sons, the secondary creators. All of these great gods and sages worship the Supreme Lord by performing their respective services of managing the universe and providing religious guidance for mankind.
+The powerful controllers of the universe submit themselves in fearful reverence to the supreme controller, Lord Śrī Viṣṇu. As the Taittirīya Upaniṣad (2.8.1) states:
+bhīṣāsmād vātaḥ pavate
+bhīṣād eti sūryaḥ
+bhīṣāsmād agniś cendraś ca
+mṛtyur dhāvati pañcamaḥ
+“Out of fear of Him, the wind blows. Out fear of Him, the sun moves and Agni and Indra execute their duties. And death, the fifth of their number, races along out of fear of Him.”
+Śrīla Śrīdhara Svāmī prays:
+anindriyo ’pi yo devaḥ
+sarva-kāraka-śakti-dhṛk
+sarva-jñaḥ sarva-kartā ca
+sarva-sevyaṁ namāmi tam
+“The Supreme Lord has no material senses, yet He controls every living entity’s sensory functions. He is the knower of everything, the ultimate performer of all action, and everyone’s proper object of devotional service. I offer my obeisances to Him.”
+

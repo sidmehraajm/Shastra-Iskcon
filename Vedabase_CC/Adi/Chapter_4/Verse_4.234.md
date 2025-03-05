@@ -1,0 +1,22 @@
+# CC Ādi 4.234
+
+**Bengali:**
+
+এ সব সিদ্ধান্ত হয় আম্রের পল্লব ।
+ভক্তগণ–কোকিলের সর্বদা বল্লভ ॥ ২৩৪ ॥
+
+**Transliteration:**
+
+e saba siddhānta haya āmrera pallava
+bhakta-gaṇa-kokilera sarvadā vallabha
+
+**Synonyms:**
+
+Synonyms
+e — these; saba — all; siddhānta — transcendental conclusions; haya — are; āmrera — of mango; pallava — twigs; bhakta-gaṇa — the devotees; kokilera — to those who are just like cuckoo birds; sarvadā — always; vallabha — pleasing.
+
+**Translation:**
+
+Translation
+All these conclusions are like the newly grown twigs of a mango tree; they are always pleasing to the devotees, who in this way resemble cuckoo birds.
+

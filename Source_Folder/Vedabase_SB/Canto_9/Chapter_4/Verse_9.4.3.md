@@ -1,0 +1,29 @@
+# ŚB 9.4.3
+
+**Sanskrit:**
+
+इमे अङ्गिरस: सत्रमासतेऽद्य सुमेधस: ।
+षष्ठं षष्ठमुपेत्याह: कवे मुह्यन्ति कर्मणि ॥ ३ ॥
+
+**Transliteration:**
+
+ime aṅgirasaḥ satram
+āsate ’dya sumedhasaḥ
+ṣaṣṭhaṁ ṣaṣṭham upetyāhaḥ
+kave muhyanti karmaṇi
+
+**Synonyms:**
+
+Synonyms
+ime — all these; aṅgirasaḥ — descendants of the dynasty of Aṅgirā; satram — sacrifice; āsate — are performing; adya — today; sumedhasaḥ — who are all very intelligent; ṣaṣṭham — sixth; ṣaṣṭham — sixth; upetya — after achieving; ahaḥ — day; kave — O best of learned men; muhyanti — become bewildered; karmaṇi — in discharging fruitive activities.
+
+**Translation:**
+
+Translation
+Nābhāga’s father said: All the descendants of Aṅgirā are now going to perform a great sacrifice, but although they are very intelligent, on every sixth day they will be bewildered in performing sacrifice and will make mistakes in their daily duties.
+
+**Purport:**
+
+Purport
+Nābhāga was very simple hearted. Therefore when he went to his father, the father, out of compassion for his son, suggested that as a means of livelihood Nābhāga could go to the descendants of Aṅgirā and take advantage of their misgivings in performing yajña.
+

@@ -1,0 +1,30 @@
+# ŚB 8.18.9-10
+
+**Sanskrit:**
+
+सिद्धविद्याधरगणा: सकिम्पुरुषकिन्नरा: ।
+चारणा यक्षरक्षांसि सुपर्णा भुजगोत्तमा: ॥ ९ ॥
+गायन्तोऽतिप्रशंसन्तो नृत्यन्तो विबुधानुगा: ।
+अदित्या आश्रमपदं कुसुमै: समवाकिरन् ॥ १० ॥
+
+**Transliteration:**
+
+siddha-vidyādhara-gaṇāḥ
+sakimpuruṣa-kinnarāḥ
+cāraṇā yakṣa-rakṣāṁsi
+suparṇā bhujagottamāḥ
+gāyanto ’tipraśaṁsanto
+nṛtyanto vibudhānugāḥ
+adityā āśrama-padaṁ
+kusumaiḥ samavākiran
+
+**Synonyms:**
+
+Synonyms
+siddha — the inhabitants of Siddhaloka; vidyādhara-gaṇāḥ — the inhabitants of Vidyādhara-loka; sa — with; kimpuruṣa — the inhabitants of Kimpuruṣa-loka; kinnarāḥ — the inhabitants of Kinnaraloka; cāraṇāḥ — the inhabitants of Cāraṇaloka; yakṣa — the Yakṣas; rakṣāṁsi — the Rākṣasas; suparṇāḥ — the Suparṇas; bhujaga-uttamāḥ — the best of the inhabitants of the serpent loka; gāyantaḥ — glorifying the Lord; ati-praśaṁsantaḥ — praising the Lord; nṛtyantaḥ — dancing; vibudha-anugāḥ — the followers of the demigods; adityāḥ — of Aditi; āśrama-padam — the place of residence; kusumaiḥ — by flowers; samavākiran — covered.
+
+**Translation:**
+
+Translation
+The Siddhas, Vidyādharas, Kimpuruṣas, Kinnaras, Cāraṇas, Yakṣas, Rākṣasas, Suparṇas, the best of serpents, and the followers of the demigods all showered flowers on Aditi’s residence, covering the entire house, while glorifying and praising the Lord and dancing.
+

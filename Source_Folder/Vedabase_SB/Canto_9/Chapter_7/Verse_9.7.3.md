@@ -1,0 +1,24 @@
+# ŚB 9.7.3
+
+**Sanskrit:**
+
+गन्धर्वानवधीत् तत्र वध्यान् वै विष्णुशक्तिधृक् ।
+नागाल्लब्धवर: सर्पादभयं स्मरतामिदम् ॥ ३ ॥
+
+**Transliteration:**
+
+gandharvān avadhīt tatra
+vadhyān vai viṣṇu-śakti-dhṛk
+nāgāl labdha-varaḥ sarpād
+abhayaṁ smaratām idam
+
+**Synonyms:**
+
+Synonyms
+gandharvān — the inhabitants of Gandharvaloka; avadhīt — he killed; tatra — there (in the lower region of the universe); vadhyān — who deserved to be killed; vai — indeed; viṣṇu-śakti-dhṛk — being empowered by Lord Viṣṇu; nāgāt — from the Nāgas; labdha-varaḥ — having received a benediction; sarpāt — from the snakes; abhayam — assurances; smaratām — of those who remember; idam — this incident.
+
+**Translation:**
+
+Translation
+There in Rasātala, the lower region of the universe, Purukutsa, being empowered by Lord Viṣṇu, was able to kill all the Gandharvas who deserved to be killed. Purukutsa received the benediction from the serpents that anyone who remembers this history of his being brought by Narmadā to the lower region of the universe will be assured of safety from the attack of snakes.
+

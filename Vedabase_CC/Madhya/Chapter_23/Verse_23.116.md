@@ -1,0 +1,53 @@
+# CC Madhya 23.116
+
+**Bengali:**
+
+হরিবংশে কহিয়াছে গোলোকে নিত্যস্থিতি ।
+ইন্দ্র আসি’ করিল যবে শ্রীকৃষ্ণেরে স্তুতি ॥ ১১৬ ॥
+
+**Transliteration:**
+
+hari-vaṁśe kahiyāche goloke nitya-sthiti
+indra āsi’ karila yabe śrī-kṛṣṇere stuti
+
+**Synonyms:**
+
+Synonyms
+hari-vaṁśe — the revealed scripture known as Hari-vaṁśa; goloke — on the planet called Goloka; nitya-sthiti — the eternal situation; indra — King Indra of the heavenly planets; āsi’ — coming; karila — offered; yabe — when; śrī-kṛṣṇere stuti — prayers to Lord Śrī Kṛṣṇa.
+
+**Translation:**
+
+Translation
+In the revealed scripture Hari-vaṁśa, there is a description of Goloka Vṛndāvana, the planet where Lord Śrī Kṛṣṇa eternally resides. This information was given by King Indra when he surrendered to Kṛṣṇa and offered prayers after Kṛṣṇa had raised Govardhana Hill.
+
+**Purport:**
+
+Purport
+In the Vedic scripture Hari-vaṁśa (Viṣṇu-parva, chapter nineteen), there is the following description of Goloka Vṛndāvana:
+manuṣya-lokād ūrdhvaṁ tu khagānāṁ gatir ucyate
+ākāśasyopari ravir dvāraṁ svargasya bhānumān
+svargād ūrdhvaṁ brahma-loko brahmarṣi-gaṇa-sevitaḥ
+tatra soma-gatiś caiva jyotiṣāṁ ca mahātmanām
+tasyopari gavāṁ lokaḥ sādhyās taṁ pālayanti hi
+sa hi sarva-gataḥ kṛṣṇaḥ mahā-kāśa-gato mahān
+upary upari tatrāpi gatis tava tapo-mayī
+yāṁ na vidmo vayaṁ sarve pṛcchanto ’pi pitām aham
+gatiḥ śama-damāṭyānāṁ svargaḥ su-kṛta-karmaṇām
+brāhmye tapasi yuktānāṁ brahma-lokaḥ parā gatiḥ
+gavām eva tu goloko durārohā hi sā gatiḥ
+sa tu lokas tvayā kṛṣṇa sīdamānaḥ kṛtātmanā
+dhṛto dhṛtimatā vīra nighnatopadravān gavām
+When the King of heaven, Indra, surrendered to Kṛṣṇa after Kṛṣṇa had raised Govardhana Hill, Lord Indra stated that above the planetary systems wherein human beings reside is the sky, where birds fly. Above the sky is the sun and its orbit. This is the entrance to the heavenly planets. Above the heavenly planets are other planets, up to Brahmaloka, where those advancing in spiritual knowledge reside. The planets up to Brahmaloka are part of the material world (Devī-dhāma). Because the material world is under the control of Devī, Durgā, it is called Devī-dhāma. Above Devī-dhāma is a place where Lord Śiva and his wife Umā reside. Those brightened by spiritual knowledge and liberated from material contamination reside in that Śivaloka. Beyond that planetary system is the spiritual world, where there are planets called Vaikuṇṭhalokas. Goloka Vṛndāvana is situated above all the Vaikuṇṭhalokas. Goloka Vṛndāvana is the kingdom of Śrīmatī Rādhārāṇī and the parents of Kṛṣṇa, Mahārāja Nanda and mother Yaśodā. In this way there are various planetary systems, and they are all creations of the Supreme Lord. As stated in the Brahma-saṁhitā (5.43):
+goloka-nāmni nija-dhāmni tale ca tasya
+devī-maheśa-hari-dhāmasu teṣu teṣu
+te te prabhāva-nicayā vihitāś ca yena
+govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
+“Below the planet named Goloka Vṛndāvana are the planets known as Devī-dhāma, Maheśa-dhāma and Hari-dhāma. These are opulent in different ways. They are managed by the Supreme Personality of Godhead, Govinda, the original Lord. I offer my obeisances unto Him.”
+Thus Goloka Vṛndāvana-dhāma is situated above the Vaikuṇṭha planets. The spiritual sky containing all the Vaikuṇṭha planets is very small compared to Goloka Vṛndāvana-dhāma. The space occupied by Goloka Vṛndāvana-dhāma is called mahākāśa, or “the greatest sky of all.” Lord Indra said, “We asked Lord Brahmā about Your eternal planet, but we could not understand it. Those fruitive actors who have controlled their senses and mind with pious activities can be elevated to the heavenly planets. Pure devotees who are always engaged in Lord Nārāyaṇa’s service are promoted to the Vaikuṇṭha-lokas. However, my Lord Kṛṣṇa, Your Goloka Vṛndāvana-dhāma is very difficult to attain. Yet both You and that supreme planetary system have descended here upon this earth. Unfortunately, I have disturbed You by my misdeeds, and that was due to my foolishness. I am therefore trying to satisfy You by my prayers.”
+Śrī Nīlakaṇṭha confirms the existence of Goloka Vṛndāvana-dhāma by quoting the Ṛg-saṁhitā (Ṛg Veda 1.154.6):
+tā vāṁ vāstūny uśmasi gamadhyai
+yatra gāvo bhūri-śṛṅgā ayāsaḥ
+atrāha tad urugāyasya kṛṣṇaḥ
+paramaṁ padam avabhāti bhūri
+“We wish to go to Your [Rādhā’s and Kṛṣṇa’s] beautiful houses, about which cows with large, excellent horns are wandering. Yet distinctly shining on this earth is that supreme abode of Yours that showers joy on all, O Urugāya [Kṛṣṇa, who is much praised].”
+

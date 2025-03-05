@@ -1,0 +1,29 @@
+# ŚB 10.11.4
+
+**Sanskrit:**
+
+बाला ऊचुरनेनेति तिर्यग्गतमुलूखलम् ।
+विकर्षता मध्यगेन पुरुषावप्यचक्ष्महि ॥ ४ ॥
+
+**Transliteration:**
+
+bālā ūcur aneneti
+tiryag-gatam ulūkhalam
+vikarṣatā madhya-gena
+puruṣāv apy acakṣmahi
+
+**Synonyms:**
+
+Synonyms
+bālāḥ — all the other boys; ūcuḥ — said; anena — by Him (Kṛṣṇa); iti — thus; tiryak — crosswise; gatam — which had become; ulūkhalam — the wooden mortar; vikarṣatā — by Kṛṣṇa, who was dragging; madhya-gena — going between the two trees; puruṣau — two beautiful persons; api — also; acakṣmahi — we have seen with our own eyes.
+
+**Translation:**
+
+Translation
+Then all the cowherd boys said: It is Kṛṣṇa who has done this. When He was in between the two trees, the mortar fell crosswise. Kṛṣṇa dragged the mortar, and the two trees fell down. After that, two beautiful men came out of the trees. We have seen this with our own eyes.
+
+**Purport:**
+
+Purport
+Kṛṣṇa’s playmates wanted to inform Kṛṣṇa’s father of the exact situation by explaining that not only did the trees break, but out of the broken trees came two beautiful men. “All these things happened,” they said. “We have seen them with our own eyes.”
+

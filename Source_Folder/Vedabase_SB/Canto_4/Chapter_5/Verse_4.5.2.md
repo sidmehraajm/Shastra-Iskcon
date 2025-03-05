@@ -1,0 +1,26 @@
+# ŚB 4.5.2
+
+**Sanskrit:**
+
+क्रुद्ध: सुदष्टौष्ठपुट: स धूर्जटि-
+र्जटां तडिद्वह्निसटोग्ररोचिषम् ।
+उत्कृत्य रुद्र: सहसोत्थितो हसन्
+गम्भीरनादो विससर्ज तां भुवि ॥ २ ॥
+
+**Transliteration:**
+
+kruddhaḥ sudaṣṭauṣṭha-puṭaḥ sa dhūr-jaṭir
+jaṭāṁ taḍid-vahni-saṭogra-rociṣam
+utkṛtya rudraḥ sahasotthito hasan
+gambhīra-nādo visasarja tāṁ bhuvi
+
+**Synonyms:**
+
+Synonyms
+kruddhaḥ — very angry; su-daṣṭa-oṣṭha-puṭaḥ — pressing his lips with his teeth; saḥ — he (Lord Śiva); dhūḥ-jaṭiḥ — having a cluster of hair on his head; jaṭām — one hair; taḍit — of electricity; vahni — of fire; saṭā — a flame; ugra — terrible; rociṣam — blazing; utkṛtya — snatching; rudraḥ — Lord Śiva; sahasā — at once; utthitaḥ — stood up; hasan — laughing; gambhīra — deep; nādaḥ — sound; visasarja — dashed; tām — that (hair); bhuvi — on the ground.
+
+**Translation:**
+
+Translation
+Thus Lord Śiva, being extremely angry, pressed his lips with his teeth and immediately snatched from his head a strand of hair which blazed like electricity or fire. He stood up at once, laughing like a madman, and dashed the hair to the ground.
+

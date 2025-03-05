@@ -1,0 +1,56 @@
+# ŚB 8.5.26
+
+**Sanskrit:**
+
+श्रीब्रह्मोवाच
+अविक्रियं सत्यमनन्तमाद्यं
+गुहाशयं निष्कलमप्रतर्क्यम् ।
+मनोऽग्रयानं वचसानिरुक्तं
+नमामहे देववरं वरेण्यम् ॥ २६ ॥
+
+**Transliteration:**
+
+śrī-brahmovāca
+avikriyaṁ satyam anantam ādyaṁ
+guhā-śayaṁ niṣkalam apratarkyam
+mano-’grayānaṁ vacasāniruktaṁ
+namāmahe deva-varaṁ vareṇyam
+
+**Synonyms:**
+
+Synonyms
+śrī-brahmā uvāca — Lord Brahmā said; avikriyam — unto the Personality of Godhead, who never changes (as opposed to material existence); satyam — the eternal supreme truth; anantam — unlimited; ādyam — the original cause of all causes; guhā-śayam — present in everyone’s heart; niṣkalam — without any decrease in potency; apratarkyam — inconceivable, not within the jurisdiction of material arguments; manaḥ-agrayānam — more quick than the mind, inconceivable to mental speculation; vacasā — by jugglery of words; aniruktam — indescribable; namāmahe — all of us demigods offer our respectful obeisances; deva-varam — unto the Supreme Lord, who is not equaled or surpassed by anyone; vareṇyam — the supreme worshipable, who is worshiped by the Gāyatrī mantra..
+
+**Translation:**
+
+Translation
+Lord Brahmā said: O Supreme Lord, O changeless, unlimited supreme truth. You are the origin of everything. Being all-pervading, You are in everyone’s heart and also in the atom. You have no material qualities. Indeed, You are inconceivable. The mind cannot catch You by speculation, and words fail to describe You. You are the supreme master of everyone, and therefore You are worshipable for everyone. We offer our respectful obeisances unto You.
+
+**Purport:**
+
+Purport
+The Supreme Personality of Godhead is not anything of material creation. Everything material must change from one form to another — for example, from earth to earthen pot and from earthen pot to earth again. All our creations are temporary, impermanent. The Supreme Personality of Godhead, however, is eternal, and similarly the living entities, who are parts of Him, are also eternal (mamaivāṁśo jīva-loke jīva-bhūtaḥ sanātanaḥ). The Supreme Personality of Godhead is sanātana, eternal, and the individual living entities are also eternal. The difference is that Kṛṣṇa, or God, is the supreme eternal, whereas the individual souls are minute, fragmental eternals. As stated in Bhagavad-gītā (13.3), kṣetra-jñaṁ cāpi māṁ viddhi sarva-kṣetreṣu bhārata. Although the Lord is a living being and the individual souls are living beings, the Supreme Lord, unlike the individual souls, is vibhu, all-pervading, and ananta, unlimited. The Lord is the cause of everything. The living entities are innumerable, but the Lord is one. No one is greater than Him, and no one is equal to Him. Thus the Lord is the supreme worshipable object, as understood from the Vedic mantras (na tat-samaś cābhyadhikaś ca dṛśyate). The Lord is supreme because no one can evaluate Him by mental speculation or jugglery of words. The Lord can travel more quickly than the mind. In the śruti-mantras of Īśopaniṣad it is said:
+anejad ekaṁ manaso javīyo
+nainad devā āpnuvan pūrvam arṣat
+tad dhāvato ’nyān atyeti tiṣṭhat
+tasminn apo mātariśvā dadhāti
+“Although fixed in His abode, the Personality of Godhead is swifter than the mind and can overcome all others running. The powerful demigods cannot approach Him. Although in one place, He controls those who supply the air and rain. He surpasses all in excellence.” (Īśopaniṣad 4) Thus the Supreme is never to be equaled by the subordinate living entities.
+Because the Lord is situated in everyone’s heart and the individual living entity is not, never should the individual living entity be equated with the Supreme Lord. In Bhagavad-gītā (15.15) the Lord says, sarvasya cāhaṁ hṛdi sanniviṣṭaḥ: “I am situated in everyone’s heart.” This does not mean, however, that everyone is equal to the Lord. In the śruti-mantras it is also said, hṛdi hy ayam ātmā pratiṣṭhitaḥ. In the beginning of Śrīmad-Bhāgavatam it is said, satyaṁ paraṁ dhīmahi. The Vedic mantras say, satyaṁ jñānam anantam and niṣkalaṁ niṣkriyaṁ śāntaṁ niravadyam. God is supreme. Although naturally He does not do anything, He is doing everything. As the Lord says in Bhagavad-gītā:
+mayā tatam idaṁ sarvaṁ
+jagad avyakta-mūrtinā
+mat-sthāni sarva-bhūtāni
+na cāhaṁ teṣv avasthitaḥ
+“By Me, in My unmanifested form, this entire universe is pervaded. All beings are in Me, but I am not in them.” (Bg. 9.4)
+mayādhyakṣeṇa prakṛtiḥ
+sūyate sacarācaram
+hetunānena kaunteya
+jagad viparivartate
+“This material nature, working under My direction, O son of Kuntī, is producing all moving and unmoving beings. By its rule this manifestation is created and annihilated again and again.” (Bg. 9.10) Thus although the Lord is silent in His abode, He is doing everything through His different energies (parāsya śaktir vividhaiva śrūyate).
+All the Vedic mantras, or śruti-mantras, are included in this verse spoken by Lord Brahmā, for Brahmā and his followers, the Brahma sampradāya, understand the Supreme Personality of Godhead through the paramparā system. We have to gain understanding through the words of our predecessors. There are twelve mahājanas, or authorities, of whom Brahmā is one.
+svayambhūr nāradaḥ śambhuḥ
+kumāraḥ kapilo manuḥ
+prahlādo janako bhīṣmo
+balir vaiyāsakir vayam
+(Bhāg. 6.3.20)
+We belong to the disciplic succession of Brahmā, and therefore we are known as the Brahma sampradāya. As the demigods follow Lord Brahmā to understand the Supreme Personality of Godhead, we also have to follow the authorities of the paramparā system to understand the Lord.
+

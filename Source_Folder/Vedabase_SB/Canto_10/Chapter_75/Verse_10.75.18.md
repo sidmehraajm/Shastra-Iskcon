@@ -1,0 +1,29 @@
+# ŚB 10.75.18
+
+**Sanskrit:**
+
+स सम्राड् रथमारुढ: सदश्वं रुक्‍ममालिनम् ।
+व्यरोचत स्वपत्नीभि: क्रियाभि: क्रतुराडिव ॥ १८ ॥
+
+**Transliteration:**
+
+sa samrāḍ ratham āruḍhaḥ
+sad-aśvaṁ rukma-mālinam
+vyarocata sva-patnībhiḥ
+kriyābhiḥ kratu-rāḍ iva
+
+**Synonyms:**
+
+Synonyms
+saḥ — he; samrāṭ — the emperor, Yudhiṣṭhira; ratham — his chariot; āruḍhaḥ — mounted; sat — excellent; aśvam — whose horses; rukma — golden; mālinam — with hangings; vyarocata — he shone forth; sva-patnībhiḥ — with his wives; kriyābhiḥ — with its rituals; kratu — of sacrifices; rāṭ — the king (Rājasūya); iva — as if.
+
+**Translation:**
+
+Translation
+The emperor, mounted upon his chariot drawn by excellent horses wearing golden collars, appeared splendid in the company of his wives, just like the brilliant Rājasūya sacrifice surrounded by its various rituals.
+
+**Purport:**
+
+Purport
+King Yudhiṣṭhira with his queens appeared like the personified Rājasūya sacrifice surrounded by its beautiful rituals.
+

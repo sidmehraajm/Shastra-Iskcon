@@ -1,0 +1,29 @@
+# ŚB 12.5.3
+
+**Sanskrit:**
+
+न भविष्यसि भूत्वा त्वं पुत्रपौत्रादिरूपवान् ।
+बीजाङ्कुरवद् देहादेर्व्यतिरिक्तो यथानल: ॥ ३ ॥
+
+**Transliteration:**
+
+na bhaviṣyasi bhūtvā tvaṁ
+putra-pautrādi-rūpavān
+bījāṅkura-vad dehāder
+vyatirikto yathānalaḥ
+
+**Synonyms:**
+
+Synonyms
+na bhaviṣyasi — you will not come into being; bhūtvā — becoming; tvam — you; putra — of children; pautra — grandchildren; ādi — and so on; rūpa-vān — assuming the forms; bīja — the seed; aṅkura — and the sprout; vat — like; deha-ādeḥ — from the material body and its paraphernalia; vyatiriktaḥ — distinct; yathā — as; analaḥ — the fire (from the wood).
+
+**Translation:**
+
+Translation
+You will not take birth again in the form of your sons and grandsons, like a sprout taking birth from a seed and then generating a new seed. Rather, you are entirely distinct from the material body and its paraphernalia, in the same way that fire is distinct from its fuel.
+
+**Purport:**
+
+Purport
+Sometimes one dreams of being reborn as the son of one’s son, in the hope of perpetually remaining in the same material family. As stated in the śruti-mantra, pitā putreṇa pitṛmān yoni-yonau: “A father has a father in his son, because he may take birth as his own grandson.” The purpose of Śrīmad-Bhāgavatam is spiritual liberation and not the foolish prolonging of the illusion of bodily identification. That is clearly stated in this verse.
+

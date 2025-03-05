@@ -1,0 +1,27 @@
+# ŚB 9.3.28
+
+**Sanskrit:**
+
+सोऽन्त:समुद्रे नगरीं विनिर्माय कुशस्थलीम् ।
+आस्थितोऽभुङ्क्त विषयानानर्तादीनरिन्दम ।
+तस्य पुत्रशतं जज्ञे ककुद्मिज्येष्ठमुत्तमम् ॥ २८ ॥
+
+**Transliteration:**
+
+so ’ntaḥ-samudre nagarīṁ
+vinirmāya kuśasthalīm
+āsthito ’bhuṅkta viṣayān
+ānartādīn arindama
+tasya putra-śataṁ jajñe
+kakudmi-jyeṣṭham uttamam
+
+**Synonyms:**
+
+Synonyms
+saḥ — Revata; antaḥ-samudre — in the depths of the ocean; nagarīm — a town; vinirmāya — after constructing; kuśasthalīm — named Kuśasthalī; āsthitaḥ — lived there; abhuṅkta — enjoyed material happiness; viṣayān — kingdoms; ānarta-ādīn — Ānarta and others; arim-dama — O Mahārāja Parīkṣit, subduer of enemies; tasya — his; putra-śatam — one hundred sons; jajñe — were born; kakudmi-jyeṣṭham — of whom the eldest was Kakudmī; uttamam — most powerful and opulent.
+
+**Translation:**
+
+Translation
+O Mahārāja Parīkṣit, subduer of enemies, this Revata constructed a kingdom known as Kuśasthalī in the depths of the ocean. There he lived and ruled such tracts of land as Ānarta, etc. He had one hundred very nice sons, of whom the eldest was Kakudmī.
+

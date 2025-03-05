@@ -1,0 +1,43 @@
+# ŚB 4.25.62
+
+**Sanskrit:**
+
+विप्रलब्धो महिष्यैवं सर्वप्रकृतिवञ्चित: ।
+नेच्छन्ननुकरोत्यज्ञ: क्लैब्यात्क्रीडामृगो यथा ॥ ६२ ॥
+
+**Transliteration:**
+
+vipralabdho mahiṣyaivaṁ
+sarva-prakṛti-vañcitaḥ
+necchann anukaroty ajñaḥ
+klaibyāt krīḍā-mṛgo yathā
+
+**Synonyms:**
+
+Synonyms
+vipralabdhaḥ — captivated; mahiṣyā — by the Queen; evam — thus; sarva — all; prakṛti — existence; vañcitaḥ — being cheated; na icchan — without desiring; anukaroti — used to follow and imitate; ajñaḥ — the foolish King; klaibyāt — by force; krīḍā-mṛgaḥ — a pet animal; yathā — just like.
+
+**Translation:**
+
+Translation
+In this way, King Purañjana was captivated by his nice wife and was thus cheated. Indeed, he became cheated in his whole existence in the material world. Even against that poor foolish King’s desire, he remained under the control of his wife, just like a pet animal that dances according to the order of its master.
+
+**Purport:**
+
+Purport
+The word vipralabdhaḥ is very significant in this verse. Vi means “specifically,” and pralabdha means “obtained.” Just to satisfy his desires, the King got the Queen, and thus he became cheated by material existence. Although he was not willing to do so, he remained a pet animal under the control of material intelligence. Just as a pet monkey dances according to the desires of its master, the King danced according to the desires of the Queen. In Śrīmad-Bhāgavatam (5.5.2) it is said, mahat-sevāṁ dvāram āhur vimukteḥ: if one associates with a saintly person, a devotee, one’s path of liberation becomes clear. But if one associates with a woman or with a person who is too much addicted to a woman, his path of bondage becomes completely clear.
+On the whole, for spiritual advancement one must give up the company of women. This is what is meant by the order of sannyāsa, the renounced order. Before taking sannyāsa, or completely renouncing the material world, one has to practice avoiding illicit sex. Sex life, licit or illicit, is practically the same, but through illicit sex one becomes more and more captivated. By regulating one’s sex life there is a chance that one may eventually be able to renounce sex or renounce the association of women. If this can be done, advancement in spiritual life comes very easily.
+How one becomes captivated by the association of one’s dear wife is explained in this chapter by Nārada Muni. Attraction for one’s wife means attraction for the material qualities. One who is attracted by the material quality of darkness is in the lowest stage of life, whereas one who is attracted by the material quality of goodness is in a better position. Sometimes we see that when a person is on the platform of material goodness, he is attracted more or less by the cultivation of knowledge. This is, of course, a better position, for knowledge gives one the preference to accept devotional service. Unless one comes to the platform of knowledge, the brahma-bhūta stage, one cannot advance in devotional service. As Kṛṣṇa says in Bhagavad-gītā (18.54):
+brahma-bhūtaḥ prasannātmā
+na śocati na kāṅkṣati
+samaḥ sarveṣu bhūteṣu
+mad-bhaktiṁ labhate parām
+“One who is thus transcendentally situated at once realizes the Supreme Brahman and becomes fully joyful. He never laments nor desires to have anything; he is equally disposed to every living entity. In that state he attains pure devotional service unto Me.”
+The platform of knowledge is advantageous because it is a means by which one may come to the stage of devotional service. However, if one takes to devotional service directly, knowledge is revealed without separate endeavor. This is confirmed in Śrīmad-Bhāgavatam (1.2.7):
+vāsudeve bhagavati
+bhakti-yogaḥ prayojitaḥ
+janayaty āśu vairāgyaṁ
+jñānaṁ ca yad ahaitukam
+Devotional service automatically reveals actual knowledge of our material existence. One who is sufficiently intelligent immediately attains the stage of renunciation of so-called society, family and love as well as other things. As long as we are attached to society, family and love of the material world, there is no question of knowledge. Nor is there a question of devotional service. By directly taking to devotional service, however, one becomes filled with knowledge and renunciation. In this way one’s life becomes successful.
+Thus end the Bhaktivedanta purports of the Fourth Canto, Twenty-fifth Chapter, of the Śrīmad-Bhāgavatam, entitled “The Descriptions of the Characteristics of King Purañjana.”
+

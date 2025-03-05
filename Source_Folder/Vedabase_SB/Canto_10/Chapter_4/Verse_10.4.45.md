@@ -1,0 +1,34 @@
+# ŚB 10.4.45
+
+**Sanskrit:**
+
+ते वै रज:प्रकृतयस्तमसा मूढचेतस: ।
+सतां विद्वेषमाचेरुरारादागतमृत्यव: ॥ ४५ ॥
+
+**Transliteration:**
+
+te vai rajaḥ-prakṛtayas
+tamasā mūḍha-cetasaḥ
+satāṁ vidveṣam ācerur
+ārād āgata-mṛtyavaḥ
+
+**Synonyms:**
+
+Synonyms
+te — all the asuric ministers; vai — indeed; rajaḥ-prakṛtayaḥ — surcharged with the mode of passion; tamasā — overwhelmed by the mode of ignorance; mūḍha-cetasaḥ — foolish persons; satām — of saintly persons; vidveṣam — persecution; āceruḥ — executed; ārāt āgata-mṛtya-vaḥ — impending death having already overtaken them.
+
+**Translation:**
+
+Translation
+Surcharged with passion and ignorance and not knowing what was good or bad for them, the asuras, for whom impending death was waiting, began the persecution of the saintly persons.
+
+**Purport:**
+
+Purport
+As stated in Bhagavad-gītā (2.13):
+dehino ’smin yathā dehe
+kaumāraṁ yauvanaṁ jarā
+tathā dehāntara-prāptir
+dhīras tatra na muhyati
+“As the embodied soul continually passes, in this body, from boyhood to youth to old age, the soul similarly passes into another body at death. The self-realized soul is not bewildered by such a change.” Irresponsible persons, surcharged with passion and ignorance, foolishly do things that are not to be done (nūnaṁ pramattaḥ kurute vikarma). But one should know the results of irresponsible actions, as explained in the next verse.
+

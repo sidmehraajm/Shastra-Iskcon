@@ -1,0 +1,31 @@
+# CC Madhya 21.18
+
+**Bengali:**
+
+এমত অন্যত্র নাহি শুনিয়ে অদ্ভুত ।
+যাহার শ্রবণে চিত্ত হয় অবধূত ॥ ১৮ ॥
+
+**Transliteration:**
+
+e-mata anyatra nāhi śuniye adbhuta
+yāhāra śravaṇe citta haya avadhūta
+
+**Synonyms:**
+
+Synonyms
+e-mata — like this; anyatra — anywhere else; nāhi — not; śuniye — I hear; adbhuta — wonderful event; yāhāra — of which; śravaṇe — by hearing; citta — consciousness; haya — becomes; avadhūta — agitated and cleansed.
+
+**Translation:**
+
+Translation
+“We do not hear of such wonderful things anywhere else. Simply by one’s hearing of those incidents, one’s consciousness is agitated and cleansed.
+
+**Purport:**
+
+Purport
+When Lord Kṛṣṇa was present in the earthly Vṛndāvana, Lord Brahmā, taking Him to be an ordinary cowherd boy, wanted to test His potency. Therefore Lord Brahmā stole all the calves and cowherd boys from Kṛṣṇa and hid them by his illusory energy. When Kṛṣṇa saw that Brahmā had stolen His calves and cowherd boys, He immediately created many material and spiritual planets in Lord Brahmā’s presence. Within a moment, cowherd boys, calves and unlimited Vaikuṇṭhas — all expansions of the Lord’s spiritual energy — were manifested. As stated in the Brahma-saṁhitā, ānanda-cinmaya-rasa-pratibhāvitābhiḥ. Not only did Kṛṣṇa create all the paraphernalia of His spiritual energy, but He also created unlimited material universes with unlimited Brahmās. All these pastimes, which are described in Śrīmad-Bhāgavatam, will cleanse one’s consciousness. In this way one can actually understand the Absolute Truth. The spiritual planets in the spiritual sky are called Vaikuṇṭhas, and each of them has a predominating Deity (Nārāyaṇa) with a specific name. Similarly, in the material sky there are innumerable universes, and each is dominated by a specific deity, a Brahmā. Kṛṣṇa simultaneously created all these Vaikuṇṭha planets and universes within a moment after Brahmā’s return.
+The word avadhūta means “rambling, agitating, moving, absorbed, defeated.” In some readings of Śrī Caitanya-caritāmṛta, it is said: yāhāra śravaṇe citta-mala haya dhūta. Instead of the word avadhūta, the words haya dhūta, meaning that the heart or consciousness is cleansed, are used. When the consciousness is cleansed, one can understand what and who Kṛṣṇa is. This is confirmed by Kṛṣṇa in the Bhagavad-gītā (7.28):
+yeṣāṁ tv anta-gataṁ pāpaṁ janānāṁ puṇya-karmaṇām
+te dvandva-moha-nirmuktā bhajante māṁ dṛḍha-vratāḥ
+“Persons who have acted piously in previous lives and in this life and whose sinful actions are completely eradicated are freed from the dualities of delusion, and they engage themselves in My service with determination.” Unless one is freed from the reactions of sinful activities, one cannot understand Kṛṣṇa or engage in His transcendental loving service.
+

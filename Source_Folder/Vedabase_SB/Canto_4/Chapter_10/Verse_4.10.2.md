@@ -1,0 +1,23 @@
+# ŚB 4.10.2
+
+**Sanskrit:**
+
+इलायामपि भार्यायां वायो: पुत्र्यां महाबल: । पुत्रमुत्कलनामानं योषिद्रत्नमजीजनत् ॥ २ ॥
+
+**Transliteration:**
+
+ilāyām api bhāryāyāṁ
+vāyoḥ putryāṁ mahā-balaḥ
+putram utkala-nāmānaṁ
+yoṣid-ratnam ajījanat
+
+**Synonyms:**
+
+Synonyms
+ilāyām — unto his wife named Ilā; api — also; bhāryāyām — unto his wife; vāyoḥ — of the demigod Vāyu (controller of air); putryām — unto the daughter; mahā-balaḥ — the greatly powerful Dhruva Mahārāja; putram — son; utkala — Utkala; nāmānam — of the name; yoṣit — female; ratnam — jewel; ajījanat — he begot.
+
+**Translation:**
+
+Translation
+The greatly powerful Dhruva Mahārāja had another wife, named Ilā, who was the daughter of the demigod Vāyu. By her he begot a son named Utkala and a very beautiful daughter.
+

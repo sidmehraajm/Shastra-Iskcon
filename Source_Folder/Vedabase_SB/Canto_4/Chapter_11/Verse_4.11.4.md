@@ -1,0 +1,26 @@
+# ŚB 4.11.4
+
+**Sanskrit:**
+
+तैस्तिग्मधारै: प्रधने शिलीमुखै-
+रितस्तत: पुण्यजना उपद्रुता: ।
+तमभ्यधावन् कुपिता उदायुधा:
+सुपर्णमुन्नद्धफणा इवाहय: ॥ ४ ॥
+
+**Transliteration:**
+
+tais tigma-dhāraiḥ pradhane śilī-mukhair
+itas tataḥ puṇya-janā upadrutāḥ
+tam abhyadhāvan kupitā udāyudhāḥ
+suparṇam unnaddha-phaṇā ivāhayaḥ
+
+**Synonyms:**
+
+Synonyms
+taiḥ — by those; tigma-dhāraiḥ — which had a sharp point; pradhane — on the battlefield; śilī-mukhaiḥ — arrows; itaḥ tataḥ — here and there; puṇya-janāḥ — the Yakṣas; upadrutāḥ — being greatly agitated; tam — towards Dhruva Mahārāja; abhyadhāvan — rushed; kupitāḥ — being angry; udāyudhāḥ — with upraised weapons; suparṇam — towards Garuḍa; unnaddha-phaṇāḥ — with upraised hoods; iva — like; ahayaḥ — serpents.
+
+**Translation:**
+
+Translation
+Those sharp arrows dismayed the enemy soldiers, who became almost unconscious, but various Yakṣas on the battlefield, in a rage against Dhruva Mahārāja, somehow or other collected their weapons and attacked. Just as serpents agitated by Garuḍa rush towards Garuḍa with upraised hoods, all the Yakṣa soldiers prepared to overcome Dhruva Mahārāja with their upraised weapons.
+

@@ -1,0 +1,27 @@
+# CC Madhya 18.113
+
+**Bengali:**
+
+জীব, ঈশ্বর-তত্ত্ব — কভু নহে ‘সম’ ।
+জ্বলদগ্নিরাশি যৈছে স্ফুলিঙ্গের ‘কণ’ ॥ ১১৩ ॥
+
+**Transliteration:**
+
+jīva, īśvara-tattva — kabhu nahe ‘sama’
+jvalad-agni-rāśi yaiche sphuliṅgera ‘kaṇa’
+
+**Synonyms:**
+
+Synonyms
+jīva — a living being; īśvara-tattva — and the Supreme Personality of Godhead; kabhu — at any time; nahe — not; sama — equal; jvalat-agni-rāśi — large flame; yaiche — as; sphuliṅgera — of a spark; kaṇa — fragmental portion.
+
+**Translation:**
+
+Translation
+“A living entity and the Absolute Personality of Godhead are never to be considered equal, just as a fragmental spark can never be considered the original flame.
+
+**Purport:**
+
+Purport
+Māyāvādī sannyāsīs consider themselves Brahman, and they superficially speak of themselves as Nārāyaṇa. The monistic disciples of the Māyāvāda school (known as smārta-brāhmaṇas) are generally householder brāhmaṇas who accept the Māyāvādī sannyāsīs as Nārāyaṇa incarnate; therefore they offer their obeisances to them. Śrī Caitanya Mahāprabhu immediately protested this unauthorized system, specifically mentioning that a sannyāsī is nothing but a fragmental portion of the Supreme (cit-kaṇa jīva). In other words, he is nothing more than an ordinary living being. He is never Nārāyaṇa, just as a molecular portion of sunshine is never the sun itself. The living entity is nothing but a fragmental part of the Absolute Truth; therefore at no stage of perfection can a living entity become the Supreme Personality of Godhead. This Māyāvāda viewpoint is always condemned by the Vaiṣṇava school. Śrī Caitanya Mahāprabhu Himself protested this philosophy. When the Māyāvādīs accept sannyāsa and consider themselves Nārāyaṇa, they become so puffed up that they do not even enter the temple of Nārāyaṇa to offer respects, for they falsely think themselves Nārāyaṇa Himself. Although Māyāvādī sannyāsīs may offer respects to other sannyāsīs and address them as Nārāyaṇa, they do not go to a Nārāyaṇa temple and offer respects. These Māyāvādī sannyāsīs are always condemned and are described as demons. The Vedas clearly state that living entities are subordinate parts and parcels of the supreme. Eko bahūnāṁ yo vidadhāti kāmān: the Supreme Being, Kṛṣṇa, maintains all living entities.
+

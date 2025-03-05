@@ -1,0 +1,42 @@
+# ŚB 10.83.41-42
+
+**Sanskrit:**
+
+न वयं साध्वि साम्राज्यं स्वाराज्यं भौज्यमप्युत ।
+वैराज्यं पारमेष्ठ्यं च आनन्त्यं वा हरे: पदम् ॥ ४१ ॥
+कामयामह एतस्य श्रीमत्पादरज: श्रिय: ।
+कुचकुङ्कुमगन्धाढ्यं मूर्ध्ना वोढुं गदाभृत: ॥ ४२ ॥
+
+**Transliteration:**
+
+na vayaṁ sādhvi sāmrājyaṁ
+svārājyaṁ bhaujyam apy uta
+vairājyaṁ pārameṣṭhyaṁ ca
+ānantyaṁ vā hareḥ padam
+kāmayāmaha etasya
+śrīmat-pāda-rajaḥ śriyaḥ
+kuca-kuṅkuma-gandhāḍhyaṁ
+mūrdhnā voḍhuṁ gadā-bhṛtaḥ
+
+**Synonyms:**
+
+Synonyms
+na — not; vayam — we; sādhvi — O saintly lady (Draupadī); sāmrājyam — rulership over the entire earth; sva-rājyam — the position of Lord Indra, King of heaven; bhaujyam — unlimited powers of enjoyment; api uta — even; vairājyam — mystic power; pārameṣṭhyam — the position of Lord Brahmā, creator of the universe; ca — and; ānantyam — immortality; vā — or; hareḥ — of the Supreme Lord; padam — the abode; kāmayāmahe — we desire; etasya — His; śrī-mat — divine; pāda — of the feet; rajaḥ — the dust; śrīyaḥ — of the goddess of fortune; kuca — from the breast; kuṅkuma — of the cosmetic powder; gandha — by the fragrance; āḍhyam — enriched; mūrdhnā — on our heads; voḍhum — to carry; gadābhṛtaḥ — of Lord Kṛṣṇa, the wielder of the club.
+
+**Translation:**
+
+Translation
+O saintly lady, we do not desire dominion over the earth, the sovereignty of the King of heaven, unlimited facility for enjoyment, mystic power, the position of Lord Brahmā, immortality or even attainment of the kingdom of God. We simply desire to carry on our heads the glorious dust of Lord Kṛṣṇa’s feet, enriched by the fragrance of kuṅkuma from His consort’s bosom.
+
+**Purport:**
+
+Purport
+The verb rāj means “to rule,” and from it are derived the words sāmrājyam, meaning “rulership over the entire earth,” and svārājyam, meaning “rulership over heaven.” Bhaujyam comes from the verb bhuj, “to enjoy,” and thus refers to the capacity of enjoying whatever one desires. Virāṭ is explained by Śrīla Viśvanātha Cakravartī as representing the phrase vividhaṁ virājate (“one enjoys many kinds of opulence”) and specifically indicating the eight mystic perfections of aṇimā and so on.
+An alternative explanation of these terms is given by Śrīla Śrīdhara Svāmī, who says that according to the Bahv-ṛca Brāhmaṇa, these four terms designate the power of sovereignty over each of the four cardinal directions: sāmrājya for the East, bhaujya for the South, svārājya for the West, and vairājya for the North.
+Lord Kṛṣṇa’s queens clearly state that they do not desire any of these powers, or even the position of Brahmā, liberation or entrance into the kingdom of God. They simply want the dust from Śrī Kṛṣṇa’s feet, which Goddess Śrī herself worships. Śrīla Viśvanātha Cakravartī tells us that the goddess of fortune mentioned here is not Lakṣmī, the consort of Nārāyaṇa. After all, the ācārya explains, Goddess Lakṣmī could not attain the direct association of Kṛṣṇa even after performing extended austerities, as Uddhava states: nāyaṁ śrīyo ’ṅga u nitānta-rateḥ prasādaḥ (Bhāg. 10.47.60). Rather, the Śrī referred to here is the supreme goddess of fortune identified by the Bṛhad-gautamīya-tantra:
+devī kṛṣṇa-mayī proktā
+rādhikā para-devatā
+sarva-lakṣmī-mayī sarva
+kāntiḥ sammohinī parā
+“The transcendental goddess Śrīmatī Rādhārāṇī is the direct counterpart of Lord Śrī Kṛṣṇa. She is the central figure for all the goddesses of fortune. She possesses all the attractiveness to attract the all-attractive Personality of Godhead. She is the primeval internal potency of the Lord.”
+

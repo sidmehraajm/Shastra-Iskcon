@@ -1,0 +1,22 @@
+# CC Ādi 14.40
+
+**Bengali:**
+
+শিশু সব লয়ে পাড়া–পড়সীর ঘরে ।
+চুরি করি’ দ্রব্য খায় মারে বালকেরে ॥ ৪০ ॥
+
+**Transliteration:**
+
+śiśu saba laye pāḍā-paḍasīra ghare
+curi kari’ dravya khāya māre bālakere
+
+**Synonyms:**
+
+Synonyms
+śiśu — children; saba — all; laye — taking with Him; pāḍā-paḍasīra — neighboring; ghare — in the houses; curi kari’ — stealing; dravya — eatables; khāya — eats; māre — fights; bālakere — with other children.
+
+**Translation:**
+
+Translation
+As usual for small children, He learned to play, and with His playmates He went to the houses of neighboring friends, stealing their eatables and eating them. Sometimes the children fought among themselves.
+

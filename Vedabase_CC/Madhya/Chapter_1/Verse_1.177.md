@@ -1,0 +1,22 @@
+# CC Madhya 1.177
+
+**Bengali:**
+
+তোমার মঙ্গল বাঞ্ছে, কার্যসিদ্ধি হয় ।
+ইহার আশীর্বাদে তোমার সর্বত্রই জয় ॥ ১৭৭ ॥
+
+**Transliteration:**
+
+tomāra maṅgala vāñche, kārya-siddhi haya
+ihāra āśīrvāde tomāra sarvatra-i jaya
+
+**Synonyms:**
+
+Synonyms
+tomāra — your; maṅgala — good fortune; vāñche — He desires; kārya — of business; siddhi — the perfection; haya — is; ihāra — of Him; āśīrvāde — by the blessings; tomāra — your; sarvatra-i — everywhere; jaya — victory.
+
+**Translation:**
+
+Translation
+“This prophet always desires your good fortune. By His grace, all your business is successful. By His blessings, you will attain victory everywhere.
+

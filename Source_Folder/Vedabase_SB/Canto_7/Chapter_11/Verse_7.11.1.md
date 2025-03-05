@@ -1,0 +1,28 @@
+# ŚB 7.11.1
+
+**Sanskrit:**
+
+श्रीशुक उवाच
+श्रुत्वेहितं साधु सभासभाजितं
+महत्तमाग्रण्य उरुक्रमात्मन: ।
+युधिष्ठिरो दैत्यपतेर्मुदान्वित:
+पप्रच्छ भूयस्तनयं स्वयम्भुव: ॥ १ ॥
+
+**Transliteration:**
+
+śrī-śuka uvāca
+śrutvehitaṁ sādhu sabhā-sabhājitaṁ
+mahattamāgraṇya urukramātmanaḥ
+yudhiṣṭhiro daitya-pater mudānvitaḥ
+papraccha bhūyas tanayaṁ svayambhuvaḥ
+
+**Synonyms:**
+
+Synonyms
+śrī-śukaḥ uvāca — Śrī Śukadeva Gosvāmī said; śrutvā — hearing; īhitam — the narration; sādhu sabhā-sabhājitam — which is discussed in assemblies of great devotees like Lord Brahmā and Lord Śiva; mahat-tama-agraṇyaḥ — the best of the saintly persons (Yudhiṣṭhira); urukrama-ātmanaḥ — of he (Prahlāda Mahārāja) whose mind is always engaged upon the Supreme Personality of Godhead, who always acts uncommonly; yudhiṣṭhiraḥ — King Yudhiṣṭhira; daitya-pateḥ — of the master of the demons; mudā-anvitaḥ — in a pleasing mood; papraccha — inquired; bhūyaḥ — again; tanayam — unto the son; svayambhuvaḥ — of Lord Brahmā.
+
+**Translation:**
+
+Translation
+Śukadeva Gosvāmī continued: After hearing about the activities and character of Prahlāda Mahārāja, which are adored and discussed among great personalities like Lord Brahmā and Lord Śiva, Yudhiṣṭhira Mahārāja, the most respectful king among exalted personalities, again inquired from the great saint Nārada Muni in a mood of great pleasure.
+

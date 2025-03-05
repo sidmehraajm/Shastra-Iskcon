@@ -1,0 +1,31 @@
+# ŚB 10.6.11
+
+**Sanskrit:**
+
+सा मुञ्च मुञ्चालमिति प्रभाषिणी
+निष्पीड्यमानाखिलजीवमर्मणि ।
+विवृत्य नेत्रे चरणौ भुजौ मुहु:
+प्रस्विन्नगात्रा क्षिपती रुरोद ह ॥ ११ ॥
+
+**Transliteration:**
+
+sā muñca muñcālam iti prabhāṣiṇī
+niṣpīḍyamānākhila-jīva-marmaṇi
+vivṛtya netre caraṇau bhujau muhuḥ
+prasvinna-gātrā kṣipatī ruroda ha
+
+**Synonyms:**
+
+Synonyms
+sā — she (Pūtanā Rākṣasī); muñca — give up; muñca — give up; alam — suck my breast no longer; iti — thus; prabhāṣiṇī — crying; niṣpīḍyamānā — being pressed severely; akhila-jīva-marmaṇi — in every center of her vitality; vivṛtya — opening wide; netre — her two eyes; caraṇau — two legs; bhujau — two hands; muhuḥ — again and again; prasvinna-gātrā — with her body perspiring; kṣipatī — throwing; ruroda — cried severely; ha — indeed.
+
+**Translation:**
+
+Translation
+Unbearably pressed in every vital point, the demon Pūtanā began to cry, “Please leave me, leave me! Suck my breast no longer!” Perspiring, her eyes wide open and her arms and legs flailing, she cried very loudly again and again.
+
+**Purport:**
+
+Purport
+The Rākṣasī was severely punished by Kṛṣṇa. She threw her arms and legs about, and Kṛṣṇa also began to kick her with His legs to punish her properly for her mischievous activities.
+

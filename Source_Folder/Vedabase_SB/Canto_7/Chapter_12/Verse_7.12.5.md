@@ -1,0 +1,24 @@
+# ŚB 7.12.5
+
+**Sanskrit:**
+
+सायं प्रातश्चरेद्भ‍ैक्ष्यं गुरवे तन्निवेदयेत् ।
+भुञ्जीत यद्यनुज्ञातो नो चेदुपवसेत् क्‍वचित् ॥ ५ ॥
+
+**Transliteration:**
+
+sāyaṁ prātaś cared bhaikṣyaṁ
+gurave tan nivedayet
+bhuñjīta yady anujñāto
+no ced upavaset kvacit
+
+**Synonyms:**
+
+Synonyms
+sāyam — in the evening; prātaḥ — in the morning; caret — should go out; bhaikṣyam — to collect alms; gurave — unto the spiritual master; tat — all that he collects; nivedayet — should offer; bhuñjīta — he should eat; yadi — if; anujñātaḥ — ordered (by the spiritual master); no — otherwise; cet — if; upavaset — should observe fasting; kvacit — sometimes.
+
+**Translation:**
+
+Translation
+The brahmacārī should go out morning and evening to collect alms, and he should offer all that he collects to the spiritual master. He should eat only if ordered to take food by the spiritual master; otherwise, if the spiritual master does not give this order, he may sometimes have to fast.
+

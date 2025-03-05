@@ -1,0 +1,24 @@
+# ŚB 8.1.6
+
+**Sanskrit:**
+
+कृतं पुरा भगवत: कपिलस्यानुवर्णितम् ।
+आख्यास्ये भगवान्यज्ञो यच्चकार कुरूद्वह ॥ ६ ॥
+
+**Transliteration:**
+
+kṛtaṁ purā bhagavataḥ
+kapilasyānuvarṇitam
+ākhyāsye bhagavān yajño
+yac cakāra kurūdvaha
+
+**Synonyms:**
+
+Synonyms
+kṛtam — already done; purā — before; bhagavataḥ — of the Supreme Personality of Godhead; kapilasya — Kapila, the son of Devahūti; anuvarṇitam — fully described; ākhyāsye — I shall describe now; bhagavān — the Supreme Personality of Godhead; yajñaḥ — of the name Yajñapati or Yajñamūrti; yat — whatever; cakāra — executed; kuru-udvaha — O best of the Kurus.
+
+**Translation:**
+
+Translation
+O best of the Kurus, I have already described [in the Third Canto] the activities of Kapila, the son of Devahūti. Now I shall describe the activities of Yajñapati, the son of Ākūti.
+

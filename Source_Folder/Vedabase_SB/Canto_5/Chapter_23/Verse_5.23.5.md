@@ -1,0 +1,20 @@
+# ŚB 5.23.5
+
+**Sanskrit:**
+
+यस्य पुच्छाग्रेऽवाक्‌शिरस: कुण्डलीभूतदेहस्य ध्रुव उपकल्पितस्तस्य लाङ्गूले प्रजापतिरग्निरिन्द्रो धर्म इति पुच्छमूले धाता विधाता च कट्यां सप्तर्षय: । तस्य दक्षिणावर्तकुण्डलीभूतशरीरस्य यान्युदगयनानि दक्षिणपार्श्वे तु नक्षत्राण्युपकल्पयन्ति दक्षिणायनानि तु सव्ये । यथा शिशुमारस्य कुण्डलाभोगसन्निवेशस्य पार्श्वयोरुभयोरप्यवयवा: समसंख्या भवन्ति । पृष्ठे त्वजवीथी आकाशगङ्गा चोदरत: ॥ ५ ॥
+
+**Transliteration:**
+
+yasya pucchāgre ’vākśirasaḥ kuṇḍalī-bhūta-dehasya dhruva upakalpitas tasya lāṅgūle prajāpatir agnir indro dharma iti puccha-mūle dhātā vidhātā ca kaṭyāṁ saptarṣayaḥ; tasya dakṣiṇāvarta-kuṇḍalī-bhūta-śarīrasya yāny udagayanāni dakṣiṇa-pārśve tu nakṣatrāṇy upakalpayanti dakṣiṇāyanāni tu savye; yathā śiśumārasya kuṇḍalā-bhoga-sanniveśasya pārśvayor ubhayor apy avayavāḥ samasaṅkhyā bhavanti; pṛṣṭhe tv ajavīthī ākāśa-gaṅgā codarataḥ.
+
+**Synonyms:**
+
+Synonyms
+yasya — of which; puccha-agre — at the end of the tail; avākśirasaḥ — whose head is downward; kuṇḍalī-bhūta-dehasya — whose body, which is coiled; dhruvaḥ — Mahārāja Dhruva on his planet, the polestar; upakalpitaḥ — is situated; tasya — of that; lāṅgūle — on the tail; prajāpatiḥ — of the name Prajāpati; agniḥ — Agni; indraḥ — Indra; dharmaḥ — Dharma; iti — thus; puccha-mūle — at the base of the tail; dhātā vidhātā — the demigods known as Dhātā and Vidhātā; ca — also; kaṭyām — on the hip; sapta-ṛṣayaḥ — the seven saintly sages; tasya — of that; dakṣiṇa-āvarta-kuṇḍalī-bhūta-śarīrasya — whose body is like a coil turning toward the right side; yāni — which; udagayanāni — marking the northern courses; dakṣiṇa-pārśve — on the right side; tu — but; nakṣatrāṇi — constellations; upakalpayanti — are situated; dakṣiṇa-āyanāni — the fourteen stars, from Puṣyā to Uttarāṣāḍhā, marking the northern course; tu — but; savye — on the left side; yathā — just like; śiśumārasya — of the dolphin; kuṇḍalā-bhoga-sanniveśasya — whose body appears like a coil; pārśvayoḥ — on the sides; ubhayoḥ — both; api — certainly; avayavāḥ — the limbs; samasaṅkhyāḥ — of equal number (fourteen); bhavanti — are; pṛṣṭhe — on the back; tu — of course; ajavīthī — the first three stars marking the southern route (Mūlā, Pūrvaṣāḍhā and Uttarāṣāḍhā); ākāśa-gaṅgā — the Ganges in the sky (the Milky Way); ca — also; udarataḥ — on the abdomen.
+
+**Translation:**
+
+Translation
+This form of the śiśumāra has its head downward and its body coiled. On the end of its tail is the planet of Dhruva, on the body of its tail are the planets of the demigods Prajāpati, Agni, Indra and Dharma, and at the base of its tail are the planets of the demigods Dhātā and Vidhātā. Where the hips might be on the śiśumāra are the seven saintly sages like Vasiṣṭha and Aṅgirā. The coiled body of the Śiśumāra-cakra turns toward its right side, on which the fourteen constellations from Abhijit to Punarvasu are located. On its left side are the fourteen stars from Puṣyā to Uttarāṣāḍhā. Thus its body is balanced because its sides are occupied by an equal number of stars. On the back of the śiśumāra is the group of stars known as Ajavīthī, and on its abdomen is the Ganges that flows in the sky [the Milky Way].
+

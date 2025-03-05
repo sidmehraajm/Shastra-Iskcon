@@ -1,0 +1,22 @@
+# CC Madhya 6.30
+
+**Bengali:**
+
+সার্বভৌম-স্থানে গিয়া প্রভুকে দেখিল ।
+প্রভু দেখি’ আচার্যের দুঃখ-হর্ষ হৈল ॥ ৩০ ॥
+
+**Transliteration:**
+
+sārvabhauma-sthāne giyā prabhuke dekhila
+prabhu dekhi’ ācāryera duḥkha-harṣa haila
+
+**Synonyms:**
+
+Synonyms
+sārvabhauma-sthāne — to the place of Sārvabhauma Bhaṭṭācārya; giyā — going there; prabhuke — Lord Śrī Caitanya Mahāprabhu; dekhila — all of them saw; prabhu dekhi’ — seeing the Lord; ācāryera — of Gopīnātha Ācārya; duḥkha — unhappiness; harṣa — happiness; haila — there was.
+
+**Translation:**
+
+Translation
+Arriving at the home of Sārvabhauma Bhaṭṭācārya, everyone saw the Lord lying unconscious. Seeing Him in this condition, Gopīnātha Ācārya became very unhappy, but at the same time he was happy just to see the Lord.
+

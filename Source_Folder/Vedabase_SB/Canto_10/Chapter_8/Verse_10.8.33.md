@@ -1,0 +1,24 @@
+# ŚB 10.8.33
+
+**Sanskrit:**
+
+सा गृहीत्वा करे कृष्णमुपालभ्य हितैषिणी ।
+यशोदा भयसम्भ्रान्तप्रेक्षणाक्षमभाषत ॥ ३३ ॥
+
+**Transliteration:**
+
+sā gṛhītvā kare kṛṣṇam
+upālabhya hitaiṣiṇī
+yaśodā bhaya-sambhrānta-
+prekṣaṇākṣam abhāṣata
+
+**Synonyms:**
+
+Synonyms
+sā — mother Yaśodā; gṛhītvā — taking; kare — within the hands (being anxious about what Kṛṣṇa might have eaten); kṛṣṇam — Kṛṣṇa; upālabhya — wanted to chastise Him; hita-eṣiṇī — because she was anxious for the welfare of Kṛṣṇa, she became very much agitated, thinking, “How is it that Kṛṣṇa has eaten earth?”; yaśodā — mother Yaśodā; bhaya-sambhrānta-prekṣaṇa-akṣam — began to look very carefully within Kṛṣṇa’s mouth in fear, to see if Kṛṣṇa had eaten something dangerous; abhāṣata — began to address Kṛṣṇa.
+
+**Translation:**
+
+Translation
+Upon hearing this from Kṛṣṇa’s playmates, mother Yaśodā, who was always full of anxiety over Kṛṣṇa’s welfare, picked Kṛṣṇa up with her hands to look into His mouth and chastise Him. Her eyes fearful, she spoke to her son as follows.
+

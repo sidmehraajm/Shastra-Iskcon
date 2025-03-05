@@ -1,0 +1,22 @@
+# CC Madhya 17.125
+
+**Bengali:**
+
+“তার আগে যবে আমি তোমার নাম লইল ।
+সেহ তোমার নাম জানে, — আপনে কহিল ॥ ১২৫ ॥
+
+**Transliteration:**
+
+“tāra āge yabe āmi tomāra nāma la-ila
+seha tomāra nāma jāne, — āpane kahila
+
+**Synonyms:**
+
+Synonyms
+tāra āge — before him; yabe — when; āmi — I; tomāra — Your; nāma — name; la-ila — uttered; seha — he; tomāra — Your; nāma — name; jāne — knows; āpane kahila — he said himself.
+
+**Translation:**
+
+Translation
+The brāhmaṇa said, “As soon as I uttered Your name before him, he immediately confirmed the fact that he knew Your name.
+

@@ -1,0 +1,22 @@
+# CC Madhya 6.221
+
+**Bengali:**
+
+বাহিরে প্রভুর তেঁহো পাইল দরশন ।
+আস্তে-ব্যস্তে আসি’ কৈল চরণ বন্দন ॥ ২২১ ॥
+
+**Transliteration:**
+
+bāhire prabhura teṅho pāila daraśana
+āste-vyaste āsi’ kaila caraṇa vandana
+
+**Synonyms:**
+
+Synonyms
+bāhire — outside the house; prabhura — of Lord Śrī Caitanya Mahāprabhu; teṅho — he; pāila — got; daraśana — sight; āste-vyaste — with great haste; āsi’ — coming there; kaila — did; caraṇa vandana — worshiping the lotus feet.
+
+**Translation:**
+
+Translation
+The Bhaṭṭācārya noticed Śrī Caitanya Mahāprabhu outside, and with great haste he went to Him and offered prayers unto His lotus feet.
+

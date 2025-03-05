@@ -1,0 +1,24 @@
+# ŚB 10.7.33
+
+**Sanskrit:**
+
+द‍ृष्ट्वाद्भ‍ुतानि बहुशो नन्दगोपो बृहद्वने ।
+वसुदेववचो भूयो मानयामास विस्मित: ॥ ३३ ॥
+
+**Transliteration:**
+
+dṛṣṭvādbhutāni bahuśo
+nanda-gopo bṛhadvane
+vasudeva-vaco bhūyo
+mānayām āsa vismitaḥ
+
+**Synonyms:**
+
+Synonyms
+dṛṣṭvā — after seeing; adbhutāni — the very wonderful and astonishing incidents; bahuśaḥ — many times; nanda-gopaḥ — Nanda Mahārāja, the head of the cowherd men; bṛhadvane — in Bṛhadvana; vasudeva-vacaḥ — the words spoken by Vasudeva when Nanda Mahārāja was in Mathurā; bhūyaḥ — again and again; mānayām āsa — accepted how true they were; vismitaḥ — in great astonishment.
+
+**Translation:**
+
+Translation
+Having seen all these incidents in Bṛhadvana, Nanda Mahārāja became more and more astonished, and he remembered the words spoken to him by Vasudeva in Mathurā.
+

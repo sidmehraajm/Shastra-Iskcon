@@ -1,0 +1,22 @@
+# CC Madhya 25.192
+
+**Bengali:**
+
+স্ত্রী কহে, — জাতি লহ’, যদি প্রাণে না মারিবে ।
+রাজা কহে, — জাতি নিলে ইঁহো নাহি জীবে ॥ ১৯২ ॥
+
+**Transliteration:**
+
+strī kahe, — jāti laha’, yadi prāṇe nā māribe
+rājā kahe, — jāti nile iṅho nāhi jībe
+
+**Synonyms:**
+
+Synonyms
+strī kahe — the wife replied; jāti laha’ — then take his caste; yadi — if; prāṇe nā māribe — you will not kill him; rājā kahe — the King replied; jāti nile — if I take his caste; iṅho nāhi jībe — he will not live (he will commit suicide).
+
+**Translation:**
+
+Translation
+As a last alternative, the wife suggested that the Nawab take away Subuddhi Rāya’s caste and turn him into a Muslim, but Hussain Khān replied that if he did this, Subuddhi Rāya would not live.
+

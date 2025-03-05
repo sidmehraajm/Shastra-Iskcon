@@ -1,0 +1,20 @@
+# ŚB 5.6.7
+
+**Sanskrit:**
+
+तस्य ह वा एवं मुक्तलिङ्गस्य भगवत ऋषभस्य योगमायावासनया देह इमां जगतीमभिमानाभासेन सङ्‍क्रममाण: कोङ्कवेङ्ककुटकान्दक्षिणकर्णाटकान्देशान् यद‍ृच्छयोपगत: कुटकाचलोपवन आस्यकृताश्मकवल उन्माद इव मुक्तमूर्धजोऽसंवीत एव विचचार ॥ ७ ॥
+
+**Transliteration:**
+
+tasya ha vā evaṁ mukta-liṅgasya bhagavata ṛṣabhasya yoga-māyā-vāsanayā deha imāṁ jagatīm abhimānābhāsena saṅkramamāṇaḥ koṅka-veṅka-kuṭakān dakṣiṇa-karṇāṭakān deśān yadṛcchayopagataḥ kuṭakācalopavana āsya kṛtāśma-kavala unmāda iva mukta-mūrdhajo ’saṁvīta eva vicacāra.
+
+**Synonyms:**
+
+Synonyms
+tasya — of Him (Lord Ṛṣabhadeva); ha vā — as it were; evam — thus; mukta-liṅgasya — who had no identification with the gross and subtle body; bhagavataḥ — of the Supreme Personality of Godhead; ṛṣabhasya — of Lord Ṛṣabhadeva; yoga-māyā-vāsanayā — by the accomplishment of yoga-māyā for the purpose of the Lord’s pastimes; dehaḥ — body; imām — this; jagatīm — earth; abhimāna-ābhāsena — with the apparent conception of having a body of material elements; saṅkramamāṇaḥ — traveling; koṅka-veṅka-kuṭakān — Koṅka, Veṅka and Kuṭaka; dakṣiṇa — in South India; karṇāṭakān — in the province of Karṇāṭa; deśān — all the countries; yadṛcchayā — of His own accord; upagataḥ — reached; kuṭakācala-upavane — a forest near Kuṭakācala; āsya — within the mouth; kṛta-aśma-kavalaḥ — having put a mouthful of stone; unmādaḥ iva — just like a madman; mukta-mūrdhajaḥ — having scattered hair; asaṁvītaḥ — naked; eva — just; vicacāra — traveled.
+
+**Translation:**
+
+Translation
+Actually Lord Ṛṣabhadeva had no material body, but due to yoga-māyā He considered His body material, and therefore, because He played like an ordinary human being, He gave up the mentality of identifying with it. Following this principle, He began to wander all over the world. While traveling, He came to the province of Karṇāṭa in South India and passed through Koṅka, Veṅka and Kuṭaka. He had no plan to travel this way, but He arrived near Kuṭakācala and entered a forest there. He placed stones within His mouth and began to wander through the forest, naked and with His hair disheveled like a madman.
+

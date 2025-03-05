@@ -1,0 +1,22 @@
+# CC Madhya 4.26
+
+**Bengali:**
+
+বালকের সৌন্দর্যে পুরীর হইল সন্তোষ ।
+তাহার মধুর-বাক্যে গেল ভোক-শোষ ॥ ২৬ ॥
+
+**Transliteration:**
+
+bālakera saundarye purīra ha-ila santoṣa
+tāhāra madhura-vākye gela bhoka-śoṣa
+
+**Synonyms:**
+
+Synonyms
+bālakera — of the boy; saundarye — in the beauty; purīra — of Mādhavendra Purī; ha-ila — was; santoṣa — very much satisfaction; tāhāra — of Him; madhura-vākye — by the sweet words; gela — forgot; bhoka-śoṣa — all hunger and thirst.
+
+**Translation:**
+
+Translation
+When he saw the beauty of that boy, Mādhavendra Purī became very satisfied. Hearing His sweet words, he forgot all hunger and thirst.
+

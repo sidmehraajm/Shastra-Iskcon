@@ -1,0 +1,30 @@
+# ŚB 11.15.29
+
+**Sanskrit:**
+
+अग्‍न्यादिभिर्न हन्येत मुनेर्योगमयं वपु: ।
+मद्योगशान्तचित्तस्य यादसामुदकं यथा ॥ २९ ॥
+
+**Transliteration:**
+
+agny-ādibhir na hanyeta
+muner yoga-mayaṁ vapuḥ
+mad-yoga-śānta-cittasya
+yādasām udakaṁ yathā
+
+**Synonyms:**
+
+Synonyms
+agni — by fire; ādibhiḥ — and so on (sun, water, poison, etc.); na — not; hanyeta — can be injured; muneḥ — of a wise yogī; yoga-mayam — fully cultivated in yoga science; vapuḥ — the body; mat-yoga — by devotional connection with Me; śānta — pacified; cittasya — whose consciousness; yādasām — of the aquatics; udakam — water; yathā — just as.
+
+**Translation:**
+
+Translation
+Just as the bodies of aquatics cannot be injured by water, similarly, the body of a yogī whose consciousness is pacified by devotion to Me and who is fully developed in yoga science cannot be injured by fire, sun, water, poison, and so forth.
+
+**Purport:**
+
+Purport
+The creatures dwelling in the ocean are never injured by water; rather, they enjoy life within the watery medium. Similarly, for one skilled in the techniques of yoga, fending off attacks by weapons, fire, poison, and so on, is a recreational activity. Prahlāda Mahārāja was attacked by his father in all these ways, but because of his perfect Kṛṣṇa consciousness he was not injured. The pure devotees of the Lord depend fully on the mercy of Lord Kṛṣṇa, who possesses mystic opulences to an infinite degree and is therefore known as Yogeśvara, the master of all mystic power. Because devotees are always connected to Lord Kṛṣṇa, they do not feel any need to separately develop powers already possessed unlimitedly by their Lord, master and protector.
+If a human being falls into the middle of the ocean he quickly drowns, whereas the fish enjoy happiness sporting in the same waves. Similarly, the conditioned souls have fallen into the ocean of material existence and are drowning in the reactions to their sinful activities, whereas the devotees recognize this world to be the potency of the Lord and enjoy pleasurable pastimes within it by fully engaging in the loving service of Lord Kṛṣṇa.
+

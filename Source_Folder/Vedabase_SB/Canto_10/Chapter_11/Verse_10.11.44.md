@@ -1,0 +1,24 @@
+# ŚB 10.11.44
+
+**Sanskrit:**
+
+तं वीक्ष्य विस्मिता बाला: शशंसु: साधु साध्विति ।
+देवाश्च परिसन्तुष्टा बभूवु: पुष्पवर्षिण: ॥ ४४ ॥
+
+**Transliteration:**
+
+taṁ vīkṣya vismitā bālāḥ
+śaśaṁsuḥ sādhu sādhv iti
+devāś ca parisantuṣṭā
+babhūvuḥ puṣpa-varṣiṇaḥ
+
+**Synonyms:**
+
+Synonyms
+tam — this incident; vīkṣya — observing; vismitāḥ — very much astonished; bālāḥ — all the other boys; śaśaṁsuḥ — praised highly; sādhu sādhu iti — exclaiming, “Very good, very good”; devāḥ ca — and all the demigods from the heavenly planets; parisantuṣṭāḥ — being very much satisfied; babhūvuḥ — became; puṣpa-varṣiṇaḥ — showered flowers on Kṛṣṇa.
+
+**Translation:**
+
+Translation
+Upon seeing the dead body of the demon, all the cowherd boys exclaimed, “Well done, Kṛṣṇa! Very good, very good! Thank You.” In the upper planetary system, all the demigods were pleased, and therefore they showered flowers on the Supreme Personality of Godhead.
+

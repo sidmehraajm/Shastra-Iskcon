@@ -1,0 +1,25 @@
+# ŚB 5.8.14
+
+**Sanskrit:**
+
+क्रियायां निर्वर्त्यमानायामन्तरालेऽप्युत्थायोत्थाय यदैनमभिचक्षीत तर्हि वाव स वर्षपति: प्रकृतिस्थेन मनसा तस्मा आशिष आशास्ते स्वस्ति स्ताद्वत्स ते सर्वत इति ॥ १४ ॥
+
+**Transliteration:**
+
+kriyāyāṁ nirvartyamānāyām antarāle ’py utthāyotthāya yadainam abhicakṣīta tarhi vāva sa varṣa-patiḥ prakṛti-sthena manasā tasmā āśiṣa āśāste svasti stād vatsa te sarvata iti.
+
+**Synonyms:**
+
+Synonyms
+kriyāyām — the activities of worshiping the Lord or performing ritualistic ceremonies; nirvartyamānāyām — even without finishing; antarāle — at intervals in the middle; api — although; utthāya utthāya — repeatedly getting up; yadā — when; enam — the deer calf; abhicakṣīta — would see; tarhi vāva — at that time; saḥ — he; varṣa-patiḥ — Mahārāja Bharata; prakṛti-sthena — happy; manasā — within his mind; tasmai — unto it; āśiṣaḥ āśāste — bestows benedictions; svasti — all auspiciousness; stāt — let there be; vatsa — O my dear calf; te — unto you; sarvataḥ — in all respects; iti — thus.
+
+**Translation:**
+
+Translation
+When Mahārāja Bharata was actually worshiping the Lord or was engaged in some ritualistic ceremony, although his activities were unfinished, he would still, at intervals, get up and see where the deer was. In this way he would look for it, and when he could see that the deer was comfortably situated, his mind and heart would be very satisfied, and he would bestow his blessings upon the deer, saying, “My dear calf, may you be happy in all respects.”
+
+**Purport:**
+
+Purport
+Because his attraction for the deer was so intense, Bharata Mahārāja could not concentrate upon worshiping the Lord or performing his ritualistic ceremonies. Even though he was engaged in worshiping the Deity, his mind was restless due to his inordinate affection. While trying to meditate, he would simply think of the deer, wondering where it had gone. In other words, if one’s mind is distracted from worship, a mere show of worship will not be of any benefit. The fact that Bharata Mahārāja had to get up at intervals to look for the deer was simply a sign that he had fallen down from the spiritual platform.
+

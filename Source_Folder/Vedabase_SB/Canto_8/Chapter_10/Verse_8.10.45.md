@@ -1,0 +1,24 @@
+# ŚB 8.10.45
+
+**Sanskrit:**
+
+ससर्जाथासुरीं मायामन्तर्धानगतोऽसुर: ।
+तत: प्रादुरभूच्छैल: सुरानीकोपरि प्रभो ॥ ४५ ॥
+
+**Transliteration:**
+
+sasarjāthāsurīṁ māyām
+antardhāna-gato ’suraḥ
+tataḥ prādurabhūc chailaḥ
+surānīkopari prabho
+
+**Synonyms:**
+
+Synonyms
+sasarja — released; atha — now; āsurīm — demoniac; māyām — illusion; antardhāna — out of vision; gataḥ — having gone; asuraḥ — Bali Mahārāja; tataḥ — thereafter; prādurabhūt — there appeared; śailaḥ — a big mountain; sura-anīka-upari — above the heads of the soldiers of the demigods; prabho — O my lord.
+
+**Translation:**
+
+Translation
+My dear King, Bali Mahārāja then disappeared and resorted to demoniac illusions. A giant mountain, generated from illusion, then appeared above the heads of the demigod soldiers.
+

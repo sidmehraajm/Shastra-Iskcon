@@ -1,0 +1,24 @@
+# ŚB 10.7.28
+
+**Sanskrit:**
+
+गलग्रहणनिश्चेष्टो दैत्यो निर्गतलोचन: ।
+अव्यक्तरावो न्यपतत्सहबालो व्यसुर्व्रजे ॥ २८ ॥
+
+**Transliteration:**
+
+gala-grahaṇa-niśceṣṭo
+daityo nirgata-locanaḥ
+avyakta-rāvo nyapatat
+saha-bālo vyasur vraje
+
+**Synonyms:**
+
+Synonyms
+gala-grahaṇa-niśceṣṭaḥ — because of Kṛṣṇa’s grasping the neck of the demon Tṛṇāvarta, the demon choked and could not do anything; daityaḥ — the demon; nirgata-locanaḥ — his eyes popped out because of pressure; avyakta-rāvaḥ — because of choking, he could not even make a sound; nyapatat — fell down; saha-bālaḥ — with the child; vyasuḥ vraje — lifeless on the ground of Vraja.
+
+**Translation:**
+
+Translation
+With Kṛṣṇa grasping him by the throat, Tṛṇāvarta choked, unable to make even a sound or even to move his hands and legs. His eyes popping out, the demon lost his life and fell, along with the little boy, down to the ground of Vraja.
+

@@ -1,0 +1,22 @@
+# CC Ādi 6.80
+
+**Bengali:**
+
+তেঁহো করেন কৃষ্ণের দাস্য–প্রত্যাশ ।
+নিরন্তর কহে শিব, ‘মুঞি কৃষ্ণদাস’ ॥ ৮০ ॥
+
+**Transliteration:**
+
+teṅho karena kṛṣṇera dāsya-pratyāśa
+nirantara kahe śiva, ‘muñi kṛṣṇa-dāsa’
+
+**Synonyms:**
+
+Synonyms
+teṅho — he; karena — does; kṛṣṇera — of Lord Kṛṣṇa; dāsya-pratyāśa — expectation of being a servant; nirantara — constantly; kahe — says; śiva — Lord Śiva; muñi — I; kṛṣṇa-dāsa — a servant of Kṛṣṇa.
+
+**Translation:**
+
+Translation
+He also desires only to be a servant of Lord Kṛṣṇa. Śrī Sadāśiva always says, “I am a servant of Lord Kṛṣṇa.”
+

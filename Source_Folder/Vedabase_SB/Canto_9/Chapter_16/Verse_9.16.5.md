@@ -1,0 +1,24 @@
+# ŚB 9.16.5
+
+**Sanskrit:**
+
+व्यभिचारं मुनिर्ज्ञात्वा पत्‍न्या: प्रकुपितोऽब्रवीत् ।
+घ्नतैनां पुत्रका: पापामित्युक्तास्ते न चक्रिरे ॥ ५ ॥
+
+**Transliteration:**
+
+vyabhicāraṁ munir jñātvā
+patnyāḥ prakupito ’bravīt
+ghnataināṁ putrakāḥ pāpām
+ity uktās te na cakrire
+
+**Synonyms:**
+
+Synonyms
+vyabhicāram — adultery; muniḥ — the great sage Jamadagni; jñātvā — could understand; patnyāḥ — of his wife; prakupitaḥ — he became angry; abravīt — he said; ghnata — kill; enām — her; putrakāḥ — my dear sons; pāpām — sinful; iti uktāḥ — being thus advised; te — all the sons; na — did not; cakrire — carry out his order.
+
+**Translation:**
+
+Translation
+The great sage Jamadagni understood the adultery in the mind of his wife. Therefore he was very angry and told his sons, “My dear sons, kill this sinful woman!” But the sons did not carry out his order.
+

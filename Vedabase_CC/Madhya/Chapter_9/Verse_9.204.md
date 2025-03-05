@@ -1,0 +1,22 @@
+# CC Madhya 9.204
+
+**Bengali:**
+
+সীতা লঞা রাখিলেন পার্বতীর স্থানে ।
+‘মায়াসীতা’ দিয়া অগ্নি বঞ্চিলা রাবণে ॥ ২০৪ ॥
+
+**Transliteration:**
+
+sītā lañā rākhilena pārvatīra sthāne
+‘māyā-sītā’ diyā agni vañcilā rāvaṇe
+
+**Synonyms:**
+
+Synonyms
+sītā lañā — taking away mother Sītā; rākhilena — kept; pārvatīra sthāne — with mother Pārvatī, or goddess Durgā; māyā-sītā — the false, illusory form of Sītā; diyā — delivering; agni — fire-god; vañcilā — cheated; rāvaṇe — the demon Rāvaṇa.
+
+**Translation:**
+
+Translation
+The fire-god, Agni, took away the real Sītā and brought her to the place of Pārvatī, goddess Durgā. An illusory form of mother Sītā was then delivered to Rāvaṇa, and in this way Rāvaṇa was cheated.
+

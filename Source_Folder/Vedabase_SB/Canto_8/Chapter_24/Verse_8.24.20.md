@@ -1,0 +1,24 @@
+# ŚB 8.24.20
+
+**Sanskrit:**
+
+न म एतदलं राजन् सुखं वस्तुमुदञ्चनम् ।
+पृथु देहि पदं मह्यं यत् त्वाहं शरणं गता ॥ २० ॥
+
+**Transliteration:**
+
+na ma etad alaṁ rājan
+sukhaṁ vastum udañcanam
+pṛthu dehi padaṁ mahyaṁ
+yat tvāhaṁ śaraṇaṁ gatā
+
+**Synonyms:**
+
+Synonyms
+na — not; me — unto Me; etat — this; alam — fit; rājan — O King; sukham — in happiness; vastum — to live; udañcanam — reservoir of water; pṛthu — very great; dehi — give; padam — a place; mahyam — unto Me; yat — which; tvā — unto you; aham — I; śaraṇam — shelter; gatā — have taken.
+
+**Translation:**
+
+Translation
+The fish then said: My dear King, this reservoir of water is not fit for My happy residence. Please give Me a more extensive pool of water, for I have taken shelter of you.
+

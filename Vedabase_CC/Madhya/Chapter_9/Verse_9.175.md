@@ -1,0 +1,22 @@
+# CC Madhya 9.175
+
+**Bengali:**
+
+শিব-দুর্গা রহে তাহাঁ ব্রাহ্মণের বেশে ।
+মহাপ্রভু দেখি’ দোঁহার হইল উল্লাসে ॥ ১৭৫ ॥
+
+**Transliteration:**
+
+śiva-durgā rahe tāhāṅ brāhmaṇera veśe
+mahāprabhu dekhi’ doṅhāra ha-ila ullāse
+
+**Synonyms:**
+
+Synonyms
+śiva-durgā — Lord Śiva and his wife, Durgā; rahe tāhāṅ — stayed there; brāhmaṇera veśe — in the dress of brāhmaṇas; doṅhāra — of both of them; ha-ila — there was; ullāse — great pleasure.
+
+**Translation:**
+
+Translation
+In Śrī Śaila Lord Śiva and his wife Durgā lived in the dress of brāhmaṇas, and when they saw Śrī Caitanya Mahāprabhu, they became very pleased.
+

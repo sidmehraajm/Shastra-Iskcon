@@ -1,0 +1,40 @@
+# ŚB 11.2.55
+
+**Sanskrit:**
+
+विसृजति हृदयं न यस्य साक्षा-
+द्धरिरवशाभिहितोऽप्यघौघनाश: ।
+प्रणयरसनया धृताङ्‍‍घ्रिपद्म:
+स भवति भागवतप्रधान उक्त: ॥ ५५ ॥
+
+**Transliteration:**
+
+visṛjati hṛdayaṁ na yasya sākṣād
+dharir avaśābhihito ’py aghaugha-nāśaḥ
+praṇaya-rasanayā dhṛtāṅghri-padmaḥ
+sa bhavati bhāgavata-pradhāna uktaḥ
+
+**Synonyms:**
+
+Synonyms
+visṛjati — He leaves; hṛdayam — the heart; na — never; yasya — of whom; sākṣāt — Himself; hariḥ — Lord Hari; avaśa — accidentally; abhihitaḥ — called; api — even though; agha — of sins; ogha — heaps; nāśaḥ — who destroys; praṇaya — of love; rasanayā — by ropes; dhṛta — held; aṅghri-padmaḥ — His lotus feet; saḥ — he; bhavati — is; bhāgavata-pradhānaḥ — the foremost devotee; uktaḥ — called.
+
+**Translation:**
+
+Translation
+The Supreme Personality of Godhead is so kind to the conditioned souls that if they call upon Him by speaking His holy name, even unintentionally or unwillingly, the Lord is inclined to destroy innumerable sinful reactions in their hearts. Therefore, when a devotee who has taken shelter of the Lord’s lotus feet chants the holy name of Kṛṣṇa with genuine love, the Supreme Personality of Godhead can never give up the heart of such a devotee. One who has thus captured the Supreme Lord within his heart is to be known as bhāgavata-pradhāna, the most exalted devotee of the Lord.
+
+**Purport:**
+
+Purport
+According to Śrīla Śrīdhara Svāmī, the essence of a pure devotee’s qualifications is given in this verse. A pure devotee is one who has attracted the Lord by his love so that the Lord cannot give up the devotee’s heart. According to Śrīla Jīva Gosvāmī, the word sākṣāt in this verse indicates that a pure devotee has realized knowledge of the Supreme Personality of Godhead, having given his heart to the Supreme Lord, Kṛṣṇa, who is all-attractive in six opulences, including beauty. A pure devotee can never be attracted by the fleshy bags of women’s breasts or by the hallucinations of so-called society, friendship and love within the material world. Therefore his clean heart becomes a suitable abode for the Supreme Lord. A gentleman will live only in a clean place. He will not live in a polluted, contaminated place. Educated people in the Western countries are now greatly protesting the pollution of water and air by urban industrial enterprises. People are demanding the right to live in a clean place. Similarly, Lord Kṛṣṇa is the supreme gentleman, and therefore He will not live in a polluted heart, nor will He appear within the polluted mind of a conditioned soul. When a devotee surrenders to Lord Kṛṣṇa and becomes a lover of the Lord by direct realization of Kṛṣṇa’s all-attractive nature, the Lord makes His residence in the clean heart and mind of such a pure devotee.
+According to Śrīla Jīva Gosvāmī, ya etādṛśa-praṇayavāṁs tenānena tu sarvadā paramāvaśenaiva kīrtyamānaḥ sutarām evam evāghaugha-nāśaḥ syāt. If a devotee is absorbed in the loving transcendental service of Kṛṣṇa, directly or indirectly he is always glorifying the Lord by transcendental loving service. Therefore, even if he chants the holy name of Kṛṣṇa with improper attention due to being absorbed in the Lord’s service, the mercy of the Lord purifies his heart of all sinful reactions. As stated in Śrīmad-Bhāgavatam (2.1.11):
+etan nirvidyamānānām
+icchatām akuto-bhayam
+yogināṁ nṛpa nirṇītaṁ
+harer nāmānukīrtanam
+“O King, constant chanting of the holy name of the Lord after the ways of the great authorities is the doubtless and fearless way of success for all, including those who are free from all material desires, those who are desirous of all material enjoyment, and also those who are self-satisfied by dint of transcendental knowledge.” Therefore if one who has not come to the platform of loving devotional service chants the holy name of Kṛṣṇa, he will also be gradually freed from all sinful reactions. In the Sixth Canto of Śrīmad-Bhāgavatam, in the purports to the history of Ajāmila, Śrīla Prabhupāda has elaborately explained the holy name’s potency to purify even an ordinary person.
+Śrīla Viśvanātha Cakravartī Ṭhākura has nicely explained the process of bringing the Supreme Lord under control. Mother Yaśodā bound the child Kṛṣṇa to a grinding mortar with a rope. Kṛṣṇa, being attracted by the inconceivable love of His devotees, allowed Himself to be bound. Therefore, although Lord Kṛṣṇa binds all the conditioned souls by the chains of His illusory potency, māyā, if those same conditioned souls become pure devotees of the Lord they can in turn bind Kṛṣṇa by the chains of love of God.
+According to Śrīla Bhaktisiddhānta Sarasvatī Ṭhākura, all the world’s inauspicious conditions due to sinful activities can be immediately eradicated by the chanting of the Lord’s holy name. The Supreme Personality of Godhead never leaves the hearts of those who give up all sinful behavior and chant His holy name. Even if such chanting is not yet perfect, devotees who always remain in the Lord’s service will gradually come to the stage of prema-niṣṭhā, or steady love of Godhead. Then they are to be considered mahā-bhāgavatas, or pure devotees of the Lord.
+Thus end the purports of the humble servants of His Divine Grace A.C. Bhaktivedanta Swami Prabhupāda to the Eleventh Canto, Second Chapter, of the Śrīmad-Bhāgavatam, entitled “Mahārāja Nimi Meets the Nine Yogendras.”
+

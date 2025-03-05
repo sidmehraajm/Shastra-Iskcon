@@ -1,0 +1,22 @@
+# CC Ādi 4.82
+
+**Bengali:**
+
+গোবিন্দানন্দিনী, রাধা, গোবিন্দমোহিনী ।
+গোবিন্দসর্বস্ব, সর্বকান্তা–শিরোমণি ॥ ৮২ ॥
+
+**Transliteration:**
+
+govindānandinī rādhā, govinda-mohinī
+govinda-sarvasva, sarva-kāntā-śiromaṇi
+
+**Synonyms:**
+
+Synonyms
+govinda-ānandinī — She who gives pleasure to Govinda; rādhā — Śrīmatī Rādhārāṇī; govinda-mohinī — She who mystifies Govinda; govinda-sarvasva — the be-all and end-all of Lord Govinda; sarva-kāntā — of all the Lord’s lovers; śiromaṇi — the crown jewel.
+
+**Translation:**
+
+Translation
+Rādhā is the one who gives pleasure to Govinda, and She is also the enchantress of Govinda. She is the be-all and end-all of Govinda, and the crest jewel of all His consorts.
+

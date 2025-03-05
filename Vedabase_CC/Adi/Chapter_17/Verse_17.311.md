@@ -1,0 +1,22 @@
+# CC Ādi 17.311
+
+**Bengali:**
+
+লিখিত গ্রন্থের যদি করি অনুবাদ ।
+তবে সে গ্রন্থের অর্থ পাইয়ে আস্বাদ ॥ ৩১১ ॥
+
+**Transliteration:**
+
+likhita granthera yadi kari anuvāda
+tabe se granthera artha pāiye āsvāda
+
+**Synonyms:**
+
+Synonyms
+likhita — written; granthera — of the scripture; yadi — if; kari — I do; anuvāda — repetition; tabe — then; se granthera — of that scripture; artha — the meaning; pāiye — I can get; āsvāda — taste.
+
+**Translation:**
+
+Translation
+If I repeat what is already written, I may thus relish the purport of this scripture.
+

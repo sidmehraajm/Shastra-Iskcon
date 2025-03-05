@@ -1,0 +1,29 @@
+# ŚB 10.11.14
+
+**Sanskrit:**
+
+क्रीडन्तं सा सुतं बालैरतिवेलं सहाग्रजम् ।
+यशोदाजोहवीत्कृष्णं पुत्रस्‍नेहस्‍नुतस्तनी ॥ १४ ॥
+
+**Transliteration:**
+
+krīḍantaṁ sā sutaṁ bālair
+ativelaṁ sahāgrajam
+yaśodājohavīt kṛṣṇaṁ
+putra-sneha-snuta-stanī
+
+**Synonyms:**
+
+Synonyms
+krīḍantam — engaged in playing; sā — mother Yaśodā; sutam — her son; bālaiḥ — with the other boys; ati-velam — although it was too late; saha-agrajam — who was playing with His elder brother, Balarāma; yaśodā — mother Yaśodā; ajohavīt — called (“Kṛṣṇa and Balarāma, come here!”); kṛṣṇam — unto Kṛṣṇa; putra-sneha-snuta-stanī — while she was calling Them, milk flowed from her breast because of her ecstatic love and affection.
+
+**Translation:**
+
+Translation
+Kṛṣṇa and Balarāma, being attached to Their play, were playing with the other boys although it was very late. Therefore mother Yaśodā called Them back for lunch. Because of her ecstatic love and affection for Kṛṣṇa and Balarāma, milk flowed from her breasts.
+
+**Purport:**
+
+Purport
+The word ajohavīt means “calling them again and again.” “Kṛṣṇa and Balarāma,” she called, “please come back. You are late for Your lunch. You have played sufficiently. Come back.”
+

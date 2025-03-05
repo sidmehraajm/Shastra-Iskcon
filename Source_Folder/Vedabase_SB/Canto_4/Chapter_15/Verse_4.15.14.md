@@ -1,0 +1,24 @@
+# ŚB 4.15.14
+
+**Sanskrit:**
+
+तस्मै जहार धनदो हैमं वीर वरासनम् ।
+वरुण: सलिलस्रावमातपत्रं शशिप्रभम् ॥ १४ ॥
+
+**Transliteration:**
+
+tasmai jahāra dhanado
+haimaṁ vīra varāsanam
+varuṇaḥ salila-srāvam
+ātapatraṁ śaśi-prabham
+
+**Synonyms:**
+
+Synonyms
+tasmai — unto him; jahāra — presented; dhana-daḥ — the treasurer of the demigods (Kuvera); haimam — made of gold; vīra — O Vidura; vara-āsanam — royal throne; varuṇaḥ — the demigod Varuṇa; salila-srāvam — dropping particles of water; ātapatram — umbrella; śaśi-prabham — as brilliant as the moon.
+
+**Translation:**
+
+Translation
+The great sage continued: My dear Vidura, Kuvera presented the great King Pṛthu with a golden throne. The demigod Varuṇa presented him with an umbrella that constantly sprayed fine particles of water and was as brilliant as the moon.
+

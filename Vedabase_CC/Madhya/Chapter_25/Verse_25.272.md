@@ -1,0 +1,24 @@
+# CC Madhya 25.272
+
+**Bengali:**
+
+ভক্তগণ, শুন মোর দৈন্য-বচন ।
+তোমা-সবার পদধূলি,     অঙ্গে বিভূষণ করি’,
+কিছু মুঞি করোঁ নিবেদন ॥ ২৭২ ॥ ধ্রু ॥
+
+**Transliteration:**
+
+bhakta-gaṇa, śuna mora dainya-vacana
+tomā-sabāra pada-dhūli, aṅge vibhūṣaṇa kari’,
+kichu muñi karoṅ nivedana
+
+**Synonyms:**
+
+Synonyms
+bhakta-gaṇa — O devotees; śuna — please hear; mora — my; dainya-vacana — humble submission; tomā-sabāra — of all of you; pada-dhūli — the dust of the feet; aṅge — on my body; vibhūṣaṇa kari’ — taking as ornaments; kichu — something; muñi — I; karoṅ nivedana — wish to submit.
+
+**Translation:**
+
+Translation
+With all humility, I submit myself to the lotus feet of all of you devotees, taking the dust from your feet as my bodily ornaments. Now, my dear devotees, please hear one thing more from me.
+

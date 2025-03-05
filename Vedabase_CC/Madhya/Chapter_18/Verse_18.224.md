@@ -1,0 +1,22 @@
+# CC Madhya 18.224
+
+**Bengali:**
+
+তাহা কে কহিতে পারে ক্ষুদ্র জীব হঞা ।
+দিগ্-দরশন কৈলুঁ মুঞি সূত্র করিয়া ॥ ২২৪ ॥
+
+**Transliteration:**
+
+tāhā ke kahite pāre kṣudra jīva hañā
+dig-daraśana kailuṅ muñi sūtra kariyā
+
+**Synonyms:**
+
+Synonyms
+tāhā — that; ke kahite pāre — who can describe; kṣudra — very little; jīva hañā — being a conditioned soul; dik-daraśana kailuṅ — have simply made an indication; muñi — I; sūtra kariyā — in summary form.
+
+**Translation:**
+
+Translation
+What ordinary living being can describe the pastimes of Śrī Caitanya Mahāprabhu? I have only indicated the general direction in the form of a summary.
+

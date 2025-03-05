@@ -1,0 +1,49 @@
+# ŚB 10.2.1-2
+
+**Sanskrit:**
+
+श्रीशुक उवाच
+प्रलम्बबकचाणूरतृणावर्तमहाशनै: । मुष्टिकारिष्टद्विविदपूतनाकेशीधेनुकै: ॥ १ ॥ अन्यैश्चासुरभूपालैर्बाणभौमादिभिर्युत: । यदूनां कदनं चक्रे बली मागधसंश्रय: ॥ २ ॥
+
+**Transliteration:**
+
+śrī-śuka uvāca
+pralamba-baka-cāṇūra-
+tṛṇāvarta-mahāśanaiḥ
+muṣṭikāriṣṭa-dvivida-
+pūtanā-keśī-dhenukaiḥ
+anyaiś cāsura-bhūpālair
+bāṇa-bhaumādibhir yutaḥ
+yadūnāṁ kadanaṁ cakre
+balī māgadha-saṁśrayaḥ
+
+**Synonyms:**
+
+Synonyms
+śrī-śukaḥ uvāca — Śrī Śukadeva Gosvāmī said; pralamba — by the asura named Pralamba; baka — by the asura named Baka; cāṇūra — by the asura named Cāṇūra; tṛṇāvarta — by the asura named Tṛṇāvarta; mahāśanaiḥ — by Aghāsura; muṣṭika — by the asura named Muṣṭika; ariṣṭa — by the asura Ariṣṭa; dvivida — by the asura named Dvivida; pūtanā — by Pūtanā; keśī — by Keśī; dhenukaiḥ — by Dhenuka; anyaiḥ ca — and by many others; asura-bhūpālaiḥ — by demoniac kings on the surface of the globe; bāṇa — by King Bāṇa; bhauma — by Bhaumāsura; ādibhiḥ — and by others as well; yutaḥ — being assisted; yadūnām — of the kings of the Yadu dynasty; kadanam — persecution; cakre — regularly performed; balī — very powerful; māgadha-saṁśrayaḥ — under the protection of Jarāsandha, the King of Magadha.
+
+**Translation:**
+
+Translation
+Śukadeva Gosvāmī said: Under the protection of Magadharāja, Jarāsandha, the powerful Kaṁsa began persecuting the kings of the Yadu dynasty. In this he had the cooperation of demons like Pralamba, Baka, Cāṇūra, Tṛṇāvarta, Aghāsura, Muṣṭika, Ariṣṭa, Dvivida, Pūtanā, Keśī, Dhenuka, Bāṇāsura, Narakāsura and many other demoniac kings on the surface of the earth.
+
+**Purport:**
+
+Purport
+This verse supports the following statement given by the Lord in Bhagavad-gītā (4.7-8):
+yadā yadā hi dharmasya
+glānir bhavati bhārata
+abhyutthānam adharmasya
+tadātmānaṁ sṛjāmy aham
+paritrāṇāya sādhūnāṁ
+vināśāya ca duṣkṛtām
+dharma-saṁsthāpanārthāya
+sambhavāmi yuge yuge
+“Whenever and wherever there is a decline in religious practice, O descendant of Bharata, and a predominant rise of irreligion — at that time I descend Myself. To deliver the pious and to annihilate the miscreants, as well as to reestablish the principles of religion, I Myself appear millennium after millennium.”
+The Lord’s purpose in maintaining this material world is to give everyone a chance to go back home, back to Godhead, but kings and political leaders unfortunately try to hinder the purpose of the Lord, and therefore the Lord appears, either personally or with His plenary portions, to set things right. It is therefore said:
+garbhaṁ sañcārya rohiṇyāṁ
+devakyā yogamāyayā
+tasyāḥ kukṣiṁ gataḥ kṛṣṇo
+dvitīyo vibudhaiḥ stutaḥ
+“Kṛṣṇa appeared in the womb of Devakī after transferring Baladeva to the womb of Rohiṇī by the power of Yoga-māyā.” Yadubhiḥ sa vyarudhyata. The kings of the Yadu dynasty were all devotees, but there were many powerful demons, such as Śālva, who began to persecute them. At that time, Jarāsandha, who was Kaṁsa’s father-in-law, was extremely powerful, and therefore Kaṁsa took advantage of his protection and the help of the demons in persecuting the kings of the Yadu dynasty. The demons naturally appeared more powerful than the demigods, but ultimately, because of help received from the Supreme Personality of Godhead, the demons were defeated and the demigods triumphant.
+

@@ -1,0 +1,30 @@
+# ŚB 11.7.29
+
+**Sanskrit:**
+
+जनेषु दह्यमानेषु कामलोभदवाग्निना ।
+न तप्यसेऽग्निना मुक्तो गङ्गाम्भ:स्थ इव द्विप: ॥ २९ ॥
+
+**Transliteration:**
+
+janeṣu dahyamāneṣu
+kāma-lobha-davāgninā
+na tapyase ’gninā mukto
+gaṅgāmbhaḥ-stha iva dvipaḥ
+
+**Synonyms:**
+
+Synonyms
+janeṣu — all people; dahyamāneṣu — even while they are burning; kāma — of lust; lobha — and greed; dava-agninā — in the forest fire; na tapyase — you are not burned; agninā — from the fire; muktaḥ — free; gaṅgā-ambhaḥ — in the water of the Gaṅgā; sthaḥ — standing; iva — as if; dvipaḥ — an elephant.
+
+**Translation:**
+
+Translation
+Although all people within the material world are burning in the great forest fire of lust and greed, you remain free and are not burned by that fire. You are just like an elephant who takes shelter from a forest fire by standing within the water of the Ganges River.
+
+**Purport:**
+
+Purport
+The natural result of transcendental bliss is described in this verse. The young brāhmaṇa was physically very attractive, and his senses were full of potency for material enjoyment, yet he was not at all affected by material lust. This position is called mukti, or liberation.
+Śrīla Bhaktisiddhānta Sarasvatī Ṭhākura explains that within the Ganges flow great currents of water, capable of extinguishing a blazing fire. If an elephant maddened by sex desire stands within the Ganges, its powerful, cooling currents extinguish his lust, and the elephant becomes pacified. Similarly, ordinary human beings trapped in the cycle of birth and death are constantly harassed by the enemies of lust and greed, which never allow the mind to be completely peaceful. But if, following the example of the elephant, one situates oneself within the cooling waves of transcendental bliss, then all material desire will soon be extinguished, and one will become śānta, or peaceful. As described in Śrī Caitanya-caritāmṛta, kṛṣṇa-bhakta niṣkāma ataeva śānta. Thus, everyone should take to the movement of Caitanya Mahāprabhu and cleanse himself in the cooling waters of Kṛṣṇa consciousness, our real, eternal consciousness.
+

@@ -1,0 +1,24 @@
+# ŚB 7.4.3
+
+**Sanskrit:**
+
+ततो जगाम भगवानमोघानुग्रहो विभु: ।
+पूजितोऽसुरवर्येण स्तूयमान: प्रजेश्वरै: ॥ ३ ॥
+
+**Transliteration:**
+
+tato jagāma bhagavān
+amoghānugraho vibhuḥ
+pūjito ’sura-varyeṇa
+stūyamānaḥ prajeśvaraiḥ
+
+**Synonyms:**
+
+Synonyms
+tataḥ — thereafter; jagāma — departed; bhagavān — the most powerful, Lord Brahmā; amogha — without failure; anugrahaḥ — whose benediction; vibhuḥ — the Supreme within this universe; pūjitaḥ — being worshiped; asura-varyeṇa — by the most exalted demon (Hiraṇyakaśipu); stūyamānaḥ — being praised; prajā-īśvaraiḥ — by many demigods, the masters of different regions.
+
+**Translation:**
+
+Translation
+Then Lord Brahmā, who awards infallible benedictions, departed, being worshiped by the best of the demons, Hiraṇyakaśipu, and being praised by great sages and saintly persons.
+

@@ -1,0 +1,28 @@
+# ŚB 5.11.3
+
+**Sanskrit:**
+
+न तस्य तत्त्वग्रहणाय साक्षाद्वरीयसीरपि वाच: समासन् । स्वप्ने निरुक्त्या गृहमेधिसौख्यंन यस्य हेयानुमितं स्वयं स्यात् ॥ ३ ॥
+
+**Transliteration:**
+
+na tasya tattva-grahaṇāya sākṣād
+varīyasīr api vācaḥ samāsan
+svapne niruktyā gṛhamedhi-saukhyaṁ
+na yasya heyānumitaṁ svayaṁ syāt
+
+**Synonyms:**
+
+Synonyms
+na — not; tasya — of him (a student studying the Vedas); tattva-grahaṇāya — for accepting the real purpose of Vedic knowledge; sākṣāt — directly; varīyasīḥ — very exalted; api — although; vācaḥ — words of the Vedas; samāsan — sufficiently became; svapne — in a dream; niruktyā — by example; gṛha-medhi-saukhyam — happiness within this material world; na — not; yasya — of him who; heya-anumitam — concluded to be inferior; svayam — automatically; syāt — become.
+
+**Translation:**
+
+Translation
+A dream becomes automatically known to a person as false and immaterial, and similarly one eventually realizes that material happiness in this life or the next, on this planet or a higher planet, is insignificant. When one realizes this, the Vedas, although an excellent source, are insufficient to bring about direct knowledge of the truth.
+
+**Purport:**
+
+Purport
+In Bhagavad-gītā (2.45), Kṛṣṇa advised Arjuna to become transcendental to the material activities impelled by the three material modes of nature (traiguṇya-viṣayā vedā nistraiguṇyo bhavārjuna). The purpose of Vedic study is to transcend the activities of the three modes of material nature. Of course in the material world the mode of goodness is accepted as the best, and one can be promoted to the higher planetary systems by being on the sattva-guṇa platform. However, that is not perfection. One must come to the conclusion that even the sattva-guṇa platform is also not good. One may dream that he has become a king with a good family, wife and children, but immediately at the end of that dream he comes to the conclusion that it is false. Similarly, all kinds of material happiness are undesirable for a person who wants spiritual salvation. If a person does not come to the conclusion that he has nothing to do with any kind of material happiness, he cannot come to the platform of understanding the Absolute Truth, or tattva jñāna. Karmīs, jñānīs and yogīs are after some material elevation. The karmīs work hard day and night for some bodily comfort, and the jñānīs simply speculate about how to get out of the entanglement of karma and merge into the Brahman effulgence. The yogīs are very much addicted to the acquisition of material perfection and magical powers. All of them are trying to be materially perfect, but a devotee very easily comes to the platform of nirguṇa in devotional service, and consequently for the devotee the results of karma, jñāna and yoga become very insignificant. Therefore only the devotee is on the platform of tattva jñāna, not the others. Of course the jñānī’s position is better than that of the karmī but that position is also insufficient. The jñānī must actually become liberated, and after liberation he may be situated in devotional service (mad-bhaktiṁ labhate parām).
+

@@ -1,0 +1,22 @@
+# CC Madhya 19.63
+
+**Bengali:**
+
+কৃষ্ণকথায় প্রভুর মহাপ্রেম উথলিল ।
+ভট্টের সঙ্কোচে প্রভু সম্বরণ কৈল ॥ ৬৩ ॥
+
+**Transliteration:**
+
+kṛṣṇa-kathāya prabhura mahā-prema uthalila
+bhaṭṭera saṅkoce prabhu samvaraṇa kaila
+
+**Synonyms:**
+
+Synonyms
+kṛṣṇa-kathāya — in the discussion on Kṛṣṇa; prabhura — of Śrī Caitanya Mahāprabhu; mahā-prema — great love; uthalila — arose; bhaṭṭera — of the Bhaṭṭācārya; saṅkoce — due to shyness; prabhu — Śrī Caitanya Mahāprabhu; samvaraṇa kaila — restrained Himself.
+
+**Translation:**
+
+Translation
+Śrī Caitanya Mahāprabhu felt great ecstatic love when they began discussing Kṛṣṇa, but the Lord checked His feelings because He felt shy before Vallabha Bhaṭṭa.
+

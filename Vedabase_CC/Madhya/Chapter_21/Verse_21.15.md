@@ -1,0 +1,35 @@
+# CC Madhya 21.15
+
+**Bengali:**
+
+দ্যুপতয় এব তে ন যযুরন্তমনন্ততয়া
+ত্বমপি যদন্তরাণ্ডনিচয়া ননু সাবরণাঃ ।
+খ ইব রজাংসি বান্তি বয়সা সহ যচ্ছ্রুতয়-
+স্ত্বয়ি হি ফলন্ত্যতন্নিরসনেন ভবন্নিধনাঃ ॥ ১৫ ॥
+
+**Transliteration:**
+
+dyu-pataya eva te na yayur antam anantatayā
+tvam api yad-antarāṇḍa-nicayā nanu sāvaraṇāḥ
+kha iva rajāṁsi vānti vayasā saha yac chrutayas
+tvayi hi phalanty atan-nirasanena bhavan-nidhanāḥ
+
+**Synonyms:**
+
+Synonyms
+dyu-patayaḥ — the predominating deities of higher planetary systems (Lord Brahmā and others); eva — also; te — Your; na yayuḥ — cannot reach; antam — the limit of transcendental qualities; anantatayā — due to being unlimited; tvam api — You also; yat — since; antara — within You; aṇḍa-nicayāḥ — the groups of universes; nanu — O Sir; sa-avaraṇāḥ — having different coverings; khe — in the sky; iva — like; rajāṁsi — atoms; vānti — rotate; vayasā — the course of time; saha — with; yat — what; śrutayaḥ — great personalities who understand the Vedas; tvayi — in You; hi — certainly; phalanti — end in; atan nirasanena — by refuting the inferior elements; bhavat-nidhanāḥ — whose conclusion is in You.
+
+**Translation:**
+
+Translation
+“ ‘My Lord, You are unlimited. Even the predominating deities of the higher planetary systems, including Lord Brahmā, cannot find Your limitations. Nor can You Yourself ascertain the limit of Your qualities. Like atoms in the sky, there are multi-universes with seven coverings, and these are rotating in due course of time. All the experts in Vedic understanding are searching for You by eliminating the material elements. In this way, searching and searching, they come to the conclusion that everything is complete in You. Thus You are the resort of everything. This is the conclusion of all Vedic experts.’
+
+**Purport:**
+
+Purport
+This verse from Śrīmad-Bhāgavatam (10.87.41), which was spoken by the personified Vedas, is confirmed by Lord Kṛṣṇa in the Bhagavad-gītā (7.19):
+bahūnāṁ janmanām ante jñānavān māṁ prapadyate
+vāsudevaḥ sarvam iti sa mahātmā su-durlabhaḥ
+“After many births and deaths, he who is actually in knowledge surrenders unto Me, knowing Me to be the cause of all causes and all that is. Such a great soul is very rare.” Even after searching for the Absolute Truth throughout the universe, learned scholars and Vedic experts cannot reach the ultimate goal. In this way they come to Kṛṣṇa.
+When there is a discussion about the Absolute Truth, there are always various pros and cons. The purpose of such arguments is to come to the right conclusion. Such an argument is generally known as neti neti (“not this, not that”). Until one comes to the right conclusion, the process of thinking “This is not the Absolute Truth, that is not the Absolute Truth” will continue. When we come to the right conclusion, we accept the Supreme Personality of Godhead, Kṛṣṇa, as the ultimate truth.
+

@@ -1,0 +1,28 @@
+# CC Antya 1.170
+
+**Bengali:**
+
+vidhur eti divā virūpatāṁ
+śata-patraṁ bata śarvarī-mukhe
+iti kena sadā śriyojjvalaṁ
+tulanām arhati mat-priyānanam
+
+**Transliteration:**
+
+vidhuḥ — the moon; eti — becomes; divā — by daytime; virūpatām — faded away; śata-patram — the lotus flower; bata — alas; śarvarī-mukhe — in the beginning of evening; iti — thus; kena — with what; sadā — always; śriyā-ujjvalam — brilliant with beauty; tulanām — comparison; arhati — deserves; mat — of Me; priyā — of the dear one; ānanam — the face.
+
+**Synonyms:**
+
+Synonyms
+vidhuḥ — the moon; eti — becomes; divā — by daytime; virūpatām — faded away; śata-patram — the lotus flower; bata — alas; śarvarī-mukhe — in the beginning of evening; iti — thus; kena — with what; sadā — always; śriyā-ujjvalam — brilliant with beauty; tulanām — comparison; arhati — deserves; mat — of Me; priyā — of the dear one; ānanam — the face.
+
+**Translation:**
+
+Translation
+“ ‘Although the effulgence of the moon is brilliant initially at night, in the daytime it fades away. Similarly, although the lotus is beautiful during the daytime, at night it closes. But, O My friend, the face of My most dear Śrīmatī Rādhārāṇī is always bright and beautiful, both day and night. Therefore, to what can Her face be compared?’
+
+**Purport:**
+
+Purport
+This verse (Vidagdha-mādhava 5.20) is spoken by Śrī Kṛṣṇa to Madhumaṅgala.
+

@@ -1,0 +1,37 @@
+# ŚB 10.10.38
+
+**Sanskrit:**
+
+वाणी गुणानुकथने श्रवणौ कथायां
+हस्तौ च कर्मसु मनस्तव पादयोर्न: ।
+स्मृत्यां शिरस्तव निवासजगत्प्रणामे
+द‍ृष्टि: सतां दर्शनेऽस्तु भवत्तनूनाम् ॥ ३८ ॥
+
+**Transliteration:**
+
+vāṇī guṇānukathane śravaṇau kathāyāṁ
+hastau ca karmasu manas tava pādayor naḥ
+smṛtyāṁ śiras tava nivāsa-jagat-praṇāme
+dṛṣṭiḥ satāṁ darśane ’stu bhavat-tanūnām
+
+**Synonyms:**
+
+Synonyms
+vāṇī — words, the power of speech; guṇa-anukathane — always engaged in talking about Your pastimes; śravaṇau — the ear, or aural reception; kathāyām — in talks about You and Your pastimes; hastau — hands and legs and other senses; ca — also; karmasu — engaging them in executing Your mission; manaḥ — the mind; tava — Your; pādayoḥ — of Your lotus feet; naḥ — our; smṛtyām — in remembrance always engaged in meditation; śiraḥ — the head; tava — Your; nivāsa-jagat-praṇāme — because You are all-pervading, You are everything, and our heads should bow down, not looking for enjoyment; dṛṣṭiḥ — the power of sight; satām — of the Vaiṣṇavas; darśane — in seeing; astu — let all of them be engaged in this way; bhavat-tanūnām — who are nondifferent from You.
+
+**Translation:**
+
+Translation
+Henceforward, may all our words describe Your pastimes, may our ears engage in aural reception of Your glories, may our hands, legs and other senses engage in actions pleasing to You, and may our minds always think of Your lotus feet. May our heads offer our obeisances to everything within this world, because all things are also Your different forms, and may our eyes see the forms of Vaiṣṇavas, who are nondifferent from You.
+
+**Purport:**
+
+Purport
+Here the process of understanding the Supreme Personality of Godhead is given. This process is bhakti.
+śravaṇaṁ kīrtanaṁ viṣṇoḥ
+smaraṇaṁ pāda-sevanam
+arcanaṁ vandanaṁ dāsyaṁ
+sakhyam ātma-nivedanam
+(Bhāg. 7.5.23)
+Everything should be engaged in the service of the Lord. Hṛṣīkeṇa hṛṣīkeśa-sevanaṁ bhaktir ucyate (Nārada-pañcarātra). Everything — the mind, the body and all the sense organs — should be engaged in Kṛṣṇa’s service. This is to be learned from expert devotees like Nārada, Svayambhū and Śambhu. This is the process. We cannot manufacture our own way of understanding the Supreme Personality of Godhead, for it is not that everything one manufactures or concocts will lead to understanding God. Such a proposition — yata mata, tata patha — is foolish. Kṛṣṇa says, bhaktyāham ekayā grāhyaḥ: “Only by executing the activities of bhakti can one understand Me.” (Bhāg. 11.14.21) This is called ānukūlyena kṛṣṇānuśīlanam, remaining engaged favorably in the service of the Lord.
+

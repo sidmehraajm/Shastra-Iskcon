@@ -1,0 +1,40 @@
+# ŚB 10.1.2
+
+**Sanskrit:**
+
+यदोश्च धर्मशीलस्य नितरां मुनिसत्तम । तत्रांशेनावतीर्णस्य विष्णोर्वीर्याणि शंस न: ॥ २ ॥
+
+**Transliteration:**
+
+yadoś ca dharma-śīlasya
+nitarāṁ muni-sattama
+tatrāṁśenāvatīrṇasya
+viṣṇor vīryāṇi śaṁsa naḥ
+
+**Synonyms:**
+
+Synonyms
+yadoḥ — of Yadu or the Yadu dynasty; ca — also; dharma-śīlasya — who were strictly attached to religious principles; nitarām — highly qualified; muni-sattama — O best of all munis, king of the munis (Śukadeva Gosvāmī); tatra — in that dynasty; aṁśena — with His plenary expansion Baladeva; avatīrṇasya — who appeared as an incarnation; viṣṇoḥ — of Lord Viṣṇu; vīryāṇi — the glorious activities; śaṁsa — kindly describe; naḥ — unto us.
+
+**Translation:**
+
+Translation
+O best of munis, you have also described the descendants of Yadu, who were very pious and strictly adherent to religious principles. Now, if you will, kindly describe the wonderful, glorious activities of Lord Viṣṇu, or Kṛṣṇa, who appeared in that Yadu dynasty with Baladeva, His plenary expansion.
+
+**Purport:**
+
+Purport
+The Brahma-saṁhitā (5.1) explains that Kṛṣṇa is the origin of the viṣṇu-tattva.
+īśvaraḥ paramaḥ kṛṣṇaḥ
+sac-cid-ānanda-vigrahaḥ
+anādir ādir govindaḥ
+sarva-kāraṇa-kāraṇam
+“Kṛṣṇa, who is known as Govinda, is the supreme controller. He has an eternal, blissful, spiritual body. He is the origin of all. He has no other origin, for He is the prime cause of all causes.”
+yasyaika-niśvasita-kālam athāvalambya
+jīvanti loma-vilajā jagad-aṇḍa-nāthāḥ
+viṣṇur mahān sa iha yasya kalā-viśeṣo
+govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
+“The Brahmās, the heads of the innumerable universes, live only for the duration of one breath of Mahā-Viṣṇu. I worship Govinda, the original Lord, of whom Mahā-Viṣṇu is but a portion of a plenary portion.” (Brahma-saṁhitā 5.48)
+Govinda, Kṛṣṇa, is the original Personality of Godhead. Kṛṣṇas tu bhagavān svayam. Even Lord Mahā-Viṣṇu, who by His breathing creates many millions upon millions of universes, is Lord Kṛṣṇa’s kalā-viśeṣa, or plenary portion of a plenary portion. Mahā-Viṣṇu is a plenary expansion of Saṅkarṣaṇa, who is a plenary expansion of Nārāyaṇa. Nārāyaṇa is a plenary expansion of the catur-vyūha, and the catur-vyūha are plenary expansions of Baladeva, the first manifestation of Kṛṣṇa. Therefore when Kṛṣṇa appeared with Baladeva, all the viṣṇu-tattvas appeared with Him.
+Mahārāja Parīkṣit requested Śukadeva Gosvāmī to describe Kṛṣṇa and His glorious activities. Another meaning may be derived from this verse as follows, Although Śukadeva Gosvāmī was the greatest muni, he could describe Kṛṣṇa only partially (aṁśena), for no one can describe Kṛṣṇa fully. It is said that Anantadeva has thousands of heads, but although He tries to describe Kṛṣṇa with thousands of tongues, His descriptions are still incomplete.
+

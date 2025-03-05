@@ -1,0 +1,24 @@
+# ŚB 10.12.36
+
+**Sanskrit:**
+
+राजन्नाजगरं चर्म शुष्कं वृन्दावनेऽद्भ‍ुतम् ।
+व्रजौकसां बहुतिथं बभूवाक्रीडगह्वरम् ॥ ३६ ॥
+
+**Transliteration:**
+
+rājann ājagaraṁ carma
+śuṣkaṁ vṛndāvane ’dbhutam
+vrajaukasāṁ bahu-tithaṁ
+babhūvākrīḍa-gahvaram
+
+**Synonyms:**
+
+Synonyms
+rājan — O Mahārāja Parīkṣit; ājagaram carma — the dry body of Aghāsura, which remained only a big skin; śuṣkam — when it completely dried up; vṛndāvane adbhutam — like a wonderful museum piece in Vṛndāvana; vraja-okasām — for the inhabitants of Vrajabhūmi, Vṛndāvana; bahu-titham — for many days, or for a long time; babhūva — became; ākrīḍa — sporting place; gahvaram — a cave.
+
+**Translation:**
+
+Translation
+O King Parīkṣit, when the python-shaped body of Aghāsura dried up into merely a big skin, it became a wonderful place for the inhabitants of Vṛndāvana to visit, and it remained so for a long, long time.
+

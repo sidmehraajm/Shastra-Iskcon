@@ -1,0 +1,35 @@
+# ŚB 11.26.19-20
+
+**Sanskrit:**
+
+पित्रो: किं स्वं नु भार्याया: स्वामिनोऽग्ने: श्वगृध्रयो: ।
+किमात्मन: किं सुहृदामिति यो नावसीयते ॥ १९ ॥
+तस्मिन् कलेवरेऽमेध्ये तुच्छनिष्ठे विषज्जते ।
+अहो सुभद्रं सुनसं सुस्मितं च मुखं स्‍त्रिय: ॥ २० ॥
+
+**Transliteration:**
+
+pitroḥ kiṁ svaṁ nu bhāryāyāḥ
+svāmino ’gneḥ śva-gṛdhrayoḥ
+kim ātmanaḥ kiṁ suhṛdām
+iti yo nāvasīyate
+tasmin kalevare ’medhye
+tuccha-niṣṭhe viṣajjate
+aho su-bhadraṁ su-nasaṁ
+su-smitaṁ ca mukhaṁ striyaḥ
+
+**Synonyms:**
+
+Synonyms
+pitroḥ — of the parents; kim — whether; svam — the property; nu — or; bhāryāyāḥ — of the wife; svāminaḥ — of the employer; agneḥ — of the fire; śva-gṛdhrayoḥ — of the dogs and vultures; kim — whether; ātmanaḥ — of the soul; kim — whether; suhṛdām — of friends; iti — thus; yaḥ — who; na avasīyate — can never decide; tasmin — to that; kalevare — material body; amedhye — abominable; tuccha-niṣṭhe — heading toward the lowest destination; viṣajjate — becomes attached; aho — ah; su-bhadram — very attractive; su-nasam — having a beautiful nose; su-smitam — beautiful smile; ca — and; mukham — the face; striyaḥ — of a woman.
+
+**Translation:**
+
+Translation
+One can never decide whose property the body actually is. Does it belong to one’s parents, who have given birth to it, to one’s wife, who gives it pleasure, or to one’s employer, who orders the body around? Is it the property of the funeral fire or of the dogs and jackals who may ultimately devour it? Is it the property of the indwelling soul, who partakes in its happiness and distress, or does the body belong to intimate friends who encourage and help it? Although a man never definitely ascertains the proprietor of the body, he becomes most attached to it. The material body is a polluted material form heading toward a lowly destination, yet when a man stares at the face of a woman he thinks, “What a good-looking lady! What a charming nose she’s got, and see her beautiful smile!”
+
+**Purport:**
+
+Purport
+The phrase tuccha-niṣṭhe, or “headed toward a lowly destination,” indicates that if buried, the body will be consumed by worms; if burned, it will turn to ashes; and if dying in a lonely place, it will be consumed by dogs and vultures. The illusory potency of Māyā enters within the female form and bewilders a man’s mind. The man is attracted to Māyā appearing within the female form, but when he embraces the woman’s body he ends up with two handfuls of stool, blood, mucus, pus, skin, bone, hairs and flesh. People should not be like cats and dogs, in the ignorance of bodily consciousness. A human being should be enlightened in Kṛṣṇa consciousness and learn to serve the Supreme Lord without falsely trying to exploit His potencies.
+

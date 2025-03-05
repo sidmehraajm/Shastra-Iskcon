@@ -1,0 +1,29 @@
+# ŚB 10.85.15
+
+**Sanskrit:**
+
+गुणप्रवाह एतस्मिन्नबुधास्त्वखिलात्मन: ।
+गतिं सूक्ष्मामबोधेन संसरन्तीह कर्मभि: ॥ १५ ॥
+
+**Transliteration:**
+
+guṇa-pravāha etasminn
+abudhās tv akhilātmanaḥ
+gatiṁ sūkṣmām abodhena
+saṁsarantīha karmabhiḥ
+
+**Synonyms:**
+
+Synonyms
+guṇa — of the material modes; pravāhe — in the flow; etasmin — this; abudhāḥ — those who are ignorant; tu — but; akhila — of everything; ātmanaḥ — of the Soul; gatim — the destination; sūkṣmām — sublime; abodhena — because of their lack of understanding; saṁsaranti — they move through the cycle of birth and death; iha — in this world; karmabhiḥ — forced by their material activities.
+
+**Translation:**
+
+Translation
+They are truly ignorant who, while imprisoned within the ceaseless flow of this world’s material qualities, fail to know You, the Supreme Soul of all that be, as their ultimate, sublime destination. Because of their ignorance, the entanglement of material work forces such souls to wander in the cycle of birth and death.
+
+**Purport:**
+
+Purport
+A soul who forgets his true identity as a servant of God is sent to this world to be imprisoned in a succession of material bodies. Wrongly identifying himself with these bodies, such a conditioned soul suffers the consequent distress of karmic action and reaction. Vasudeva, as a compassionate Vaiṣṇava, laments for the suffering conditioned souls, whose unhappiness, the result of ignorance, can be remedied by knowledge of the principles of devotional service to Lord Kṛṣṇa.
+

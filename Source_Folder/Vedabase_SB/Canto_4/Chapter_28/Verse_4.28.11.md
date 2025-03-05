@@ -1,0 +1,29 @@
+# ŚB 4.28.11
+
+**Sanskrit:**
+
+भयनाम्नोऽग्रजो भ्राता प्रज्वार: प्रत्युपस्थित: ।
+ददाह तां पुरीं कृत्‍स्‍नां भ्रातु: प्रियचिकीर्षया ॥ ११ ॥
+
+**Transliteration:**
+
+bhaya-nāmno ’grajo bhrātā
+prajvāraḥ pratyupasthitaḥ
+dadāha tāṁ purīṁ kṛtsnāṁ
+bhrātuḥ priya-cikīrṣayā
+
+**Synonyms:**
+
+Synonyms
+bhaya-nāmnaḥ — of Bhaya (Fear); agra-jaḥ — elder; bhrātā — brother; prajvāraḥ — named Prajvāra; pratyupasthitaḥ — being present there; dadāha — set fire; tām — to that; purīm — city; kṛtsnām — wholesale; bhrātuḥ — his brother; priya-cikīrṣayā — in order to please.
+
+**Translation:**
+
+Translation
+Under the circumstances, the elder brother of Yavana-rāja, known as Prajvāra, set fire to the city to please his younger brother, whose other name is fear itself.
+
+**Purport:**
+
+Purport
+According to the Vedic system, a dead body is set on fire, but before death there is another fire, or fever, which is called prajvāra, or viṣṇu-jvāra. Medical science verifies that when one’s temperature is raised to 107 degrees, a man immediately dies. This prajvāra, or high fever, at the last stage of life places the living entity in the midst of a blazing fire.
+

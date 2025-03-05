@@ -1,0 +1,31 @@
+# ŚB 10.6.12
+
+**Sanskrit:**
+
+तस्या: स्वनेनातिगभीररंहसा
+साद्रिर्मही द्यौश्च चचाल सग्रहा ।
+रसा दिशश्च प्रतिनेदिरे जना:
+पेतु: क्षितौ वज्रनिपातशङ्कया ॥ १२ ॥
+
+**Transliteration:**
+
+tasyāḥ svanenātigabhīra-raṁhasā
+sādrir mahī dyauś ca cacāla sa-grahā
+rasā diśaś ca pratinedire janāḥ
+petuḥ kṣitau vajra-nipāta-śaṅkayā
+
+**Synonyms:**
+
+Synonyms
+tasyāḥ — of the great Rākṣasī Pūtanā; svanena — by the vibration of the sound; ati — very; gabhīra — deep; raṁhasā — forceful; sa-adriḥ — with the mountains; mahī — the surface of the world; dyauḥ ca — and outer space; cacāla — trembled; sa-grahā — with the stars; rasā — below the planet earth; diśaḥ ca — and all directions; pratinedire — vibrated; janāḥ — people in general; petuḥ — fell down; kṣitau — on the surface of the world; vajra-nipāta-śaṅkayā — by suspecting that thunderbolts were falling.
+
+**Translation:**
+
+Translation
+As Pūtanā screamed loudly and forcefully, the earth with its mountains, and outer space with its planets, trembled. The lower planets and all directions vibrated, and people fell down, fearing that thunderbolts were falling upon them.
+
+**Purport:**
+
+Purport
+Śrīla Viśvanātha Cakravartī Ṭhākura remarks that in this verse the word rasā refers to the planetary systems below the earth, such as Rasātala, Atala, Vitala, Sutala and Talātala.
+

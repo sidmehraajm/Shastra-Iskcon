@@ -1,0 +1,31 @@
+# ŚB 10.13.5
+
+**Sanskrit:**
+
+अहोऽतिरम्यं पुलिनं वयस्या:
+स्वकेलिसम्पन्मृदुलाच्छबालुकम् ।
+स्फुटत्सरोगन्धहृतालिपत्रिक-
+ध्वनिप्रतिध्वानलसद्‌‌‌द्रुमाकुलम् ॥ ५ ॥
+
+**Transliteration:**
+
+aho ’tiramyaṁ pulinaṁ vayasyāḥ
+sva-keli-sampan mṛdulāccha-bālukam
+sphuṭat-saro-gandha-hṛtāli-patrika-
+dhvani-pratidhvāna-lasad-drumākulam
+
+**Synonyms:**
+
+Synonyms
+aho — oh; ati-ramyam — very, very beautiful; pulinam — the bank of the river; vayasyāḥ — My dear friends; sva-keli-sampat — full with all paraphernalia for pastimes of play; mṛdula-accha-bālukam — the very soft and clean sandy bank; sphuṭat — in full bloom; saraḥ-gandha — by the aroma of the lotus flower; hṛta — attracted; ali — of the bumblebees; patrika — and of the birds; dhvani-pratidhvāna — the sounds of their chirping and moving and the echoes of these sounds; lasat — moving all over; druma-ākulam — full of nice trees.
+
+**Translation:**
+
+Translation
+My dear friends, just see how this riverbank is extremely beautiful because of its pleasing atmosphere. And just see how the blooming lotuses are attracting bees and birds by their aroma. The humming and chirping of the bees and birds is echoing throughout the beautiful trees in the forest. Also, here the sands are clean and soft. Therefore, this must be considered the best place for our sporting and pastimes.
+
+**Purport:**
+
+Purport
+The description of Vṛndāvana forest as given herewith was spoken by Kṛṣṇa five thousand years ago, and the same condition prevailed during the time of the Vaiṣṇava ācāryas three or four hundred years ago. Kūjat-kokila-haṁsa-sārasa-gaṇākīrṇe mayūrākule. Vṛndāvana forest is always filled with the chirping and cooing of birds like cuckoos (kokila), ducks (haṁsa) and cranes (sārasa), and it is also full of peacocks (mayūrākule). The same sounds and atmosphere still prevail in the area where our Kṛṣṇa-Balarāma temple is situated. Everyone who visits this temple is pleased to hear the chirping of the birds as described here (kūjat-kokila-haṁsa-sārasa).
+

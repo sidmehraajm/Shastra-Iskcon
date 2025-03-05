@@ -1,0 +1,31 @@
+# ŚB 10.13.33
+
+**Sanskrit:**
+
+तदीक्षणोत्प्रेमरसाप्लुताशया
+जातानुरागा गतमन्यवोऽर्भकान् ।
+उदुह्य दोर्भि: परिरभ्य मूर्धनि
+घ्राणैरवापु: परमां मुदं ते ॥ ३३ ॥
+
+**Transliteration:**
+
+tad-īkṣaṇotprema-rasāplutāśayā
+jātānurāgā gata-manyavo ’rbhakān
+uduhya dorbhiḥ parirabhya mūrdhani
+ghrāṇair avāpuḥ paramāṁ mudaṁ te
+
+**Synonyms:**
+
+Synonyms
+tat-īkṣaṇa-utprema-rasa-āpluta-āśayāḥ — all the thoughts of the cowherd men merged in the mellow of paternal love, which was aroused by seeing their sons; jāta-anurāgāḥ — experiencing a great longing or attraction; gata-manyavaḥ — their anger disappeared; arbhakān — their young sons; uduhya — lifting; dorbhiḥ — with their arms; parirabhya — embracing; mūrdhani — on the head; ghrāṇaiḥ — by smelling; avāpuḥ — obtained; paramām — the highest; mudam — pleasure; te — those cowherd men.
+
+**Translation:**
+
+Translation
+At that time, all the thoughts of the cowherd men merged in the mellow of paternal love, which was aroused by the sight of their sons. Experiencing a great attraction, their anger completely disappearing, they lifted their sons, embraced them in their arms and enjoyed the highest pleasure by smelling their sons’ heads.
+
+**Purport:**
+
+Purport
+After Brahmā stole the original cowherd boys and calves, Kṛṣṇa expanded Himself to become the boys and calves again. Therefore, because the boys were actually Kṛṣṇa’s expansions, the cowherd men were especially attracted to them. At first the cowherd men, who were on top of the hill, were angry, but because of Kṛṣṇa the boys were extremely attractive, and therefore the cowherd men immediately came down from the hill with special affection.
+

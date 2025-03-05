@@ -1,0 +1,25 @@
+# ŚB 5.14.16
+
+**Sanskrit:**
+
+क्‍वचित्कालविषमितराजकुलरक्षसापहृतप्रियतमधनासु: प्रमृतक इव विगतजीवलक्षण आस्ते ॥ १६ ॥
+
+**Transliteration:**
+
+kvacit kāla-viṣa-mita-rāja-kula-rakṣasāpahṛta-priyatama-dhanāsuḥ pramṛtaka iva vigata-jīva-lakṣaṇa āste.
+
+**Synonyms:**
+
+Synonyms
+kvacit — sometimes; kāla-viṣa-mita — made crooked by time; rāja-kula — the government men; rakṣasā — by those who are like carnivorous human beings; apahṛta — being plundered; priya-tama — most dear; dhana — in the form of wealth; asuḥ — whose life air; pramṛtakaḥ — dead; iva — like; vigata-jīva-lakṣaṇaḥ — bereft of all signs of life; āste — he remains.
+
+**Translation:**
+
+Translation
+Government men are always like carnivorous demons called Rākṣasas [man-eaters]. Sometimes these government men turn against the conditioned soul and take away all his accumulated wealth. Being bereft of his life’s reserved wealth, the conditioned soul loses all enthusiasm. Indeed, it is as though he loses his life.
+
+**Purport:**
+
+Purport
+The word rāja-kula-rakṣasā is very significant. Śrīmad-Bhāgavatam was compiled about five thousand years ago, yet government men are referred to as Rākṣasas, or carnivorous demons. If government men are opposed to a person, that person will be bereft of all his riches, which he has accumulated with great care over a long period of time. Actually no one wants to pay income taxes — even government men themselves try to avoid these taxes — but at unfavorable times income taxes are exacted forcibly, and the taxpayers become very morose.
+

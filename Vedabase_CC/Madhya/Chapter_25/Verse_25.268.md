@@ -1,0 +1,22 @@
+# CC Madhya 25.268
+
+**Bengali:**
+
+শ্রীচৈতন্য-সম আর কৃপালু বদান্য ।
+ভক্তবৎসল না দেখি ত্রিজগতে অন্য ॥ ২৬৮ ॥
+
+**Transliteration:**
+
+śrī-caitanya-sama āra kṛpālu vadānya
+bhakta-vatsala nā dekhi trijagate anya
+
+**Synonyms:**
+
+Synonyms
+śrī-caitanya-sama — equal to Śrī Caitanya Mahāprabhu; āra — anyone else; kṛpālu — merciful; vadānya — magnanimous; bhakta-vatsala — very kind to the devotees; nā dekhi — I do not see; tri-jagate — in these three worlds; anya — anyone else.
+
+**Translation:**
+
+Translation
+All sane men within these three worlds certainly accept the conclusion that no one is more merciful and magnanimous than Śrī Caitanya Mahāprabhu and that no one is as kind to His devotees.
+

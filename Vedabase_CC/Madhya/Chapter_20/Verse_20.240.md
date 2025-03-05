@@ -1,0 +1,22 @@
+# CC Madhya 20.240
+
+**Bengali:**
+
+‘স্বয়ং ভগবান্’, আর ‘লীলা-পুরুষোত্তম’ ।
+এই দুই নাম ধরে ব্রজেন্দ্রনন্দন ॥ ২৪০ ॥
+
+**Transliteration:**
+
+‘svayaṁ bhagavān’, āra ‘līlā-puruṣottama’
+ei dui nāma dhare vrajendra-nandana
+
+**Synonyms:**
+
+Synonyms
+svayam bhagavān — the Supreme Personality of Godhead; āra — and; līlā-puruṣottama — the Lord Puruṣottama of pastimes; ei dui — these two; nāma — names; dhare — takes; vrajendra-nandana — Kṛṣṇa, the son of Nanda Mahārāja.
+
+**Translation:**
+
+Translation
+“Kṛṣṇa, the original Supreme Personality of Godhead, indicated as the son of Mahārāja Nanda, has two names. One is svayaṁ bhagavān, and the other is līlā-puruṣottama.
+

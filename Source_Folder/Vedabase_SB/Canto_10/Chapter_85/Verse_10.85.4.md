@@ -1,0 +1,29 @@
+# ŚB 10.85.4
+
+**Sanskrit:**
+
+यत्र येन यतो यस्य यस्मै यद् यद् यथा यदा ।
+स्यादिदं भगवान् साक्षात् प्रधानपुरुषेश्वर: ॥ ४ ॥
+
+**Transliteration:**
+
+yatra yena yato yasya
+yasmai yad yad yathā yadā
+syād idaṁ bhagavān sākṣāt
+pradhāna-puruṣeśvaraḥ
+
+**Synonyms:**
+
+Synonyms
+yatra — in which; yena — by which; yataḥ — from which; yasya — of which; yasmai — unto which; yat yat — whatever; yathā — however; yadā — whenever; syāt — comes into existence; idam — this (creation); bhagavān — the Supreme Lord; sākṣāt — in His personal presence; pradhāna-puruṣa — of nature and its creator (Mahā-Viṣṇu); īśvaraḥ — the predominator.
+
+**Translation:**
+
+Translation
+You are the Supreme Personality of Godhead, who manifest as the Lord of both nature and the creator of nature [Mahā-Viṣṇu]. Everything that comes into existence, however and whenever it does so, is created within You, by You, from You, for You and in relation to You.
+
+**Purport:**
+
+Purport
+To casual observers the known world appears to be produced by many different agents. A good indication of this conception is language itself, which traditional Sanskrit grammarians explain as reflecting the visible diversity of nature. In the standard Sanskrit grammar taught by the sage Pāṇini, the verb, expressing action, is taken to be the essential core of a sentence, and all the other words function in relation to it. Nouns, for example, are put into any of several cases to show their particular relationship to the verb in a sentence. These relationships of noun to verb are called kārakas, namely the relations of subject (kartā, “who does”), object (karma, “what is done”), instrument (karaṇa, “by which”), recipient (sampradāna, “for or toward which”), source (apadāna, “from or because of which”) and location (adhikaraṇa, “in which”). Apart from these kārakas, nouns may also sometimes point to other nouns in a possessive sense, and there are also various kinds of adverbs of time, place and manner. But although language thus seems to indicate the activity of many separate agents in the manifest creation, the deeper truth is that all grammatical forms refer first of all to the Supreme Personality of Godhead. In this verse Vasudeva makes this point by glorifying his two exalted sons in terms of the different grammatical forms.
+

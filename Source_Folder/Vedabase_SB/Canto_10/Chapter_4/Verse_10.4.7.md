@@ -1,0 +1,31 @@
+# ŚB 10.4.7
+
+**Sanskrit:**
+
+श्रीशुक उवाच
+उपगुह्यात्मजामेवं रुदत्या दीनदीनवत् ।
+याचितस्तां विनिर्भर्त्स्य हस्तादाचिच्छिदे खल: ॥ ७ ॥
+
+**Transliteration:**
+
+śrī-śuka uvāca
+upaguhyātmajām evaṁ
+rudatyā dīna-dīnavat
+yācitas tāṁ vinirbhartsya
+hastād ācicchide khalaḥ
+
+**Synonyms:**
+
+Synonyms
+śrī-śukaḥ uvāca — Śrī Śukadeva Gosvāmī said; upaguhya — embracing; ātmajām — her daughter; evam — in this way; rudatyā — by Devakī, who was crying; dīna-dīna-vat — very piteously, like a poor woman; yācitaḥ — being begged; tām — her (Devakī); vinirbhartsya — chastising; hastāt — from her hands; ācicchide — separated the child by force; khalaḥ — Kaṁsa, the most cruel.
+
+**Translation:**
+
+Translation
+Śukadeva Gosvāmī continued: Piteously embracing her daughter and crying, Devakī begged Kaṁsa for the child, but he was so cruel that he chastised her and forcibly snatched the child from her hands.
+
+**Purport:**
+
+Purport
+Although Devakī was crying like a very poor woman, actually she was not poor, and therefore the word used here is dīnavat. She had already given birth to Kṛṣṇa. Therefore, who could have been richer than she? Even the demigods had come to offer prayers to Devakī, but she played the part of a poor, piteously afflicted woman because she wanted to save the daughter of Yaśodā.
+

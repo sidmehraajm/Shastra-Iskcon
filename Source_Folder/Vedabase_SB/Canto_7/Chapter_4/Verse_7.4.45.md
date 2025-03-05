@@ -1,0 +1,24 @@
+# ŚB 7.4.45
+
+**Sanskrit:**
+
+पुत्रान् विप्रतिकूलान् स्वान् पितर: पुत्रवत्सला: ।
+उपालभन्ते शिक्षार्थं नैवाघमपरो यथा ॥ ४५ ॥
+
+**Transliteration:**
+
+putrān vipratikūlān svān
+pitaraḥ putra-vatsalāḥ
+upālabhante śikṣārthaṁ
+naivāgham aparo yathā
+
+**Synonyms:**
+
+Synonyms
+putrān — sons; vipratikūlān — who act against the will of the father; svān — their own; pitaraḥ — fathers; putra-vatsalāḥ — being very affectionate to the children; upālabhante — chastise; śikṣa-artham — to teach them lessons; na — not; eva — indeed; agham — punishment; aparaḥ — an enemy; yathā — like.
+
+**Translation:**
+
+Translation
+A father and mother are always affectionate to their children. When the children are disobedient the parents chastise them, not due to enmity but only for the child’s instruction and welfare. How did Hiraṇyakaśipu, the father of Prahlāda Mahārāja, chastise such a noble son? This is what I am eager to know.
+

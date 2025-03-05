@@ -1,0 +1,22 @@
+# CC Madhya 14.178
+
+**Bengali:**
+
+দধি, খণ্ড, ঘৃত, মধু, মরীচ, কর্পূর ।
+এলাচি-মিলনে যৈছে রসালা মধুর ॥ ১৭৮ ॥
+
+**Transliteration:**
+
+dadhi, khaṇḍa, ghṛta, madhu, marīca, karpūra
+elāci-milane yaiche rasālā madhura
+
+**Synonyms:**
+
+Synonyms
+dadhi — yogurt; khaṇḍa — candy; ghṛta — ghee; madhu — honey; marīca — black pepper; karpūra — camphor; elāci — cardamom; milane — by combining together; yaiche — as; rasālā — very palatable; madhura — and sweet.
+
+**Translation:**
+
+Translation
+“Indeed, they are compared to a combination of yogurt, candy, ghee, honey, black pepper, camphor and cardamom, which, when mixed together, are very tasty and sweet.
+

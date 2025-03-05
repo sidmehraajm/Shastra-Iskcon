@@ -1,0 +1,29 @@
+# ŚB 10.24.17
+
+**Sanskrit:**
+
+देहानुच्चावचाञ्जन्तु: प्राप्योत्सृजति कर्मणा । शत्रुर्मित्रमुदासीन: कर्मैव गुरुरीश्वर: ॥ १७ ॥
+
+**Transliteration:**
+
+dehān uccāvacāñ jantuḥ
+prāpyotsṛjati karmaṇā
+śatrur mitram udāsīnaḥ
+karmaiva gurur īśvaraḥ
+
+**Synonyms:**
+
+Synonyms
+dehān — material bodies; ucca-avacān — high- and low-class; antuḥ — the conditioned living entity; prāpya — obtaining; utsṛjati — gives up; karmaṇā — by the reactions of his material activities; śatruḥ — his enemy; mitram — friend; udāsīnaḥ — and neutral party; karma — material work; eva — alone; guruḥ — his spiritual master; īśvaraḥ — his lord.
+
+**Translation:**
+
+Translation
+Because it is karma that causes the conditioned living entity to accept and then give up different high- and low-grade material bodies, this karma is his enemy, friend and neutral witness, his spiritual master and controlling lord.
+
+**Purport:**
+
+Purport
+Even the demigods are bound and limited by the laws of karma. That Indra himself is subordinate to the laws of karma is explicitly stated in the Brahma-saṁhitā (5.54): yas tv indra-gopam atha vendram aho sva-karma-bandhānurūpa-phala-bhājanam ātanoti. The Supreme Lord, Govinda, awards all creatures the appropriate results of their work. This is as true for mighty Indra, the lord of the material heavens, as it is for the germ called indra-gopa. The Bhagavad-gītā (7.20) also states, kāmais tais tair hṛta-jñānāḥ prapadyante ’nya-devatāḥ. Only those who have lost their intelligence because of various material desires surrender unto demigods rather than worship the Supreme Lord. In fact, the demigods cannot award benefits to anyone independently, as stated by Lord Kṛṣṇa in the Gītā: mayaiva vihitān hi tān. All benefits are ultimately issued by the Lord Himself.
+Thus it is not altogether incorrect to say that demigod worship is useless, since even the demigods are under the laws of karma. In fact, this is the case. But Lord Kṛṣṇa, the Supreme Absolute Truth, is not subordinate to the law of karma; rather, He can independently offer or withhold His favor. This is confirmed in the verse from the Brahma-saṁhitā quoted above, the third line of which is karmāṇi nirdahati kintu ca bhakti-bhājām: “The Supreme Lord burns up all the accumulated karma of those engaged in His loving service.” Not only is Lord Kṛṣṇa above the laws of material action and reaction, but He can immediately dissolve these laws for anyone who satisfies Him through loving service. Thus the almighty God is supreme in absolute freedom, and by surrendering to Him we can escape the bonds of karma and stop accepting their dismal rule as supreme.
+

@@ -1,0 +1,22 @@
+# CC Madhya 14.74
+
+**Bengali:**
+
+রাধা-সঙ্গে কৃষ্ণ-লীলা — এই হৈল জ্ঞানে ।
+এই রসে মগ্ন প্রভু হইলা আপনে ॥ ৭৪ ॥
+
+**Transliteration:**
+
+rādhā-saṅge kṛṣṇa-līlā — ei haila jñāne
+ei rase magna prabhu ha-ilā āpane
+
+**Synonyms:**
+
+Synonyms
+rādhā-saṅge — with Rādhārāṇī; kṛṣṇa-līlā — pastimes of Lord Kṛṣṇa; ei haila jñāne — this was His consciousness; ei rase magna — merged in this mellow; prabhu — Lord Caitanya Mahāprabhu; ha-ilā āpane — remained personally.
+
+**Translation:**
+
+Translation
+Śrī Caitanya Mahāprabhu was always thinking of the pastimes of Rādhā and Kṛṣṇa, and He remained personally merged in this consciousness.
+

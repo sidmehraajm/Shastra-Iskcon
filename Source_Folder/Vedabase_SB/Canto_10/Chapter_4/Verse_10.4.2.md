@@ -1,0 +1,29 @@
+# ŚB 10.4.2
+
+**Sanskrit:**
+
+ते तु तूर्णमुपव्रज्य देवक्या गर्भजन्म तत् ।
+आचख्युर्भोजराजाय यदुद्विग्न: प्रतीक्षते ॥ २ ॥
+
+**Transliteration:**
+
+te tu tūrṇam upavrajya
+devakyā garbha-janma tat
+ācakhyur bhoja-rājāya
+yad udvignaḥ pratīkṣate
+
+**Synonyms:**
+
+Synonyms
+te — all the watchmen; tu — indeed; tūrṇam — very quickly; upavrajya — going before (the King); devakyāḥ — of Devakī; garbha-janma — the deliverance from the womb; tat — that (child); ācakhyuḥ — submitted; bhoja-rājāya — unto the King of the Bhojas, Kaṁsa; yat — of whom; udvignaḥ — with great anxiety; pratīkṣate — was waiting (for the child’s birth).
+
+**Translation:**
+
+Translation
+Thereafter, all the watchmen very quickly approached King Kaṁsa, the ruler of the Bhoja dynasty, and submitted the news of the birth of Devakī’s child. Kaṁsa, who had awaited this news very anxiously, immediately took action.
+
+**Purport:**
+
+Purport
+Kaṁsa was very anxiously waiting because of the prophecy that the eighth child of Devakī would kill him. This time, naturally, he was awake and waiting, and when the watchmen approached him, he immediately took action to kill the child.
+

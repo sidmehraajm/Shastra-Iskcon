@@ -1,0 +1,26 @@
+# ŚB 6.3.3
+
+**Sanskrit:**
+
+श्रीशुक उवाच
+भगवत्पुरुषै राजन् याम्या: प्रतिहतोद्यमा: ।
+पतिं विज्ञापयामासुर्यमं संयमनीपतिम् ॥ ३ ॥
+
+**Transliteration:**
+
+śrī-śuka uvāca
+bhagavat-puruṣai rājan
+yāmyāḥ pratihatodyamāḥ
+patiṁ vijñāpayām āsur
+yamaṁ saṁyamanī-patim
+
+**Synonyms:**
+
+Synonyms
+śrī-śukaḥ uvāca — Śukadeva Gosvāmī said; bhagavat-puruṣaiḥ — by the order carriers of the Lord, the Viṣṇudūtas; rājan — O King; yāmyāḥ — the order carriers of Yamarāja; pratihata-udyamāḥ — whose efforts were defeated; patim — their master; vijñāpayām āsuḥ — informed; yamam — Yamarāja; saṁyamanī-patim — the master of the city Saṁyamanī.
+
+**Translation:**
+
+Translation
+Śrī Śukadeva Gosvāmī replied: My dear King, when the order carriers of Yamarāja were baffled and defeated by the order carriers of Viṣṇu, they approached their master, the controller of Saṁyamanī-purī and master of sinful persons, to tell him of this incident.
+

@@ -1,0 +1,22 @@
+# CC Madhya 6.166
+
+**Bengali:**
+
+ঈশ্বরের শ্রীবিগ্রহ সচ্চিদানন্দাকার ।
+সে-বিগ্রহে কহ সত্ত্বগুণের বিকার ॥ ১৬৬ ॥
+
+**Transliteration:**
+
+īśvarera śrī-vigraha sac-cid-ānandākāra
+se-vigrahe kaha sattva-guṇera vikāra
+
+**Synonyms:**
+
+Synonyms
+īśvarera — of the Supreme Personality of Godhead; śrī-vigraha — the form; sat-cit-ānanda-ākāra — complete in eternity, cognizance and bliss; se-vigrahe — about that form of the Lord; kaha — you say; sattva-guṇera — of the quality of material goodness; vikāra — transformation.
+
+**Translation:**
+
+Translation
+“The transcendental form of the Supreme Personality of Godhead is complete in eternity, cognizance and bliss. However, you describe this transcendental form as a product of material goodness.
+

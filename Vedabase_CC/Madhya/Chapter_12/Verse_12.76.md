@@ -1,0 +1,22 @@
+# CC Madhya 12.76
+
+**Bengali:**
+
+তোমার যোগ্য সেবা নহে মন্দির-মার্জন ।
+এই এক লীলা কর, যে তোমার মন ॥ ৭৬ ॥
+
+**Transliteration:**
+
+tomāra yogya sevā nahe mandira-mārjana
+ei eka līlā kara, ye tomāra mana
+
+**Synonyms:**
+
+Synonyms
+tomāra — of You; yogya — befitting; sevā — service; nahe — not; mandira-mārjana — washing the temple; ei — this; eka — one; līlā — pastime; kara — You perform; ye tomāra mana — as You like.
+
+**Translation:**
+
+Translation
+“My dear Lord, washing the temple is not service befitting You. Nonetheless, if You wish to do so, it is to be accepted as one of Your pastimes.
+

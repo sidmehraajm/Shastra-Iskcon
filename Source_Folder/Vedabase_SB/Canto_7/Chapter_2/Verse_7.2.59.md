@@ -1,0 +1,24 @@
+# ŚB 7.2.59
+
+**Sanskrit:**
+
+यम एतदुपाख्याय तत्रैवान्तरधीयत ।
+ज्ञातयोऽहि सुयज्ञस्य चक्रुर्यत्साम्परायिकम् ॥ ५९ ॥
+
+**Transliteration:**
+
+yama etad upākhyāya
+tatraivāntaradhīyata
+jñātayo hi suyajñasya
+cakrur yat sāmparāyikam
+
+**Synonyms:**
+
+Synonyms
+yamaḥ — Yamarāja in the form of a boy; etat — this; upākhyāya — instructing; tatra — there; eva — indeed; antaradhīyata — disappeared; jñātayaḥ — the relatives; hi — indeed; suyajñasya — of King Suyajña; cakruḥ — performed; yat — which is; sāmparāyikam — the funeral ceremony.
+
+**Translation:**
+
+Translation
+After instructing all the foolish relatives of Suyajña, Yamarāja, in the form of a boy, disappeared from their vision. Then the relatives of King Suyajña performed the ritualistic funeral ceremonies.
+

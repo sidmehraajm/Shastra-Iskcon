@@ -1,0 +1,35 @@
+# ŚB 10.11.31-32
+
+**Sanskrit:**
+
+वृद्धान्बालान्स्त्रियो राजन्सर्वोपकरणानि च ।
+अन:स्वारोप्य गोपाला यत्ता आत्तशरासना: ॥ ३१ ॥
+गोधनानि पुरस्कृत्य श‍ृङ्गाण्यापूर्य सर्वत: ।
+तूर्यघोषेण महता ययु: सहपुरोहिता: ॥ ३२ ॥
+
+**Transliteration:**
+
+vṛddhān bālān striyo rājan
+sarvopakaraṇāni ca
+anaḥsv āropya gopālā
+yattā ātta-śarāsanāḥ
+godhanāni puraskṛtya
+śṛṅgāṇy āpūrya sarvataḥ
+tūrya-ghoṣeṇa mahatā
+yayuḥ saha-purohitāḥ
+
+**Synonyms:**
+
+Synonyms
+vṛddhān — first all the old men; bālān — children; striyaḥ — women; rājan — O King Parīkṣit; sarva-upakaraṇāni ca — then all sorts of necessities and whatever belongings they had; anaḥsu — on the bullock carts; āropya — keeping; gopālāḥ — all the cowherd men; yattāḥ — with great care; ātta-śara-asanāḥ — fully equipped with arrows and bows; go-dhanāni — all the cows; puraskṛtya — keeping in front; śṛṅgāṇi — bugles or horns; āpūrya — vibrating; sarvataḥ — all around; tūrya-ghoṣeṇa — with the resounding of the bugles; mahatā — loud; yayuḥ — started; saha-purohitāḥ — with the priests.
+
+**Translation:**
+
+Translation
+Keeping all the old men, women, children and household paraphernalia on the bullock carts and keeping all the cows in front, the cowherd men picked up their bows and arrows with great care and sounded bugles made of horn. O King Parīkṣit, in this way, with bugles vibrating all around, the cowherd men, accompanied by their priests, began their journey.
+
+**Purport:**
+
+Purport
+In this connection it is to be noted that although the inhabitants of Gokula were mostly cowherd men and cultivators, they knew how to defend themselves from danger and how to give protection to the women, the old men, the cows and the children, as well as to the brahminical purohitas.
+

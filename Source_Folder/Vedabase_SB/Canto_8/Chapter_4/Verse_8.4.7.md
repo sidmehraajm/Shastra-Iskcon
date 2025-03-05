@@ -1,0 +1,24 @@
+# ŚB 8.4.7
+
+**Sanskrit:**
+
+स वै पूर्वमभूद् राजा पाण्ड्यो द्रविडसत्तम: ।
+इन्द्रद्युम्न इति ख्यातो विष्णुव्रतपरायण: ॥ ७ ॥
+
+**Transliteration:**
+
+sa vai pūrvam abhūd rājā
+pāṇḍyo draviḍa-sattamaḥ
+indradyumna iti khyāto
+viṣṇu-vrata-parāyaṇaḥ
+
+**Synonyms:**
+
+Synonyms
+saḥ — this elephant (Gajendra); vai — indeed; pūrvam — formerly; abhūt — was; rājā — a king; pāṇḍyaḥ — of the country known as Pāṇḍya; draviḍa-sat-tamaḥ — the best of those born in Draviḍa-deśa, South India; indradyumnaḥ — by the name Mahārāja Indradyumna; iti — thus; khyātaḥ — celebrated; viṣṇu-vrata-parāyaṇaḥ — who was a first-class Vaiṣṇava, always engaged in the service of the Lord.
+
+**Translation:**
+
+Translation
+This Gajendra had formerly been a Vaiṣṇava and the king of the country known as Pāṇḍya, which is in the province of Draviḍa [South India]. In his previous life, he was known as Indradyumna Mahārāja.
+

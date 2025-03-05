@@ -1,0 +1,24 @@
+# ŚB 8.11.29
+
+**Sanskrit:**
+
+नमुचिस्तद्वधं द‍ृष्ट्वा शोकामर्षरुषान्वित: ।
+जिघांसुरिन्द्रं नृपते चकार परमोद्यमम् ॥ २९ ॥
+
+**Transliteration:**
+
+namucis tad-vadhaṁ dṛṣṭvā
+śokāmarṣa-ruṣānvitaḥ
+jighāṁsur indraṁ nṛpate
+cakāra paramodyamam
+
+**Synonyms:**
+
+Synonyms
+namuciḥ — the demon Namuci; tat — of those two demons; vadham — the massacre; dṛṣṭvā — after seeing; śoka-amarṣa — lamentation and grief; ruṣā-anvitaḥ — being very angry at this; jighāṁsuḥ — wanted to kill; indram — King Indra; nṛ-pate — O Mahārāja Parīkṣit; cakāra — made; parama — a great; udyamam — endeavor.
+
+**Translation:**
+
+Translation
+O King, when Namuci, another demon, saw the killing of both Bala and Pāka, he was full of grief and lamentation. Thus he angrily made a great attempt to kill Indra.
+

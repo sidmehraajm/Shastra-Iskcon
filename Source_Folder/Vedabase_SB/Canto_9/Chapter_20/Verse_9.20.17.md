@@ -1,0 +1,24 @@
+# ŚB 9.20.17
+
+**Sanskrit:**
+
+अमोघवीर्यो राजर्षिर्महिष्यां वीर्यमादधे ।
+श्वोभूते स्वपुरं यात: कालेनासूत सा सुतम् ॥ १७ ॥
+
+**Transliteration:**
+
+amogha-vīryo rājarṣir
+mahiṣyāṁ vīryam ādadhe
+śvo-bhūte sva-puraṁ yātaḥ
+kālenāsūta sā sutam
+
+**Synonyms:**
+
+Synonyms
+amogha-vīryaḥ — a person who discharges semen without being baffled, or, in other words, who must beget a child; rāja-ṛṣiḥ — the saintly King Duṣmanta; mahiṣyām — into the Queen, Śakuntalā (after her marriage, Śakuntalā became the Queen); vīryam — semen; ādadhe — placed; śvaḥ-bhūte — in the morning; sva-puram — to his own place; yātaḥ — returned; kālena — in due course of time; asūta — gave birth; sā — she (Śakuntalā); sutam — to a son.
+
+**Translation:**
+
+Translation
+King Duṣmanta, who never discharged semen without a result, placed his semen at night in the womb of his Queen, Śakuntalā, and in the morning he returned to his palace. Thereafter, in due course of time, Śakuntalā gave birth to a son.
+

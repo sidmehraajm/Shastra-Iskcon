@@ -1,0 +1,29 @@
+# ŚB 11.27.24
+
+**Sanskrit:**
+
+तयात्मभूतया पिण्डे व्याप्ते सम्पूज्य तन्मय: ।
+आवाह्यार्चादिषु स्थाप्य न्यस्ताङ्गं मां प्रपूजयेत् ॥ २४ ॥
+
+**Transliteration:**
+
+tayātma-bhūtayā piṇḍe
+vyāpte sampūjya tan-mayaḥ
+āvāhyārcādiṣu sthāpya
+nyastāṅgaṁ māṁ prapūjayet
+
+**Synonyms:**
+
+Synonyms
+tayā — by that form meditated upon; ātma-bhūtayā — conceived of according to one’s own realization; piṇḍe — in the physical body; vyāpte — which has become pervaded; sampūjya — perfectly worshiping that form; tat-mayaḥ — surcharged by His presence; āvāhya — inviting; arcā-ādiṣu — within the various Deities being worshiped; sthāpya — establishing Him; nyasta-aṅgam — having touched the Deity’s various limbs with the chanting of appropriate mantras; mām — to Me; prapūjayet — he should carry out all the details of worship.
+
+**Translation:**
+
+Translation
+The devotee conceives of the Supersoul, whose presence surcharges the devotee’s body, in the form corresponding to his realization. Thus the devotee worships the Lord to his full capacity and becomes fully absorbed in Him. By touching the various limbs of the Deity and chanting appropriate mantras, the devotee should invite the Supersoul to join the Deity’s form, and then the devotee should worship Me.
+
+**Purport:**
+
+Purport
+The body of a devotee is pervaded by the Supreme Lord just as a house is pervaded by the glow of a lamp. Just as one gestures in a friendly way to indicate that a guest should enter one’s house, one touches the body of the Deity, chants appropriate mantras, and enthusiastically invites the Supersoul to enter the form of the Deity. Since both the Deity and the Supersoul are the Supreme Personality of Godhead, they are not different. One form of the Lord can immediately become manifest in another.
+

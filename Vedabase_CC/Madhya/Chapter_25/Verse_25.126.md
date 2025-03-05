@@ -1,0 +1,29 @@
+# CC Madhya 25.126
+
+**Bengali:**
+
+যথা মহান্তি ভূতানি ভূতেষূচ্চাবচেষ্বনু ।
+প্রবিষ্টান্যপ্রবিষ্টানি তথা তেষু ন তেষ্বহম্‌ ॥ ১২৬ ॥
+
+**Transliteration:**
+
+yathā mahānti bhūtāni
+bhūteṣūccāvaceṣv anu
+praviṣṭāny apraviṣṭāni
+tathā teṣu na teṣv aham
+
+**Synonyms:**
+
+Synonyms
+yathā — as; mahānti — the universal; bhūtāni — elements; bhūteṣu — in the living entities; ucca-avaceṣu — both gigantic and minute; anu — after; praviṣṭāni — situated internally; apraviṣṭāni — situated externally; tathā — so; teṣu — in them; na — not; teṣu — in them; aham — I.
+
+**Translation:**
+
+Translation
+“ ‘As the material elements enter the bodies of all living beings and yet remain outside them all, I exist within all material creations and yet am not within them.
+
+**Purport:**
+
+Purport
+This is a quotation from Śrīmad-Bhāgavatam (2.9.35). It is also the third verse of the catuḥ-ślokī. For an explanation see Ādi-līlā, chapter one, text 55.
+

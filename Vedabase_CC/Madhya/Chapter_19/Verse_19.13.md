@@ -1,0 +1,22 @@
+# CC Madhya 19.13
+
+**Bengali:**
+
+এথা সনাতন-গোসাঞি ভাবে মনে মন ।
+রাজা মোরে প্রীতি করে, সে — মোর বন্ধন ॥ ১৩ ॥
+
+**Transliteration:**
+
+ethā sanātana-gosāñi bhāve mane mana
+rājā more prīti kare, se — mora bandhana
+
+**Synonyms:**
+
+Synonyms
+ethā — here (in Gauḍa-deśa); sanātana-gosāñi — the elder brother, Sanātana Gosvāmī; bhāve — considers; mane mana — in the mind; rājā — the Nawab; more — me; prīti kare — loves very much; se — that; mora — my; bandhana — great obligation.
+
+**Translation:**
+
+Translation
+While Sanātana Gosvāmī was in Gauḍa-deśa, he was thinking, “The Nawab is very pleased with me. I certainly have an obligation.
+

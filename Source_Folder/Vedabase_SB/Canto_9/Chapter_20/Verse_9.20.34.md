@@ -1,0 +1,24 @@
+# ŚB 9.20.34
+
+**Sanskrit:**
+
+तस्यासन् नृप वैदर्भ्य: पत्‍न्यस्तिस्र: सुसम्मता: ।
+जघ्नुस्त्यागभयात् पुत्रान् नानुरूपा इतीरिते ॥ ३४ ॥
+
+**Transliteration:**
+
+tasyāsan nṛpa vaidarbhyaḥ
+patnyas tisraḥ susammatāḥ
+jaghnus tyāga-bhayāt putrān
+nānurūpā itīrite
+
+**Synonyms:**
+
+Synonyms
+tasya — of him (Mahārāja Bharata); āsan — there were; nṛpa — O King (Mahārāja Parīkṣit); vaidarbhyaḥ — daughters of Vidarbha; patnyaḥ — wives; tisraḥ — three; su-sammatāḥ — very pleasing and suitable; jaghnuḥ — killed; tyāga-bhayāt — fearing rejection; putrān — their sons; na anurūpāḥ — not exactly like the father; iti — like this; īrite — considering.
+
+**Translation:**
+
+Translation
+O King Parīkṣit, Mahārāja Bharata had three pleasing wives, who were daughters of the King of Vidarbha. When all three of them bore children who did not resemble the King, these wives thought that he would consider them unfaithful queens and reject them, and therefore they killed their own sons.
+

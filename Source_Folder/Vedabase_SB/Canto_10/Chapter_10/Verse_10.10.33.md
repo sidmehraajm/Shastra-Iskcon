@@ -1,0 +1,29 @@
+# ŚB 10.10.33
+
+**Sanskrit:**
+
+तस्मै तुभ्यं भगवते वासुदेवाय वेधसे ।
+आत्मद्योतगुणैश्छन्नमहिम्ने ब्रह्मणे नम: ॥ ३३ ॥
+
+**Transliteration:**
+
+tasmai tubhyaṁ bhagavate
+vāsudevāya vedhase
+ātma-dyota-guṇaiś channa-
+mahimne brahmaṇe namaḥ
+
+**Synonyms:**
+
+Synonyms
+tasmai — (because You are not to be understood from the material platform, we simply offer obeisances) unto Him; tubhyam — unto You; bhagavate — unto the Supreme Personality of Godhead; vāsudevāya — unto Vāsudeva, the origin of Saṅkarṣaṇa, Pradyumna and Aniruddha; vedhase — unto the origin of creation; ātma-dyota-guṇaiḥ channa-mahimne — unto You whose glories are covered by Your personal energy; brahmaṇe — unto the Supreme Brahman; namaḥ — our respectful obeisances.
+
+**Translation:**
+
+Translation
+O Lord, whose glories are covered by Your own energy, You are the Supreme Personality of Godhead. You are Saṅkarṣaṇa, the origin of creation, and You are Vāsudeva, the origin of the caturvyūha. Because You are everything and are therefore the Supreme Brahman, we simply offer our respectful obeisances unto You.
+
+**Purport:**
+
+Purport
+Instead of trying to understand Kṛṣṇa in detail, it is better to offer our respectful obeisances unto Him, for He is the origin of everything and He is everything. Because we are covered by the material modes of nature, He is very difficult for us to understand unless He reveals Himself to us. Therefore it is better for us to acknowledge that He is everything and offer obeisances unto His lotus feet.
+

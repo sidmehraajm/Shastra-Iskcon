@@ -1,0 +1,31 @@
+# CC Madhya 9.244
+
+**Bengali:**
+
+শৃঙ্গেরি-মঠে আইলা শঙ্করাচার্য-স্থানে ।
+মৎস্য-তীর্থ দেখি’ কৈল তুঙ্গভদ্রায় স্নানে ॥ ২৪৪ ॥
+
+**Transliteration:**
+
+śṛṅgeri-maṭhe āilā śaṅkarācārya-sthāne
+matsya-tīrtha dekhi’ kaila tuṅgabhadrāya snāne
+
+**Synonyms:**
+
+Synonyms
+śṛṅgeri-maṭhe — to the Śṛṅgeri monastery; āilā — came; śaṅkarācārya-sthāne — at the place of Śaṅkarācārya; matsya-tīrtha — the holy place named Matsya-tīrtha; kaila — did; tuṅgabhadrāya snāne — bathing in the river Tuṅgabhadrā.
+
+**Translation:**
+
+Translation
+Then He saw the monastery known as Śṛṅgeri-maṭha, the abode of Ācārya Śaṅkara. He then visited Matsya-tīrtha, a place of pilgrimage, and took a bath in the river Tuṅgabhadrā.
+
+**Purport:**
+
+Purport
+The monastery known as Śṛṅgeri-maṭha is situated in the state of Karnataka, in the district of Chikmagalur. This monastery is located at the confluence of the rivers Tuṅga and Bhadrā, seven miles south of Harihara-pura. The real name of this place is Śṛṅga-giri or Śṛṅgavera-purī, and it is the headquarters of Śaṅkarācārya.
+Śaṅkarācārya had four principal disciples, and he established four centers under their management. In North India at Badarikāśrama, the monastery named Jyotir-maṭha was established. At Puruṣottama, the Bhogavardhana or Govardhana monastery was established. In Dvārakā, the Sāradā monastery was established. And the fourth monastery, established in South India, is known as Śṛṅgeri-maṭha. In the Śṛṅgeri-maṭha, the sannyāsīs assume the designations Sarasvatī, Bhāratī and Purī. They are all ekadaṇḍi-sannyāsīs, distinguished from the Vaiṣṇava sannyāsīs, who are known as tridaṇḍi-sannyāsīs. The Śṛṅgeri-maṭha is situated in South India, in a portion of the country comprising Āndhra, Draviḍa, Karṇāṭa and Kerala. The community is called Bhūrivāra, and the dynasty is called Bhūr-bhuvaḥ. The place is called Rāmeśvara, and the slogan is ahaṁ brahmāsmi. The Deity is Lord Varāha, and the energetic power is Kāmākṣī. The ācārya is Hastāmalaka, and the brahmacārī assistants of the sannyāsīs are known as Caitanya. The place of pilgrimage is called Tuṅgabhadrā, and the subject for Vedic study is the Yajur Veda.
+The list of the disciplic succession from Śaṅkarācārya is available, and the names of the ācāryas and the dates of their accepting sannyāsa, according to the Śaka Era (or Śakābda), are as follows (for approximate Christian-era dates, add 78 years): Śaṅkarācārya, 622 Śaka; Sureśvarācārya, 630; Bodhanācārya, 680; Jñānadhanācārya, 768; Jñānottama-śivācārya, 827; Jñānagiri Ācārya, 871; Siṁhagiri Ācārya, 958; Īśvara Tīrtha, 1019; Narasiṁha Tīrtha, 1067; Vidyātīrtha Vidyā-śaṅkara, 1150; Bhāratī-kṛṣṇa Tīrtha, 1250; Vidyāraṇya Bhāratī, 1253; Candraśekhara Bhāratī, 1290; Narasiṁha Bhāratī, 1309; Puruṣottama Bhāratī, 1328; Śaṅkarānanda, 1350; Candraśekhara Bhāratī, 1371; Narasiṁha Bhāratī, 1386; Puruṣottama Bhāratī, 1398; Rāmacandra Bhāratī, 1430; Narasiṁha Bhāratī, 1479; Narasiṁha Bhāratī, 1485; Dhanamaḍi-narasiṁha Bhāratī, 1498; Abhinava-narasiṁha Bhāratī, 1521; Saccidānanda Bhāratī, 1544; Narasiṁha Bhāratī, 1585; Saccidānanda Bhāratī, 1627; Abhinava-saccidānanda Bhāratī, 1663; Nṛsiṁha Bhāratī, 1689; Saccidānanda Bhāratī, 1692; Abhinava-saccidānanda Bhāratī, 1730; Narasiṁha Bhāratī, 1739; Saccidānanda Śivābhinava Vidyā-narasiṁha Bhāratī, 1788.
+Regarding Śaṅkarācārya, it is understood that he was born in the year 608 of the Śakābda Era, in the month of Vaiśākha, on the third day of the waxing moon, in a place in South India known as Kālāḍi. His father’s name was Śivaguru, and he lost his father at an early age. When Śaṅkarācārya was only eight years old, he completed his study of all scriptures and took sannyāsa from Govinda, who was residing on the banks of the Narmadā. After accepting sannyāsa, Śaṅkarācārya stayed with his spiritual master for some days. He then took his permission to go to Vārāṇasī, and from there he went to Badarikāśrama, where he stayed until his twelfth year. While there, he wrote a commentary on the Brahma-sūtra, as well as on ten Upaniṣads and the Bhagavad-gītā. He also wrote Sanat-sujātīya and a commentary on the Nṛsiṁha-tāpanī. Among his many disciples, his four chief disciples are Padmapāda, Sureśvara, Hastāmalaka and Troṭaka. After departing from Vārāṇasī, Śaṅkarācārya went to Prayāga, where he met a great learned scholar called Kumārila Bhaṭṭa. Śaṅkarācārya wanted to discuss the authority of the scriptures, but Kumārila Bhaṭṭa, being on his deathbed, sent him to his disciple Maṇḍana, in the city of Māhiṣmatī. It was there that Śaṅkarācārya defeated Maṇḍana Miśra in a discussion of the śāstras. Maṇḍana had a wife named Sarasvatī, or Ubhaya-bhāratī, who served as mediator between Śaṅkarācārya and her husband. It is said that she wanted to discuss erotic principles and amorous love with Śaṅkarācārya, but Śaṅkarācārya had been a brahmacārī since birth and therefore had no experience in amorous love. He took a month’s leave from Ubhaya-bhāratī and, by his mystic power, entered the body of a king who had just died. In this way Śaṅkarācārya experienced the erotic principles. After attaining this experience, he wanted to discuss erotic principles with Ubhaya-bhāratī, but without hearing his discussion she blessed him and assured the continuous existence of the Śṛṅgeri-maṭha. She then took leave of material life. Afterwards, Maṇḍana Miśra took the order of sannyāsa from Śaṅkarācārya and became known as Sureśvara. Śaṅkarācārya defeated many scholars throughout India and converted them to his Māyāvāda philosophy. He left his material body at the age of thirty-three.
+As far as Matsya-tīrtha is concerned, it was supposedly situated beside the ocean in the district of Malabar.
+

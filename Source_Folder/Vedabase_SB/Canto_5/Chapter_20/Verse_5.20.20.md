@@ -1,0 +1,20 @@
+# ŚB 5.20.20
+
+**Sanskrit:**
+
+तस्मिन्नपि प्रैयव्रतो घृतपृष्ठो नामाधिपति: स्वे द्वीपे वर्षाणि सप्त विभज्य तेषु पुत्रनामसु सप्त रिक्थादान् वर्षपान्निवेश्य स्वयं भगवान् भगवत: परमकल्याणयशस आत्मभूतस्य हरेश्चरणारविन्दमुपजगाम ॥ २० ॥
+
+**Transliteration:**
+
+tasminn api praiyavrato ghṛtapṛṣṭho nāmādhipatiḥ sve dvīpe varṣāṇi sapta vibhajya teṣu putra-nāmasu sapta rikthādān varṣapān niveśya svayaṁ bhagavān bhagavataḥ parama-kalyāṇa-yaśasa ātma-bhūtasya hareś caraṇāravindam upajagāma.
+
+**Synonyms:**
+
+Synonyms
+tasmin — in that island; api — also; praiyavrataḥ — the son of Mahārāja Priyavrata; ghṛta-pṛṣṭhaḥ — Ghṛtapṛṣṭha; nāma — named; adhipatiḥ — the king of that island; sve — his own; dvīpe — in the island; varṣāṇi — tracts of land; sapta — seven; vibhajya — dividing; teṣu — in each of them; putra-nāmasu — possessing the names of his sons; sapta — seven; rikthā-dān — sons; varṣa-pān — the masters of the varṣas; niveśya — appointing; svayam — himself; bhagavān — very powerful; bhagavataḥ — of the Supreme Personality of Godhead; parama-kalyāṇa-yaśasaḥ — whose glories are so auspicious; ātma-bhūtasya — the soul of all souls; hareḥ caraṇa-aravindam — the lotus feet of the Lord; upajagāma — took shelter at.
+
+**Translation:**
+
+Translation
+The ruler of this island was another son of Mahārāja Priyavrata. His name was Ghṛtapṛṣṭha, and he was a very learned scholar. He also divided his own island among his seven sons. After dividing the island into seven parts, named according to the names of his sons, Ghṛtapṛṣṭha Mahārāja completely retired from family life and took shelter at the lotus feet of the Lord, the soul of all souls, who has all auspicious qualities. Thus he attained perfection.
+

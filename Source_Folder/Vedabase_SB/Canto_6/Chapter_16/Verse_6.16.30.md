@@ -1,0 +1,26 @@
+# ŚB 6.16.30
+
+**Sanskrit:**
+
+मृणालगौरं शितिवाससं स्फुरत्-
+किरीटकेयूरकटित्रकङ्कणम् ।
+प्रसन्नवक्त्रारुणलोचनं वृतं
+ददर्श सिद्धेश्वरमण्डलै: प्रभुम् ॥ ३० ॥
+
+**Transliteration:**
+
+mṛṇāla-gauraṁ śiti-vāsasaṁ sphurat-
+kirīṭa-keyūra-kaṭitra-kaṅkaṇam
+prasanna-vaktrāruṇa-locanaṁ vṛtaṁ
+dadarśa siddheśvara-maṇḍalaiḥ prabhum
+
+**Synonyms:**
+
+Synonyms
+mṛṇāla-gauram — white like the fibers of a lotus; śiti-vāsasam — wearing garments of blue silk; sphurat — glittering; kirīṭa — helmet; keyūra — armlets; kaṭitra — belt; kaṅkaṇam — whose bangles; prasanna-vaktra — smiling face; aruṇa-locanam — having reddish eyes; vṛtam — surrounded; dadarśa — he saw; siddha-īśvara-maṇḍalaiḥ — by the most perfect devotees; prabhum — the Supreme Personality of Godhead.
+
+**Translation:**
+
+Translation
+Upon reaching the shelter of Lord Śeṣa, the Supreme Personality of Godhead, Citraketu saw that He was as white as the white fibers of a lotus flower. He was dressed in bluish garments and adorned with a brilliantly glittering helmet, armlets, belt and bangles. His face was smiling, and His eyes were reddish. He was surrounded by such exalted liberated persons as Sanat-kumāra.
+

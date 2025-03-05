@@ -1,0 +1,29 @@
+# ŚB 10.13.16
+
+**Sanskrit:**
+
+ततो वत्सानद‍ृष्ट्वैत्य पुलिनेऽपि च वत्सपान् ।
+उभावपि वने कृष्णो विचिकाय समन्तत: ॥ १६ ॥
+
+**Transliteration:**
+
+tato vatsān adṛṣṭvaitya
+puline ’pi ca vatsapān
+ubhāv api vane kṛṣṇo
+vicikāya samantataḥ
+
+**Synonyms:**
+
+Synonyms
+tataḥ — thereafter; vatsān — the calves; adṛṣṭvā — not seeing there within the forest; etya — after; puline api — to the bank of the Yamunā; ca — also; vatsapān — could not see the cowherd boys; ubhau api — both of them (the calves and the cowherd boys); vane — within the forest; kṛṣṇaḥ — Lord Kṛṣṇa; vicikāya — searched all over; samantataḥ — here and there.
+
+**Translation:**
+
+Translation
+Thereafter, when Kṛṣṇa was unable to find the calves, He returned to the bank of the river, but there He was also unable to see the cowherd boys. Thus He began to search for both the calves and the boys, as if He could not understand what had happened.
+
+**Purport:**
+
+Purport
+Kṛṣṇa could immediately understand that Brahmā had taken away both the calves and the boys, but as an innocent child He searched here and there so that Brahmā could not understand Kṛṣṇa’s māyā. This was all a dramatic performance. A player knows everything, but still he plays on the stage in such a way that others do not understand him.
+

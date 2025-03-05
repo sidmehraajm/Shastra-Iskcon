@@ -1,0 +1,23 @@
+# ŚB 4.10.10
+
+**Sanskrit:**
+
+तेऽपि चामुममृष्यन्त: पादस्पर्शमिवोरगा: । शरैरविध्यन् युगपद् द्विगुणं प्रचिकीर्षव: ॥ १० ॥
+
+**Transliteration:**
+
+te ’pi cāmum amṛṣyantaḥ
+pāda-sparśam ivoragāḥ
+śarair avidhyan yugapad
+dvi-guṇaṁ pracikīrṣavaḥ
+
+**Synonyms:**
+
+Synonyms
+te — the Yakṣas; api — also; ca — and; amum — at Dhruva; amṛṣyantaḥ — being intolerant of; pāda-sparśam — being touched by the feet; iva — like; uragāḥ — serpents; śaraiḥ — with arrows; avidhyan — struck; yugapat — simultaneously; dvi-guṇam — twice as much; pracikīrṣavaḥ — trying to retaliate.
+
+**Translation:**
+
+Translation
+Just like serpents, who cannot tolerate being trampled upon by anyone’s feet, the Yakṣas, being intolerant of the wonderful prowess of Dhruva Mahārāja, threw twice as many arrows — six from each of their soldiers — and thus they very valiantly exhibited their prowess.
+

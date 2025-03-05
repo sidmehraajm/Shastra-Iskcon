@@ -1,0 +1,29 @@
+# ŚB 9.2.28
+
+**Sanskrit:**
+
+अमाद्यदिन्द्र: सोमेन दक्षिणाभिर्द्विजातय: ।
+मरुत: परिवेष्टारो विश्वेदेवा: सभासद: ॥ २८ ॥
+
+**Transliteration:**
+
+amādyad indraḥ somena
+dakṣiṇābhir dvijātayaḥ
+marutaḥ pariveṣṭāro
+viśvedevāḥ sabhā-sadaḥ
+
+**Synonyms:**
+
+Synonyms
+amādyat — became intoxicated; indraḥ — the King of heaven, Lord Indra; somena — by drinking the intoxicant soma-rasa; dakṣiṇābhiḥ — by receiving sufficient contributions; dvijātayaḥ — the brahminical group; marutaḥ — the airs; pariveṣṭāraḥ — offering the foodstuffs; viśvedevāḥ — universal demigods; sabhā-sadaḥ — members of the assembly.
+
+**Translation:**
+
+Translation
+In that sacrifice, King Indra became intoxicated by drinking a large quantity of soma-rasa. The brāhmaṇas received ample contributions, and therefore they were satisfied. For that sacrifice, the various demigods who control the winds offered foodstuffs, and the Viśvedevas were members of the assembly.
+
+**Purport:**
+
+Purport
+Because of the yajña performed by Marutta, everyone was pleased, especially the brāhmaṇas and kṣatriyas. Brāhmaṇas are interested in receiving contributions as priests, and kṣatriyas are interested in drinking. All of them, therefore, were satisfied with their different engagements.
+

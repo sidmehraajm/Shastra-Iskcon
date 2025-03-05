@@ -2,7 +2,6 @@ import time
 import os
 import threading
 import re
-from urllib.parse import urlparse
 from selenium import webdriver
 from selenium.webdriver.common.by import By
 from selenium.webdriver.chrome.service import Service
@@ -18,7 +17,7 @@ def log_message(message):
     print(message)
 
 def save_verse_async(file_path, markdown_content):
-    """Save file asynchronously in a separate thread."""
+    """Save file asynchronously."""
     def write_to_file():
         with open(file_path, "w", encoding="utf-8") as f:
             f.write(markdown_content)
@@ -38,14 +37,13 @@ def extract_verse_identifier(url):
 
 def scrape_verse_cc(driver, verse_url, part, chapter):
     """
-    Loads a verse page and scrapes its content.
-    Saves the content into: ../Vedabase_CC/{Part}/Chapter_{chapter}/Verse_{verse_id}.md
+    Loads a verse page and scrapes its content into Vedabase_CC/{Part}/Chapter_{chapter}/Verse_{verse_id}.md
 
-    - Bengali: extracted by class 'av-bengali'
-    - Transliteration: extracted by the provided XPath
-    - Synonyms: extracted by class 'av-synonyms'
-    - Translation: extracted by class 'av-translation'
-    - Purport: first tries class 'av-purport'; if not found, tries fallback XPath '/html/body/div/div/div/div[3]/main/div[2]/div[6]'
+    - Bengali: first tries class 'av-bengali', then fallback XPath "/html/body/div/div/div/div[2]/main/div[2]/div[2]"
+    - Transliteration: tries XPath "/html/body/div/div/div/div[2]/main/div[2]/div[3]/div/div"
+    - Synonyms: class 'av-synonyms'
+    - Translation: class 'av-translation'
+    - Purport: class 'av-purport', fallback "/html/body/div/div/div/div[3]/main/div[2]/div[6]"
     """
     driver.get(verse_url)
     try:
@@ -61,11 +59,11 @@ def scrape_verse_cc(driver, verse_url, part, chapter):
         title = "No Title"
     log_message(f"Scraping: {title}")
 
-    # Folder structure: ../Vedabase_CC/{part.capitalize()}/Chapter_{chapter}/
-    base_folder = os.path.join("..", "Vedabase_CC", part.capitalize(), f"Chapter_{chapter}")
+    # Folder structure
+    base_folder = os.path.join("Vedabase_CC", part.capitalize(), f"Chapter_{chapter}")
     os.makedirs(base_folder, exist_ok=True)
 
-    # Use the last token of the title (e.g. "1.25") or fallback to the URL
+    # Determine verse ID
     verse_id = title.split()[-1] if len(title.split()) > 1 else extract_verse_identifier(verse_url)
     if not verse_id:
         verse_id = "unknown"
@@ -77,37 +75,47 @@ def scrape_verse_cc(driver, verse_url, part, chapter):
 
     content = {}
 
-    # 1. Bengali (class-based)
+    # 1. Bengali (try class first, fallback to XPATH)
+    bengali_text = ""
     try:
-        bengali_element = driver.find_element(By.CLASS_NAME, "av-bengali")
-        content["Bengali"] = bengali_element.text.strip()
+        bengali_text = driver.find_element(By.CLASS_NAME, "av-bengali").text.strip()
     except:
-        content["Bengali"] = ""
+        pass
+    if not bengali_text:
+        # fallback XPATH
+        try:
+            bengali_text = driver.find_element(By.XPATH, "/html/body/div/div/div/div[2]/main/div[2]/div[2]").text.strip()
+        except:
+            bengali_text = ""
+    content["Bengali"] = bengali_text
 
-    # 2. Transliteration (XPath)
+    # 2. Transliteration (fixed XPATH)
     try:
-        translit_element = driver.find_element(By.XPATH, "/html/body/div/div/div/div[2]/main/div[2]/div[3]/div/div")
-        content["Transliteration"] = translit_element.text.strip()
+        translit_elem = driver.find_element(By.XPATH, "/html/body/div/div/div/div[2]/main/div[2]/div[3]/div/div")
+        content["Transliteration"] = translit_elem.text.strip()
     except:
         content["Transliteration"] = ""
 
     # 3. Synonyms & Translation (class-based)
     for sec, cls in [("Synonyms", "av-synonyms"), ("Translation", "av-translation")]:
         try:
-            element = driver.find_element(By.CLASS_NAME, cls)
-            content[sec] = element.text.strip()
+            elem = driver.find_element(By.CLASS_NAME, cls)
+            content[sec] = elem.text.strip()
         except:
             content[sec] = ""
 
-    # 4. Purport (class-based first, fallback to XPath)
+    # 4. Purport (class-based, fallback to XPATH)
     purport_text = ""
     try:
-        purport_element = driver.find_element(By.CLASS_NAME, "av-purport")
-        purport_text = purport_element.text.strip()
+        purport_elem = driver.find_element(By.CLASS_NAME, "av-purport")
+        purport_text = purport_elem.text.strip()
     except:
+        pass
+    if not purport_text:
+        # fallback XPATH
         try:
-            purport_element = driver.find_element(By.XPATH, "/html/body/div/div/div/div[3]/main/div[2]/div[6]")
-            purport_text = purport_element.text.strip()
+            purport_elem = driver.find_element(By.XPATH, "/html/body/div/div/div/div[3]/main/div[2]/div[6]")
+            purport_text = purport_elem.text.strip()
         except:
             purport_text = ""
     content["Purport"] = purport_text
@@ -115,15 +123,14 @@ def scrape_verse_cc(driver, verse_url, part, chapter):
     # Build Markdown
     markdown_content = f"# {title}\n\n"
     for sec in ["Bengali", "Transliteration", "Synonyms", "Translation", "Purport"]:
-        if content[sec]:
-            markdown_content += f"**{sec}:**\n\n{content[sec]}\n\n"
+        text = content[sec]
+        if text:
+            markdown_content += f"**{sec}:**\n\n{text}\n\n"
 
     save_verse_async(file_path, markdown_content)
 
 def scrape_chapter_cc(driver, part, chapter):
-    """
-    Loads the chapter overview (…/cc/{part}/{chapter}/), extracts verse URLs, then scrapes each verse.
-    """
+    """Loads the chapter overview (…/cc/{part}/{chapter}/), extracts verse URLs, then scrapes each verse."""
     chapter_url = f"https://vedabase.io/en/library/cc/{part}/{chapter}/"
     log_message(f"Loading Chapter {chapter} of {part.capitalize()}: {chapter_url}")
     driver.get(chapter_url)
@@ -167,9 +174,7 @@ def scrape_chapter_cc(driver, part, chapter):
         scrape_verse_cc(driver, url, part, chapter)
 
 def scrape_part_cc(driver, part):
-    """
-    Loads the part overview (…/cc/{part}/), extracts chapter URLs, then scrapes each chapter.
-    """
+    """Loads the part overview (…/cc/{part}/), extracts chapter URLs, then scrapes each chapter."""
     part_url = f"https://vedabase.io/en/library/cc/{part}/"
     log_message(f"\n--- Processing {part.capitalize()} Lila: {part_url} ---")
     driver.get(part_url)
@@ -212,7 +217,9 @@ def scrape_part_cc(driver, part):
 def scrape_vedabase_cc():
     """
     Scrapes all three parts of the Chaitanya Charitamrita (adi, madhya, antya),
-    including Bengali, Transliteration (XPath), Synonyms, Translation, and Purport (class + fallback XPath).
+    capturing Bengali with a fallback approach:
+      - class 'av-bengali' first
+      - fallback /html/body/div/div/div/div[2]/main/div[2]/div[2]
     """
     options = Options()
     options.add_argument("--headless")
@@ -222,12 +229,10 @@ def scrape_vedabase_cc():
     options.binary_location = "/Applications/Google Chrome.app/Contents/MacOS/Google Chrome"
 
     driver = webdriver.Chrome(service=Service(ChromeDriverManager().install()), options=options)
-    # Instead of "Vedabase_CC", place it one folder above:
-    os.makedirs(os.path.join("..", "Vedabase_CC"), exist_ok=True)
-
-    # parts = ["adi", "madhya", "antya"]
+    os.makedirs("Vedabase_CC", exist_ok=True)
     parts = ["antya"]
 
+    # parts = ["adi", "madhya", "antya"]
     for part in parts:
         scrape_part_cc(driver, part)
 
@@ -236,4 +241,3 @@ def scrape_vedabase_cc():
 
 if __name__ == "__main__":
     scrape_vedabase_cc()
-

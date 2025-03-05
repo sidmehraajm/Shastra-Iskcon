@@ -1,0 +1,24 @@
+# ŚB 4.15.11
+
+**Sanskrit:**
+
+तस्याभिषेक आरब्धो ब्राह्मणैर्ब्रह्मवादिभि: ।
+आभिषेचनिकान्यस्मै आजह्रु: सर्वतो जना: ॥ ११ ॥
+
+**Transliteration:**
+
+tasyābhiṣeka ārabdho
+brāhmaṇair brahma-vādibhiḥ
+ābhiṣecanikāny asmai
+ājahruḥ sarvato janāḥ
+
+**Synonyms:**
+
+Synonyms
+tasya — his; abhiṣekaḥ — coronation; ārabdhaḥ — was arranged; brāhmaṇaiḥ — by the learned brāhmaṇas; brahma-vādibhiḥ — attached to the Vedic rituals; ābhiṣecanikāni — various paraphernalia for performing the ceremony; asmai — unto him; ājahruḥ — collected; sarvataḥ — from all directions; janāḥ — people.
+
+**Translation:**
+
+Translation
+The learned brāhmaṇas, who were very attached to the Vedic ritualistic ceremonies, then arranged for the King’s coronation. People from all directions collected all the different paraphernalia for the ceremony. Thus everything was complete.
+

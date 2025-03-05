@@ -1,0 +1,24 @@
+# ŚB 9.2.34
+
+**Sanskrit:**
+
+हेमचन्द्र: सुतस्तस्य धूम्राक्षस्तस्य चात्मज: ।
+तत्पुत्रात् संयमादासीत् कृशाश्व: सहदेवज: ॥ ३४ ॥
+
+**Transliteration:**
+
+hemacandraḥ sutas tasya
+dhūmrākṣas tasya cātmajaḥ
+tat-putrāt saṁyamād āsīt
+kṛśāśvaḥ saha-devajaḥ
+
+**Synonyms:**
+
+Synonyms
+hemacandraḥ — was named Hemacandra; sutaḥ — the son; tasya — of him (Viśāla); dhūmrākṣaḥ — was named Dhūmrākṣa; tasya — of him (Hemacandra); ca — also; ātmajaḥ — the son; tat-putrāt — from the son of him (Dhūmrākṣa); saṁyamāt — from he who was named Saṁyama; āsīt — there was; kṛśāśvaḥ — Kṛśāśva; saha — along with; devajaḥ — Devaja.
+
+**Translation:**
+
+Translation
+The son of Viśāla was known as Hemacandra, his son was Dhūmrākṣa, and his son was Saṁyama, whose sons were Devaja and Kṛśāśva.
+

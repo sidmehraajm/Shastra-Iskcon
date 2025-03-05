@@ -1,0 +1,22 @@
+# CC Madhya 14.63
+
+**Bengali:**
+
+আঙ্গিনাতে মহাপ্ৰভু লঞা ভক্তগণ ।
+আনন্দে আরম্ভ কৈল নর্তন-কীর্তন ॥ ৬৩ ॥
+
+**Transliteration:**
+
+āṅgināte mahāprabhu lañā bhakta-gaṇa
+ānande ārambha kaila nartana-kīrtana
+
+**Synonyms:**
+
+Synonyms
+āṅgināte — in the yard of the temple; mahāprabhu — Śrī Caitanya Mahāprabhu; lañā bhakta-gaṇa — with His devotees; ānande — in great pleasure; ārambha kaila — began; nartana-kīrtana — chanting and dancing.
+
+**Translation:**
+
+Translation
+While Lord Jagannātha, Lord Balarāma and Subhadrā sat on their respective thrones, Śrī Caitanya Mahāprabhu and His devotees began to perform saṅkīrtana with great pleasure, chanting and dancing in the yard of the temple.
+

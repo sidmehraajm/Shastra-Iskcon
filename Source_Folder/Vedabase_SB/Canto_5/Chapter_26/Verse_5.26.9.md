@@ -1,0 +1,20 @@
+# ŚB 5.26.9
+
+**Sanskrit:**
+
+एवमेवान्धतामिस्रे यस्तु वञ्चयित्वा पुरुषं दारादीनुपयुङ्क्ते यत्र शरीरी निपात्यमानो यातनास्थो वेदनया नष्टमतिर्नष्टद‍ृष्टिश्च भवति यथा वनस्पतिर्वृश्‍च्यमानमूलस्तस्मादन्धतामिस्रं तमुपदिशन्ति ॥ ९ ॥
+
+**Transliteration:**
+
+evam evāndhatāmisre yas tu vañcayitvā puruṣaṁ dārādīn upayuṅkte yatra śarīrī nipātyamāno yātanā-stho vedanayā naṣṭa-matir naṣṭa-dṛṣṭiś ca bhavati yathā vanaspatir vṛścyamāna-mūlas tasmād andhatāmisraṁ tam upadiśanti.
+
+**Synonyms:**
+
+Synonyms
+evam — in this way; eva — certainly; andhatāmisre — in the hellish planet known as Andhatāmisra; yaḥ — the person who; tu — but; vañcayitvā — cheating; puruṣam — another person; dāra-ādīn — the wife and children; upayuṅkte — enjoys; yatra — where; śarīrī — the embodied person; nipātyamānaḥ — being forcibly thrown; yātanā-sthaḥ — always situated in extremely miserable conditions; vedanayā — by such suffering; naṣṭa — lost; matiḥ — whose consciousness; naṣṭa — lost; dṛṣṭiḥ — whose sight; ca — also; bhavati — becomes; yathā — as much as; vanaspatiḥ — the trees; vṛścyamāna — being cut; mūlaḥ — whose root; tasmāt — because of this; andhatāmisram — Andhatāmisra; tam — that; upadiśanti — they call.
+
+**Translation:**
+
+Translation
+The destination of a person who slyly cheats another man and enjoys his wife and children is the hell known as Andhatāmisra. There his condition is exactly like that of a tree being chopped at its roots. Even before reaching Andhatāmisra, the sinful living being is subjected to various extreme miseries. These afflictions are so severe that he loses his intelligence and sight. It is for this reason that learned sages call this hell Andhatāmisra.
+

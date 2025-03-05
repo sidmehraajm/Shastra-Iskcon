@@ -1,0 +1,24 @@
+# ŚB 9.4.30
+
+**Sanskrit:**
+
+व्रतान्ते कार्तिके मासि त्रिरात्रं समुपोषित: ।
+स्‍नात: कदाचित् कालिन्द्यां हरिं मधुवनेऽर्चयत् ॥ ३० ॥
+
+**Transliteration:**
+
+vratānte kārtike māsi
+tri-rātraṁ samupoṣitaḥ
+snātaḥ kadācit kālindyāṁ
+hariṁ madhuvane ’rcayat
+
+**Synonyms:**
+
+Synonyms
+vrata-ante — at the end of observing the vow; kārtike — in the month of Kārtika (October-November); māsi — in that month; tri-rātram — for three nights; samupoṣitaḥ — after completely observing the fast; snātaḥ — after bathing; kadācit — once upon a time; kālindyām — on the bank of the Yamunā; harim — unto the Supreme Personality of Godhead; madhuvane — in that part of the Vṛndāvana area known as Madhuvana; arcayat — worshiped the Lord.
+
+**Translation:**
+
+Translation
+In the month of Kārtika, after observing that vow for one year, after observing a fast for three nights and after bathing in the Yamunā, Mahārāja Ambarīṣa worshiped the Supreme Personality of Godhead, Hari, in Madhuvana.
+

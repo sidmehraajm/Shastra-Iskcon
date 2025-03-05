@@ -1,0 +1,22 @@
+# CC Madhya 11.235
+
+**Bengali:**
+
+মহানৃত্য, মহাপ্রেম, মহাসংকীর্তন ।
+দেখি’ প্রেমাবেশে ভাসে নীলাচল-জন ॥ ২৩৫ ॥
+
+**Transliteration:**
+
+mahā-nṛtya, mahā-prema, mahā-saṅkīrtana
+dekhi’ premāveśe bhāse nīlācala-jana
+
+**Synonyms:**
+
+Synonyms
+mahā-nṛtya — great dancing; mahā-prema — great love; mahā-saṅkīrtana — great congregational chanting; dekhi’ — seeing; prema-āveśe — in ecstatic love; bhāse — float; nīlācala-jana — all the residents of Jagannātha Purī.
+
+**Translation:**
+
+Translation
+Upon seeing the great dancing, great love and great saṅkīrtana, all the people of Jagannātha Purī floated in an ecstatic ocean of love.
+

@@ -1,0 +1,30 @@
+# ŚB 6.6.38-39
+
+**Sanskrit:**
+
+अथात: श्रूयतां वंशो योऽदितेरनुपूर्वश: ।
+यत्र नारायणो देव: स्वांशेनावातरद्विभु: ॥ ३८ ॥
+विवस्वानर्यमा पूषा त्वष्टाथ सविता भग: ।
+धाता विधाता वरुणो मित्र: शत्रु उरुक्रम: ॥ ३९ ॥
+
+**Transliteration:**
+
+athātaḥ śrūyatāṁ vaṁśo
+yo ’diter anupūrvaśaḥ
+yatra nārāyaṇo devaḥ
+svāṁśenāvātarad vibhuḥ
+vivasvān aryamā pūṣā
+tvaṣṭātha savitā bhagaḥ
+dhātā vidhātā varuṇo
+mitraḥ śatru urukramaḥ
+
+**Synonyms:**
+
+Synonyms
+atha — thereafter; ataḥ — now; śrūyatām — let it be heard; vaṁśaḥ — the dynasty; yaḥ — which; aditeḥ — from Aditi; anupūrvaśaḥ — in chronological order; yatra — wherein; nārāyaṇaḥ — the Supreme Personality of Godhead; devaḥ — the Lord; sva-aṁśena — by His own plenary expansion; avātarat — descended; vibhuḥ — the Supreme; vivasvān — Vivasvān; aryamā — Aryamā; pūṣā — Pūṣā; tvaṣṭā — Tvaṣṭā; atha — thereafter; savitā — Savitā; bhagaḥ — Bhaga; dhātā — Dhātā; vidhātā — Vidhātā; varuṇaḥ — Varuṇa; mitraḥ — Mitra; śatruḥ — Śatru; urukramaḥ — Urukrama.
+
+**Translation:**
+
+Translation
+Now please hear me as I describe the descendants of Aditi in chronological order. In this dynasty the Supreme Personality of Godhead Nārāyaṇa descended by His plenary expansion. The names of the sons of Aditi are as follows: Vivasvān, Aryamā, Pūṣā, Tvaṣṭā, Savitā, Bhaga, Dhātā, Vidhātā, Varuṇa, Mitra, Śatru and Urukrama.
+

@@ -1,0 +1,29 @@
+# ŚB 10.3.29
+
+**Sanskrit:**
+
+जन्म ते मय्यसौ पापो मा विद्यान्मधुसूदन ।
+समुद्विजे भवद्धेतो: कंसादहमधीरधी: ॥ २९ ॥
+
+**Transliteration:**
+
+janma te mayy asau pāpo
+mā vidyān madhusūdana
+samudvije bhavad-dhetoḥ
+kaṁsād aham adhīra-dhīḥ
+
+**Synonyms:**
+
+Synonyms
+janma — the birth; te — of Your Lordship; mayi — in my (womb); asau — that Kaṁsa; pāpaḥ — extremely sinful; mā vidyāt — may be unable to understand; madhusūdana — O Madhusūdana; samudvije — I am full of anxiety; bhavat-hetoḥ — because of Your appearance; kaṁsāt — because of Kaṁsa, with whom I have had such bad experience; aham — I; adhīra-dhīḥ — have become more and more anxious.
+
+**Translation:**
+
+Translation
+O Madhusūdana, because of Your appearance, I am becoming more and more anxious in fear of Kaṁsa. Therefore, please arrange for that sinful Kaṁsa to be unable to understand that You have taken birth from my womb.
+
+**Purport:**
+
+Purport
+Devakī addressed the Supreme Personality of Godhead as Madhusūdana. She was aware that the Lord had killed many demons like Madhu who were hundreds and thousands of times more powerful than Kaṁsa, yet because of affection for the transcendental child, she believed that Kaṁsa could kill Him. Instead of thinking of the unlimited power of the Lord, she thought of the Lord with affection, and therefore she requested the transcendental child to disappear.
+

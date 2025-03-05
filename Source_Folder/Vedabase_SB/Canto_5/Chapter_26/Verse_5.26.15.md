@@ -1,0 +1,25 @@
+# ŚB 5.26.15
+
+**Sanskrit:**
+
+यस्त्विह वै निजवेदपथादनापद्यपगत: पाखण्डं चोपगतस्तमसिपत्रवनं प्रवेश्य कशया प्रहरन्ति तत्र हासावितस्ततो धावमान उभयतोधारैस्तालवनासिपत्रैश्छिद्यमानसर्वाङ्गो हा हतोऽस्मीति परमया वेदनया मूर्च्छित: पदे पदे निपतति स्वधर्महा पाखण्डानुगतं फलं भुङ्क्ते ॥ १५ ॥
+
+**Transliteration:**
+
+yas tv iha vai nija-veda-pathād anāpady apagataḥ pākhaṇḍaṁ copagatas tam asi-patravanaṁ praveśya kaśayā praharanti tatra hāsāv itas tato dhāvamāna ubhayato dhārais tāla-vanāsi-patraiś chidyamāna-sarvāṅgo hā hato ’smīti paramayā vedanayā mūrcchitaḥ pade pade nipatati sva-dharmahā pākhaṇḍānugataṁ phalaṁ bhuṅkte.
+
+**Synonyms:**
+
+Synonyms
+yaḥ — anyone who; tu — but; iha — in this life; vai — indeed; nija-veda-pathāt — from his own path, recommended by the Vedas; anāpadi — even without an emergency; apagataḥ — deviated; pākhaṇḍam — a concocted, atheistic system; ca — and; upagataḥ — gone to; tam — him; asi-patravanam — the hell known as Asi-patravana; praveśya — making enter; kaśayā — with a whip; praharanti — they beat; tatra — there; ha — certainly; asau — that; itaḥ tataḥ — here and there; dhāvamānaḥ — running; ubhayataḥ — on both sides; dhāraiḥ — by the edges; tāla-vana-asi-patraiḥ — by the swordlike leaves of palm trees; chidyamāna — being cut; sarva-aṅgaḥ — whose entire body; hā — alas; hataḥ — killed; asmi — I am; iti — thus; paramayā — with severe; vedanayā — pain; mūrcchitaḥ — fainted; pade pade — at every step; nipatati — falls down; sva-dharma-hā — the killer of his own principles of religion; pākhaṇḍa-anugatam phalam — the result of accepting an atheistic path; bhuṅkte — he suffers.
+
+**Translation:**
+
+Translation
+If a person deviates from the path of the Vedas in the absence of an emergency, the servants of Yamarāja put him into the hell called Asi-patravana, where they beat him with whips. When he runs hither and thither, fleeing from the extreme pain, on all sides he runs into palm trees with leaves like sharpened swords. Thus injured all over his body and fainting at every step, he cries out, “Oh, what shall I do now! How shall I be saved!” This is how one suffers who deviates from the accepted religious principles.
+
+**Purport:**
+
+Purport
+There is actually only one religious principle: dharmaṁ tu sākṣād bhagavat-praṇītam. The only religious principle is to follow the orders of the Supreme Personality of Godhead. Unfortunately, especially in this Age of Kali, everyone is an atheist. People do not even believe in God, what to speak of following His words. The words nija-veda-patha can also mean “one’s own set of religious principles.” Formerly there was only one veda-patha, or set of religious principles. Now there are many. It doesn’t matter which set of religious principles one follows: the only injunction is that he must follow them strictly. An atheist, or nāstika, is one who does not believe in the Vedas. However, even if one takes up a different system of religion, according to this verse he must follow the religious principles he has accepted. Whether one is a Hindu, or a Mohammedan or a Christian, he should follow his own religious principles. However, if one concocts his own religious path within his mind, or if one follows no religious principles at all, he is punished in the hell known as Asi-patravana. In other words, a human being must follow some religious principles. If he does not follow any religious principles, he is no better than an animal. As Kali-yuga advances, people are becoming godless and taking up so-called secularism. They do not know the punishment awaiting them in Asi-patravana, as described in this verse.
+

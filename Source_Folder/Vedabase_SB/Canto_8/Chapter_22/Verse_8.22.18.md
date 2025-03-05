@@ -1,0 +1,26 @@
+# ŚB 8.22.18
+
+**Sanskrit:**
+
+श्रीशुक उवाच
+तस्यानुश‍ृण्वतो राजन् प्रह्लादस्य कृताञ्जले: ।
+हिरण्यगर्भो भगवानुवाच मधुसूदनम् ॥ १८ ॥
+
+**Transliteration:**
+
+śrī-śuka uvāca
+tasyānuśṛṇvato rājan
+prahrādasya kṛtāñjaleḥ
+hiraṇyagarbho bhagavān
+uvāca madhusūdanam
+
+**Synonyms:**
+
+Synonyms
+śrī-śukaḥ uvāca — Śrī Śukadeva Gosvāmī said; tasya — of Prahlāda Mahārāja; anuśṛṇvataḥ — so that he could hear; rājan — O King Parīkṣit; prahrādasya — of Prahlāda Mahārāja; kṛta-añjaleḥ — who was standing with folded hands; hiraṇyagarbhaḥ — Lord Brahmā; bhagavān — the most powerful; uvāca — said; madhusūdanam — unto Madhusūdana, the Personality of Godhead.
+
+**Translation:**
+
+Translation
+Śukadeva Gosvāmī continued: O King Parīkṣit, Lord Brahmā then began to speak to the Supreme Personality of Godhead, within the hearing of Prahlāda Mahārāja, who stood nearby with folded hands.
+

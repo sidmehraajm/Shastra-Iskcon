@@ -1,0 +1,24 @@
+# ŚB 8.11.42
+
+**Sanskrit:**
+
+अन्येऽप्येवं प्रतिद्वन्द्वान्वाय्वग्निवरुणादय: ।
+सूदयामासुरसुरान् मृगान्केसरिणो यथा ॥ ४२ ॥
+
+**Transliteration:**
+
+anye ’py evaṁ pratidvandvān
+vāyv-agni-varuṇādayaḥ
+sūdayām āsur asurān
+mṛgān kesariṇo yathā
+
+**Synonyms:**
+
+Synonyms
+anye — others; api — also; evam — in this way; pratidvandvān — the opposing party of belligerants; vāyu — the demigod known as Vāyu; agni — the demigod known as Agni; varuṇa-ādayaḥ — the demigod known as Varuṇa and others; sūdayām āsuḥ — began to kill vigorously; asurān — all the demons; mṛgān — deer; kesariṇaḥ — lions; yathā — just as.
+
+**Translation:**
+
+Translation
+Vāyu, Agni, Varuṇa and other demigods began killing the demons who opposed them, just as lions kill deer in a forest.
+

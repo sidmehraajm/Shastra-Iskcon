@@ -1,0 +1,24 @@
+# ŚB 9.23.6
+
+**Sanskrit:**
+
+चक्रु: स्वनाम्ना विषयान् षडिमान् प्राच्यकांश्च ते ।
+खलपानोऽङ्गतो जज्ञे तस्माद् दिविरथस्तत: ॥ ६ ॥
+
+**Transliteration:**
+
+cakruḥ sva-nāmnā viṣayān
+ṣaḍ imān prācyakāṁś ca te
+khalapāno ’ṅgato jajñe
+tasmād divirathas tataḥ
+
+**Synonyms:**
+
+Synonyms
+cakruḥ — they created; sva-nāmnā — by their own names; viṣayān — different states; ṣaṭ — six; imān — all these; prācyakān ca — on the eastern side (of India); te — those (six kings); khalapānaḥ — Khalapāna; aṅgataḥ — from King Aṅga; jajñe — took birth; tasmāt — from him (Khalapāna); divirathaḥ — Diviratha; tataḥ — thereafter.
+
+**Translation:**
+
+Translation
+These six sons, headed by Aṅga, later became kings of six states in the eastern side of India. These states were known according to the names of their respective kings. From Aṅga came a son named Khalapāna, and from Khalapāna came Diviratha.
+

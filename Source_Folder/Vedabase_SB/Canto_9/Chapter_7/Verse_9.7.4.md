@@ -1,0 +1,24 @@
+# ŚB 9.7.4
+
+**Sanskrit:**
+
+त्रसद्दस्यु: पौरुकुत्सो योऽनरण्यस्य देहकृत् ।
+हर्यश्वस्तत्सुतस्तस्मात्प्रारुणोऽथ त्रिबन्धन: ॥ ४ ॥
+
+**Transliteration:**
+
+trasaddasyuḥ paurukutso
+yo ’naraṇyasya deha-kṛt
+haryaśvas tat-sutas tasmāt
+prāruṇo ’tha tribandhanaḥ
+
+**Synonyms:**
+
+Synonyms
+trasaddasyuḥ — by the name Trasaddasyu; paurukutsaḥ — the son of Purukutsa; yaḥ — who; anaraṇyasya — of Anaraṇya; deha-kṛt — the father; haryaśvaḥ — by the name Haryaśva; tat-sutaḥ — the son of Anaraṇya; tasmāt — from him (Haryaśva); prāruṇaḥ — by the name Prāruṇa; atha — then, from Prāruṇa; tribandhanaḥ — his son, Tribandhana.
+
+**Translation:**
+
+Translation
+The son of Purukutsa was Trasaddasyu, who was the father of Anaraṇya. Anaraṇya’s son was Haryaśva, the father of Prāruṇa. Prāruṇa was the father of Tribandhana.
+

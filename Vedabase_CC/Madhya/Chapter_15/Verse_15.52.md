@@ -1,0 +1,22 @@
+# CC Madhya 15.52
+
+**Bengali:**
+
+নীলাচলে আছোঁ মুঞি তাঁহার আজ্ঞাতে ।
+মধ্যে মধ্যে আসিমু তাঁর চরণ দেখিতে ॥ ৫২ ॥
+
+**Transliteration:**
+
+nīlācale āchoṅ muñi tāṅhāra ājñāte
+madhye madhye āsimu tāṅra caraṇa dekhite
+
+**Synonyms:**
+
+Synonyms
+nīlācale āchoṅ — stay at Jagannātha Purī, Nīlācala; muñi — I; tāṅhāra ājñāte — under her order; madhye madhye — at intervals; āsimu — I shall go; tāṅra — her; caraṇa dekhite — to see the lotus feet.
+
+**Translation:**
+
+Translation
+“I am staying here at Jagannātha Purī, Nīlācala, to comply with her orders. But at intervals I go see her lotus feet.
+

@@ -1,0 +1,29 @@
+# ŚB 11.16.29
+
+**Sanskrit:**
+
+वासुदेवो भगवतां त्वं तु भागवतेष्वहम् ।
+किम्पुरुषाणां हनुमान् विद्याध्राणां सुदर्शन: ॥ २९ ॥
+
+**Transliteration:**
+
+vāsudevo bhagavatāṁ
+tvaṁ tu bhāgavateṣv aham
+kimpuruṣānāṁ hanumān
+vidyādhrāṇāṁ sudarśanaḥ
+
+**Synonyms:**
+
+Synonyms
+vāsudevaḥ — the Supreme Personality of Godhead; bhagavatām — of those entitled to the name Bhagavān; tvam — you; tu — indeed; bhāgavateṣu — among My devotees; aham — I am; kimpuruṣāṇām — among the Kimpuruṣas; hanumān — Hanumān; vidyādhrāṇām — among the Vidyādharas; sudarśanaḥ — Sudarśana.
+
+**Translation:**
+
+Translation
+Among those entitled to the name Bhagavān I am Vāsudeva, and indeed, you, Uddhava, represent Me among the devotees. I am Hanumān among the Kimpuruṣas, and among the Vidyādharas I am Sudarśana.
+
+**Purport:**
+
+Purport
+The Vedic literatures state that one who possesses perfect knowledge of the creation and destruction of all entities and who is completely situated in omniscience is to be known as the Supreme Personality of Godhead, Bhagavān. Although many great personalities are sometimes called Bhagavān, ultimately Bhagavān is the one supreme entity who possesses unlimited opulences. Throughout history, many important personalities have been addressed as “lord,” but ultimately there is only one Supreme Lord. In the Lord’s catur-vyūha, or quadruple expansion, the first manifestation is Vāsudeva, who here represents all of the Lord’s expansions in the viṣṇu-tattva category.
+

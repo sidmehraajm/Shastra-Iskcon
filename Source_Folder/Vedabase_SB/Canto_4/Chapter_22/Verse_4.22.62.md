@@ -1,0 +1,34 @@
+# ŚB 4.22.62
+
+**Sanskrit:**
+
+बृहस्पतिर्ब्रह्मवादे आत्मवत्त्वे स्वयं हरि: ।
+भक्त्या गोगुरुविप्रेषु विष्वक्सेनानुवर्तिषु ।
+ह्रिया प्रश्रयशीलाभ्यामात्मतुल्य: परोद्यमे ॥ ६२ ॥
+
+**Transliteration:**
+
+bṛhaspatir brahma-vāde
+ātmavattve svayaṁ hariḥ
+bhaktyā go-guru-vipreṣu
+viṣvaksenānuvartiṣu
+hriyā praśraya-śīlābhyām
+ātma-tulyaḥ parodyame
+
+**Synonyms:**
+
+Synonyms
+bṛhaspatiḥ — the priest of the heavenly planets; brahma-vāde — in the matter of spiritual understanding; ātma-vattve — in the matter of self-control; svayam — personally; hariḥ — the Supreme Personality of Godhead; bhaktyā — in devotion; go — cow; guru — spiritual master; vipreṣu — unto the brāhmaṇas; viṣvaksena — the Personality of Godhead; anuvartiṣu — followers; hriyā — by shyness; praśraya-śīlābhyām — by most gentle behavior; ātma-tulyaḥ — exactly like his personal interest; para-udyame — in the matter of philanthropic work.
+
+**Translation:**
+
+Translation
+In his personal behavior, Pṛthu Mahārāja exhibited all good qualities, and in spiritual knowledge he was exactly like Bṛhaspati. In self-control he was like the Supreme Personality of Godhead Himself. As far as his devotional service was concerned, he was a great follower of devotees who were attached to cow protection and the rendering of all service to the spiritual master and the brāhmaṇas. He was perfect in his shyness and in his gentle behavior, and when he engaged in some philanthropic activity, he worked as if he were working for his own personal self.
+
+**Purport:**
+
+Purport
+When Lord Caitanya talked to Sārvabhauma Bhaṭṭācārya, the Lord honored him as the incarnation of Bṛhaspati. Bṛhaspati is the chief priest of the heavenly kingdom, and he is a follower of the philosophy known as brahma-vāda, or Māyāvāda. Bṛhaspati is also a great logician. It appears from this statement that Mahārāja Pṛthu, although a great devotee constantly engaged in the loving service of the Lord, could defeat all kinds of impersonalists and Māyāvādīs by his profound knowledge of Vedic scriptures. We should learn from Mahārāja Pṛthu that a Vaiṣṇava, or devotee, must not only be fixed in the service of the Lord, but, if required, must be prepared to argue with the impersonalist Māyāvādīs with all logic and philosophy and defeat their contention that the Absolute Truth is impersonal.
+The Supreme Personality of Godhead is the ideal self-controller or brahmacārī. When Kṛṣṇa was elected to be president of the Rājasūya yajña performed by Mahārāja Yudhiṣṭhira, Grandfather Bhīṣmadeva praised Lord Kṛṣṇa as the greatest brahmacārī. Because Grandfather Bhīṣmadeva was a brahmacārī, he was quite fit to distinguish a brahmacārī from a vyabhicārī. Although Pṛthu Mahārāja was a householder and father of five children, he was still considered to be most controlled. One who begets Kṛṣṇa conscious children for the benefit of humanity is actually a brahmacārī. One who simply begets children like cats and dogs is not a proper father. The word brahmacārī also refers to one who acts on the platform of Brahman, or devotional service. In the impersonal Brahman conception, there is no activity, yet when one performs activities in connection with the Supreme Personality of Godhead, he is to be known as brahmacārī. Thus Pṛthu Mahārāja was an ideal brahmacārī and gṛhastha simultaneously. Viṣvaksenānuvartiṣu refers to those devotees who are constantly engaged in the service of the Lord. Other devotees must follow in their footsteps. Śrīla Narottama dāsa Ṭhākura said, ei chaya gosāñi yāṅra, muñi tāṅra dāsa: “I am prepared to become the disciple of anyone who follows in the footsteps of the Six Gosvāmīs.”
+Also, like all Vaiṣṇavas, Mahārāja Pṛthu was devoted to cow protection, spiritual masters and qualified brāhmaṇas. Pṛthu Mahārāja was also very humble, meek and gentle, and whenever he performed any philanthropic work or welfare activity for the general public, he would labor exactly as if he were tending to his own personal necessities. In other words, his philanthropic activities were not for the sake of show but were performed out of personal feeling and commitment. All philanthropic activities should be thus performed.
+

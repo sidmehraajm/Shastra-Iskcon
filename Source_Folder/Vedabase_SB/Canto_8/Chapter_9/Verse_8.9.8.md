@@ -1,0 +1,24 @@
+# ŚB 8.9.8
+
+**Sanskrit:**
+
+इत्युपामन्त्रितो दैत्यैर्मायायोषिद्वपुर्हरि: ।
+प्रहस्य रुचिरापाङ्गैर्निरीक्षन्निदमब्रवीत् ॥ ८ ॥
+
+**Transliteration:**
+
+ity upāmantrito daityair
+māyā-yoṣid-vapur hariḥ
+prahasya rucirāpāṅgair
+nirīkṣann idam abravīt
+
+**Synonyms:**
+
+Synonyms
+iti — thus; upāmantritaḥ — being fervently requested; daityaiḥ — by the demons; māyā-yoṣit — the illusory woman; vapuḥ hariḥ — the incarnation of the Supreme Personality of Godhead; prahasya — smiling; rucira — beautiful; apāṅgaiḥ — by exhibiting attractive feminine features; nirīkṣan — looking at them; idam — these words; abravīt — said.
+
+**Translation:**
+
+Translation
+Having thus been requested by the demons, the Supreme Personality of Godhead, who had assumed the form of a beautiful woman, began to smile. Looking at them with attractive feminine gestures, She spoke as follows.
+

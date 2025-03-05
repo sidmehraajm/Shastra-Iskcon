@@ -1,0 +1,26 @@
+# CC Madhya 2.57
+
+**Bengali:**
+
+উঠিল নানা ভাবাবেগ,     মনে হৈল উদ্বেগ,
+ক্ষণমাত্র নারে গোঙাইতে ।
+প্রবল বিরহানলে,     ধৈর্য হৈল টলমলে,
+নানা শ্লোক লাগিলা পড়িতে ॥ ৫৭ ॥
+
+**Transliteration:**
+
+uṭhila nānā bhāvāvega, mane haila udvega,
+kṣaṇa-mātra nāre goṅāite
+prabala virahānale, dhairya haila ṭalamale,
+nānā śloka lāgilā paḍite
+
+**Synonyms:**
+
+Synonyms
+uṭhila — arose; nānā — various; bhāva-āvega — forces of emotion; mane — in the mind; haila — there was; udvega — anxiety; kṣaṇa-mātra — even for a moment; nāre — not able; goṅāite — to pass; prabala — powerful; viraha-anale — in the fire of separation; dhairya — patience; haila — became; ṭalamale — tottering; nānā — various; śloka — verses; lāgilā — began; paḍite — to recite.
+
+**Translation:**
+
+Translation
+In this way various ecstatic emotions evolved, and the mind of Caitanya Mahāprabhu filled with anxiety. He could not escape even for a moment. In this way, because of fierce feelings of separation, His patience began to totter, and He began to recite various verses.
+

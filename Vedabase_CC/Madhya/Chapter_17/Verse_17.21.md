@@ -1,0 +1,22 @@
+# CC Madhya 17.21
+
+**Bengali:**
+
+পূর্বরাত্র্যে জগন্নাথ দেখি’ ‘আজ্ঞা’ লঞা ।
+শেষ-রাত্রে উঠি’ প্রভু চলিলা লুকাঞা ॥ ২১ ॥
+
+**Transliteration:**
+
+pūrva-rātrye jagannātha dekhi’ ‘ājñā’ lañā
+śeṣa-rātre uṭhi’ prabhu calilā lukāñā
+
+**Synonyms:**
+
+Synonyms
+pūrva-rātrye — on the previous night; jagannātha dekhi’ — seeing Lord Jagannātha; ājñā lañā — taking permission; śeṣa-rātre — near the end of night; uṭhi’ — rising; prabhu — Śrī Caitanya Mahāprabhu; calilā — started; lukāñā — without being seen.
+
+**Translation:**
+
+Translation
+On the previous night, Śrī Caitanya Mahāprabhu had visited Lord Jagannātha and taken His permission. Now, near the end of the night, the Lord got up and started immediately. He was not seen by others.
+

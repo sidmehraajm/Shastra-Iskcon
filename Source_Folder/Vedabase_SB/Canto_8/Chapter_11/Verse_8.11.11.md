@@ -1,0 +1,24 @@
+# ŚB 8.11.11
+
+**Sanskrit:**
+
+एवं निराकृतो देवो वैरिणा तथ्यवादिना ।
+नामृष्यत् तदधिक्षेपं तोत्राहत इव द्विप: ॥ ११ ॥
+
+**Transliteration:**
+
+evaṁ nirākṛto devo
+vairiṇā tathya-vādinā
+nāmṛṣyat tad-adhikṣepaṁ
+totrāhata iva dvipaḥ
+
+**Synonyms:**
+
+Synonyms
+evam — thus; nirākṛtaḥ — being defeated; devaḥ — King Indra; vairiṇā — by his enemy; tathya-vādinā — who was competent to speak the truth; na — not; amṛṣyat — lamented; tat — of him (Bali); adhikṣepam — the chastisement; totra — by the scepter or rod; āhataḥ — being beaten; iva — just like; dvipaḥ — an elephant.
+
+**Translation:**
+
+Translation
+Since Mahārāja Bali’s rebukes were truthful, King Indra did not at all become sorry, just as an elephant beaten by its driver’s rod does not become agitated.
+

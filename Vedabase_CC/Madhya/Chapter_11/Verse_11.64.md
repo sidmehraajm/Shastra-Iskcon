@@ -1,0 +1,22 @@
+# CC Madhya 11.64
+
+**Bengali:**
+
+পাছে প্রভুর নিকট আইলা ভক্তগণ ।
+গৌড় হৈতে ভক্ত আইসে, — কৈল নিবেদন ॥ ৬৪ ॥
+
+**Transliteration:**
+
+pāche prabhura nikaṭa āilā bhakta-gaṇa
+gauḍa haite bhakta āise, — kaila nivedana
+
+**Synonyms:**
+
+Synonyms
+pāche — behind; prabhura — of Śrī Caitanya Mahāprabhu; nikaṭa — in the presence; āilā — came; bhakta-gaṇa — the devotees; gauḍa haite — from Bengal; bhakta — devotees; āise — come; kaila nivedana — submitted.
+
+**Translation:**
+
+Translation
+The devotees who had followed the Lord came into His presence and requested Him to return to Purī. They submitted that the devotees from Bengal were coming to Puruṣottama-kṣetra.
+

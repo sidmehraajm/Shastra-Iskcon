@@ -1,0 +1,24 @@
+# ŚB 10.11.7
+
+**Sanskrit:**
+
+गोपीभि: स्तोभितोऽनृत्यद् भगवान्बालवत्‍क्‍वचित् ।
+उद्गायति क्‍वचिन्मुग्धस्तद्वशो दारुयन्त्रवत् ॥ ७ ॥
+
+**Transliteration:**
+
+gopībhiḥ stobhito ’nṛtyad
+bhagavān bālavat kvacit
+udgāyati kvacin mugdhas
+tad-vaśo dāru-yantravat
+
+**Synonyms:**
+
+Synonyms
+gopībhiḥ — by the gopīs (by flattery and offers of prizes); stobhitaḥ — encouraged, induced; anṛtyat — the small Kṛṣṇa danced; bhagavān — although He was the Supreme Personality of Godhead; bāla-vat — exactly like a human child; kvacit — sometimes; udgāyati — He would sing very loudly; kvacit — sometimes; mugdhaḥ — being amazed; tat-vaśaḥ — under their control; dāru-yantra-vat — like a wooden doll.
+
+**Translation:**
+
+Translation
+The gopīs would say, “If You dance, my dear Kṛṣṇa, then I shall give You half a sweetmeat.” By saying these words or by clapping their hands, all the gopīs encouraged Kṛṣṇa in different ways. At such times, although He was the supremely powerful Personality of Godhead, He would smile and dance according to their desire, as if He were a wooden doll in their hands. Sometimes He would sing very loudly, at their bidding. In this way, Kṛṣṇa came completely under the control of the gopīs.
+

@@ -1,0 +1,24 @@
+# ŚB 10.11.25
+
+**Sanskrit:**
+
+चक्रवातेन नीतोऽयं दैत्येन विपदं वियत् ।
+शिलायां पतितस्तत्र परित्रात: सुरेश्वरै: ॥ २५ ॥
+
+**Transliteration:**
+
+cakra-vātena nīto ’yaṁ
+daityena vipadaṁ viyat
+śilāyāṁ patitas tatra
+paritrātaḥ sureśvaraiḥ
+
+**Synonyms:**
+
+Synonyms
+cakra-vātena — by the demon in the shape of a whirlwind (Tṛṇāvarta); nītaḥ ayam — Kṛṣṇa was taken away; daityena — by the demon; vipadam — dangerous; viyat — to the sky; śilāyām — on a slab of stone; patitaḥ — fallen; tatra — there; paritrātaḥ — was saved; sura-īśvaraiḥ — by the mercy of Lord Viṣṇu or His associates.
+
+**Translation:**
+
+Translation
+Then again, the demon Tṛṇāvarta, in the form of a whirlwind, took the child away into the dangerous sky to kill Him, but the demon fell down onto a slab of stone. In that case also, by the mercy of Lord Viṣṇu or His associates, the child was saved.
+

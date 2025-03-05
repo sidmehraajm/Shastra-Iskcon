@@ -1,0 +1,20 @@
+# ŚB 5.18.16
+
+**Sanskrit:**
+
+अतीव सुललितगतिविलासविलसितरुचिरहासलेशावलोकलीलया किञ्चिदुत्तम्भितसुन्दरभ्रूमण्डलसुभगवदनारविन्दश्रिया रमां रमयन्निन्द्रियाणि रमयते ॥ १६ ॥
+
+**Transliteration:**
+
+atīva sulalita-gati-vilāsa-vilasita-rucira-hāsa-leśāvaloka-līlayā kiñcid-uttambhita-sundara-bhrū-maṇḍala-subhaga-vadanāravinda-śriyā ramāṁ ramayann indriyāṇi ramayate.
+
+**Synonyms:**
+
+Synonyms
+atīva — very much; su-lalita — beautiful; gati — with movements; vilāsa — by pastimes; vilasita — manifested; rucira — pleasing; hāsa-leśa — mild smiling; avaloka-līlayā — by playful glancing; kiñcit-uttambhita — slightly raised; sundara — beautiful; bhrū-maṇḍala — by the eyebrows; subhaga — auspicious; vadana-aravinda-śriyā — with His beautiful lotuslike face; ramām — the goddess of fortune; ramayan — pleasing; indriyāṇi — all the senses; ramayate — He pleases.
+
+**Translation:**
+
+Translation
+In Ketumāla-varṣa, Lord Kāmadeva [Pradyumna] moves very graciously. His mild smile is very beautiful, and when He increases the beauty of His face by slightly raising His eyebrows and glancing playfully, He pleases the goddess of fortune. Thus He enjoys His transcendental senses.
+
