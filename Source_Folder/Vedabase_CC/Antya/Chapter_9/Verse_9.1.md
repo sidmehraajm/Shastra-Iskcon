@@ -1,0 +1,23 @@
+# CC Antya 9.1
+
+**Bengali:**
+
+agaṇya-dhanya-caitanya-
+gaṇānāṁ prema-vanyayā
+ninye ’dhanya-jana-svānta-
+maruḥ śaśvad anūpatām
+
+**Transliteration:**
+
+agaṇya — innumerable; dhanya — glorious; caitanya-gaṇānām — of the associates of Śrī Caitanya Mahāprabhu; prema-vanyayā — by the inundation of ecstatic love; ninye — was brought; adhanya-jana — of unfortunate persons; svānta-maruḥ — the desert of the heart; śaśvat — always; anūpatām — to the state of being filled with water.
+
+**Synonyms:**
+
+Synonyms
+agaṇya — innumerable; dhanya — glorious; caitanya-gaṇānām — of the associates of Śrī Caitanya Mahāprabhu; prema-vanyayā — by the inundation of ecstatic love; ninye — was brought; adhanya-jana — of unfortunate persons; svānta-maruḥ — the desert of the heart; śaśvat — always; anūpatām — to the state of being filled with water.
+
+**Translation:**
+
+Translation
+The innumerable, glorious followers of Śrī Caitanya Mahāprabhu brought a constant flood to the desertlike hearts of the unfortunate with an inundation of ecstatic love.
+

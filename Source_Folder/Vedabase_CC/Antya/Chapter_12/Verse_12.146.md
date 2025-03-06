@@ -1,0 +1,21 @@
+# CC Antya 12.146
+
+**Bengali:**
+
+“tumi śīghra yāha karite pāda-samvāhane
+kahiha, — ‘paṇḍita ebe vasila bhojane’
+
+**Transliteration:**
+
+tumi — you; śīghra — hastily; yāha — go; karite — to perform; pāda-samvāhane — massaging the feet; kahiha — say; paṇḍita — Jagadānanda Paṇḍita; ebe — just now; vasila bhojane — sat down to eat.
+
+**Synonyms:**
+
+Synonyms
+tumi — you; śīghra — hastily; yāha — go; karite — to perform; pāda-samvāhane — massaging the feet; kahiha — say; paṇḍita — Jagadānanda Paṇḍita; ebe — just now; vasila bhojane — sat down to eat.
+
+**Translation:**
+
+Translation
+“Go quickly and massage the Lord’s feet,” he said. “You may tell Him, ‘The Paṇḍita has just sat down to take his meal.’
+

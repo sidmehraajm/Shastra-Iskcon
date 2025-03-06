@@ -1,0 +1,21 @@
+# CC Antya 10.72
+
+**Bengali:**
+
+saghana pulaka, — yena śimulera taru
+kabhu praphullita aṅga, kabhu haya saru
+
+**Transliteration:**
+
+sa-ghana — constant; pulaka — standing of the hairs of the body; yena — like; śimulera taru — the śimula tree; kabhu — sometimes; praphullita — swollen; aṅga — body; kabhu — sometimes; haya — is; saru — lean and thin.
+
+**Synonyms:**
+
+Synonyms
+sa-ghana — constant; pulaka — standing of the hairs of the body; yena — like; śimulera taru — the śimula tree; kabhu — sometimes; praphullita — swollen; aṅga — body; kabhu — sometimes; haya — is; saru — lean and thin.
+
+**Translation:**
+
+Translation
+The hairs on His body constantly stood up like the thorns on a śimula tree. Sometimes His body was swollen and sometimes lean and thin.
+

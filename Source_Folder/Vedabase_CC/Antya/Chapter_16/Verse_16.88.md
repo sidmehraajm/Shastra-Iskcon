@@ -1,0 +1,21 @@
+# CC Antya 16.88
+
+**Bengali:**
+
+hena-kāle ‘gopāla-vallabha’-bhoga lāgāila
+śaṅkha-ghaṇṭā-ādi saha ārati bājila
+
+**Transliteration:**
+
+hena-kāle — at this time; gopāla-vallabha-bhoga — the food offered early in the morning; lāgāila — was offered; śaṅkha — conch; ghaṇṭā-ādi — bells and so on; saha — with; ārati — ārati.
+
+**Synonyms:**
+
+Synonyms
+hena-kāle — at this time; gopāla-vallabha-bhoga — the food offered early in the morning; lāgāila — was offered; śaṅkha — conch; ghaṇṭā-ādi — bells and so on; saha — with; ārati — ārati.
+
+**Translation:**
+
+Translation
+The offering of food known as gopāla-vallabha-bhoga was then given to Lord Jagannātha, and ārati was performed with the sound of the conch and the ringing of bells.
+

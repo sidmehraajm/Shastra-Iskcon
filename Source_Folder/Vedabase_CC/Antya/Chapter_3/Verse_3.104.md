@@ -1,0 +1,26 @@
+# CC Antya 3.104
+
+**Bengali:**
+
+kona-prakāre haridāsera chidra nāhi pāya
+veśyā-gaṇe āni’ kare chidrera upāya
+
+**Transliteration:**
+
+kona-prakāre — by any means; haridāsera — of Haridāsa Ṭhākura; chidra — fault; nāhi — not; pāya — gets; veśyā-gaṇe — prostitutes; āni’ — bringing; kare — makes; chidrera upāya — a means to find some fault.
+
+**Synonyms:**
+
+Synonyms
+kona-prakāre — by any means; haridāsera — of Haridāsa Ṭhākura; chidra — fault; nāhi — not; pāya — gets; veśyā-gaṇe — prostitutes; āni’ — bringing; kare — makes; chidrera upāya — a means to find some fault.
+
+**Translation:**
+
+Translation
+By no means could he find any fault in the character of Haridāsa Ṭhākura. Therefore he called for local prostitutes and began a plan to discredit His Holiness.
+
+**Purport:**
+
+Purport
+This is typical of atheistic men, but even among so-called religionists, sādhus, mendicants, sannyāsīs and brahmacārīs, there are many enemies of the Kṛṣṇa consciousness movement who always try to find faults in it, not considering that the movement is spreading automatically by the grace of Lord Śrī Caitanya Mahāprabhu, who wanted it spread all over the world, in every town and village. We are trying to fulfill the Lord’s desire, and our attempt has become fairly successful, but the enemies of this movement unnecessarily try to find faults in it, exactly like the old rascal Rāmacandra Khān, who opposed Haridāsa Ṭhākura.
+

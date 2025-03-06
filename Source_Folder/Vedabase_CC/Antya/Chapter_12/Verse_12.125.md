@@ -1,0 +1,21 @@
+# CC Antya 12.125
+
+**Bengali:**
+
+saghṛta śālyanna kalā-pāte stūpa kailā
+kalāra ḍoṅgā bhari’ vyañjana caudike dharilā
+
+**Transliteration:**
+
+sa-ghṛta — mixed with ghee; śāli-anna — very fine rice; kalā-pāte — on a banana leaf; stūpa kailā — stacked; kalāra ḍoṅgā — pots made of the bark of a banana tree; bhari’ — filling; vyañjana — vegetables; cau-dike — all around; dharilā — placed.
+
+**Synonyms:**
+
+Synonyms
+sa-ghṛta — mixed with ghee; śāli-anna — very fine rice; kalā-pāte — on a banana leaf; stūpa kailā — stacked; kalāra ḍoṅgā — pots made of the bark of a banana tree; bhari’ — filling; vyañjana — vegetables; cau-dike — all around; dharilā — placed.
+
+**Translation:**
+
+Translation
+He had cooked fine rice, mixed it with ghee and piled it high on a banana leaf. There were also varieties of vegetables, placed all around in pots made of banana tree bark.
+

@@ -134,7 +134,7 @@ def scrape_chapter_cc(driver, part, chapter):
     chapter_url = f"https://vedabase.io/en/library/cc/{part}/{chapter}/"
     log_message(f"Loading Chapter {chapter} of {part.capitalize()}: {chapter_url}")
     driver.get(chapter_url)
-    time.sleep(3)
+    time.sleep(2)
 
     verse_pattern = re.compile(rf"/en/library/cc/{part}/{chapter}/([\d\-]+)/$")
     links = driver.find_elements(By.TAG_NAME, "a")

@@ -1,0 +1,21 @@
+# CC Antya 6.135
+
+**Bengali:**
+
+caitanya-kṛpāte seha nāhi bhāya mane
+sabe āśīrvāda kara — pāuka caitanya-caraṇe
+
+**Transliteration:**
+
+caitanya-kṛpāte — by the mercy of Lord Śrī Caitanya Mahāprabhu; seha — such a standard of material happiness; nāhi bhāya — he does not take as valuable; mane — in the mind; sabe — all of you; āśīrvāda kara — give the benediction; pāuka — let him get; caitanya-caraṇe — the shelter of the lotus feet of Śrī Caitanya Mahāprabhu.
+
+**Synonyms:**
+
+Synonyms
+caitanya-kṛpāte — by the mercy of Lord Śrī Caitanya Mahāprabhu; seha — such a standard of material happiness; nāhi bhāya — he does not take as valuable; mane — in the mind; sabe — all of you; āśīrvāda kara — give the benediction; pāuka — let him get; caitanya-caraṇe — the shelter of the lotus feet of Śrī Caitanya Mahāprabhu.
+
+**Translation:**
+
+Translation
+“Because of the mercy bestowed upon him by Śrī Caitanya Mahāprabhu, Raghunātha dāsa, although situated in such material happiness, does not like it at all. Therefore let every one of you be merciful toward him and give him the benediction that he may very soon attain shelter at the lotus feet of Śrī Caitanya Mahāprabhu.
+

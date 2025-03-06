@@ -1,0 +1,21 @@
+# CC Antya 6.207
+
+**Bengali:**
+
+“pathe iṅha kariyāche bahuta laṅghana
+kata-dina kara ihāra bhāla santarpaṇa”
+
+**Transliteration:**
+
+pathe — on the way; iṅha — this Raghunātha dāsa; kariyāche — has done; bahuta — much; laṅghana — fasting and difficult endeavor; kata-dina — for some days; kara — do; ihāra — of him; bhāla — good; santarpaṇa — attention.
+
+**Synonyms:**
+
+Synonyms
+pathe — on the way; iṅha — this Raghunātha dāsa; kariyāche — has done; bahuta — much; laṅghana — fasting and difficult endeavor; kata-dina — for some days; kara — do; ihāra — of him; bhāla — good; santarpaṇa — attention.
+
+**Translation:**
+
+Translation
+“On the way, Raghunātha dāsa has fasted and undergone hardships for many days. Therefore, take good care of him for some days so that he may eat to his satisfaction.”
+

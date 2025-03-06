@@ -1,0 +1,21 @@
+# CC Antya 3.162
+
+**Bengali:**
+
+sei ghare tina dina kare amedhya randhana
+āra dina sabā lañā karilā gamana
+
+**Transliteration:**
+
+sei ghare — in that room; tina dina — for three days; kare — does; amedhya randhana — cooking the flesh of a cow; āra dina — the next day; sabā lañā — accompanied by his followers; karilā gamana — left.
+
+**Synonyms:**
+
+Synonyms
+sei ghare — in that room; tina dina — for three days; kare — does; amedhya randhana — cooking the flesh of a cow; āra dina — the next day; sabā lañā — accompanied by his followers; karilā gamana — left.
+
+**Translation:**
+
+Translation
+In that very room he cooked the flesh of a cow for three consecutive days. Then the next day he left, accompanied by his followers.
+

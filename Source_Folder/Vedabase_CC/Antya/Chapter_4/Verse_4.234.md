@@ -1,0 +1,21 @@
+# CC Antya 4.234
+
+**Bengali:**
+
+ājñā dilā, — “śīghra tumi yāha vṛndāvane
+tomāra vaṁśe prabhu diyāchena sei-sthāne
+
+**Transliteration:**
+
+ājñā dilā — He gave orders; śīghra — very soon; tumi — you; yāha — go; vṛndāvane — to Vṛndāvana; tomāra — your; vaṁśe — to the family; prabhu — Lord Śrī Caitanya Mahāprabhu; diyāchena — has given; sei-sthāne — that place.
+
+**Synonyms:**
+
+Synonyms
+ājñā dilā — He gave orders; śīghra — very soon; tumi — you; yāha — go; vṛndāvane — to Vṛndāvana; tomāra — your; vaṁśe — to the family; prabhu — Lord Śrī Caitanya Mahāprabhu; diyāchena — has given; sei-sthāne — that place.
+
+**Translation:**
+
+Translation
+Lord Nityānanda Prabhu ordered, “Yes, go soon to Vṛndāvana. That place has been awarded to your family, to your father and uncles, by Śrī Caitanya Mahāprabhu, and therefore you must go there immediately.”
+

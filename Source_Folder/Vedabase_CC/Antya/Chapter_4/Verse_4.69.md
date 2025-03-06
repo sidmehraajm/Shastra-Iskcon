@@ -1,0 +1,28 @@
+# CC Antya 4.69
+
+**Bengali:**
+
+viprād dvi-ṣaḍ-guṇa-yutād aravinda-nābha-
+pādāravinda-vimukhāt śva-pacaṁ variṣṭham
+manye tad-arpita-mano-vacanehitārtha-
+prāṇaṁ punāti sa kulaṁ na tu bhūri-mānaḥ
+
+**Transliteration:**
+
+viprāt — than a brāhmaṇa; aravinda-nābha — of Lord Viṣṇu, who has a lotuslike navel; pāda-aravinda — unto the lotus feet; vimukhāt — than a person bereft of devotion; śva-pacam — a caṇḍāla, or a person accustomed to eating dogs; variṣṭham — more glorified; manye — I think; tat-arpita — dedicated unto Him; manaḥ — mind; vacana — words; īhita — activities; artha — wealth; prāṇam — life; punāti — purifies; saḥ — he; kulam — his family; na tu — but not; bhūri-mānaḥ — a brāhmaṇa proud of possessing such qualities.
+
+**Synonyms:**
+
+Synonyms
+viprāt — than a brāhmaṇa; aravinda-nābha — of Lord Viṣṇu, who has a lotuslike navel; pāda-aravinda — unto the lotus feet; vimukhāt — than a person bereft of devotion; śva-pacam — a caṇḍāla, or a person accustomed to eating dogs; variṣṭham — more glorified; manye — I think; tat-arpita — dedicated unto Him; manaḥ — mind; vacana — words; īhita — activities; artha — wealth; prāṇam — life; punāti — purifies; saḥ — he; kulam — his family; na tu — but not; bhūri-mānaḥ — a brāhmaṇa proud of possessing such qualities.
+
+**Translation:**
+
+Translation
+“ ‘One may be born in a brāhmaṇa family and have all twelve brahminical qualities, but if in spite of being thus qualified he is not devoted to the lotus feet of Lord Kṛṣṇa, who has a navel shaped like a lotus, he is not as good as a caṇḍāla who has dedicated his mind, words, activities, wealth and life to the service of the Lord. Simply to take birth in a brāhmaṇa family or to have brahminical qualities is not sufficient. One must be a pure devotee of the Lord. Thus if a śva-paca, or caṇḍāla, is a devotee, he delivers not only himself but his entire family as well, whereas a brāhmaṇa who is not a devotee but simply has brahminical qualifications cannot even purify himself, what to speak of his family.’
+
+**Purport:**
+
+Purport
+This is a verse from Śrīmad-Bhāgavatam (7.9.10).
+

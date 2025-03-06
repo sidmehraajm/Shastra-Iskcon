@@ -1,0 +1,28 @@
+# CC Antya 15.78
+
+**Bengali:**
+
+hariṇ-maṇi-kavāṭikā-pratata-hāri-vakṣaḥ-sthalaḥ
+smarārta-taruṇī-manaḥ-kaluṣa-hāri-dor-argalaḥ
+sudhāṁśu-hari-candanotpala-sitābhra-śītāṅgakaḥ
+sa me madana-mohanaḥ sakhi tanoti vakṣaḥ-spṛhām
+
+**Transliteration:**
+
+hariṭ-maṇi — of indranīla gems; kavāṭikā — like a door; pratata — broad; hāri — attractive; vakṣaḥ-sthalaḥ — whose chest; smara-ārta — distressed by lusty desires; taruṇī — of young women; manaḥ — of the mind; kaluṣa — the pain; hāri — taking away; doḥ — whose two arms; argalaḥ — like bolts; sudhāṁśu — the moon; hari-candana — sandalwood; utpala — lotus flower; sitābhra — camphor; śīta — cool; aṅgakaḥ — whose body; saḥ — that; me — My; madana-mohanaḥ — Kṛṣṇa, who is more attractive than Cupid; sakhi — My friend; tanoti — expands; vakṣaḥ-spṛhām — the desire of the breasts.
+
+**Synonyms:**
+
+Synonyms
+hariṭ-maṇi — of indranīla gems; kavāṭikā — like a door; pratata — broad; hāri — attractive; vakṣaḥ-sthalaḥ — whose chest; smara-ārta — distressed by lusty desires; taruṇī — of young women; manaḥ — of the mind; kaluṣa — the pain; hāri — taking away; doḥ — whose two arms; argalaḥ — like bolts; sudhāṁśu — the moon; hari-candana — sandalwood; utpala — lotus flower; sitābhra — camphor; śīta — cool; aṅgakaḥ — whose body; saḥ — that; me — My; madana-mohanaḥ — Kṛṣṇa, who is more attractive than Cupid; sakhi — My friend; tanoti — expands; vakṣaḥ-spṛhām — the desire of the breasts.
+
+**Translation:**
+
+Translation
+“ ‘My dear friend, Kṛṣṇa’s chest is as broad and attractive as a door made of indranīla gems, and His two arms, as strong as bolts, can relieve the mental anguish of young girls distressed by lusty desires for Him. His body is cooler than the moon, sandalwood, the lotus flower and camphor. In this way, Madana-mohana, the attractor of Cupid, is increasing the desire of My breasts.’ ”
+
+**Purport:**
+
+Purport
+This verse is also found in the Govinda-līlāmṛta (8.7).
+

@@ -1,0 +1,21 @@
+# CC Antya 17.18
+
+**Bengali:**
+
+gābhī saba caudike śuṅke prabhura śrī-aṅga
+dūra kaile nāhi chāḍe prabhura śrī-aṅga-saṅga
+
+**Transliteration:**
+
+gābhī — cows; saba — all; cau-dike — around; śuṅke — sniff; prabhura — of Śrī Caitanya Mahāprabhu; śrī-aṅga — the transcendental body; dūra kaile — if they are taken away; nāhi chāḍe — they do not give up; prabhura — of Śrī Caitanya Mahāprabhu; śrī-aṅga-saṅga — association with the transcendental body.
+
+**Synonyms:**
+
+Synonyms
+gābhī — cows; saba — all; cau-dike — around; śuṅke — sniff; prabhura — of Śrī Caitanya Mahāprabhu; śrī-aṅga — the transcendental body; dūra kaile — if they are taken away; nāhi chāḍe — they do not give up; prabhura — of Śrī Caitanya Mahāprabhu; śrī-aṅga-saṅga — association with the transcendental body.
+
+**Translation:**
+
+Translation
+All the cows around the Lord were sniffing His transcendental body. When the devotees tried to check them, they refused to give up their association with the transcendental body of Śrī Caitanya Mahāprabhu.
+
