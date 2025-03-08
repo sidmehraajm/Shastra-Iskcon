@@ -1,0 +1,27 @@
+# CC Madhya 9.242
+
+**Bengali:**
+
+দিন-দুই পদ্মনাভের কৈল দরশন ।
+আনন্দে দেখিতে আইলা শ্রীজনার্দন ॥ ২৪২ ॥
+
+**Transliteration:**
+
+dina-dui padmanābhera kaila daraśana
+ānande dekhite āilā śrī-janārdana
+
+**Synonyms:**
+
+Synonyms
+dina-dui — two days; padmanābhera — of the Deity known as Padmanābha; kaila daraśana — visited the temple; ānande — in great ecstasy; dekhite — to see; āilā — came; śrī-janārdana — to the temple of Śrī Janārdana.
+
+**Translation:**
+
+Translation
+Śrī Caitanya Mahāprabhu remained for two or three days at Ananta Padmanābha and visited the temple there. Then, in great ecstasy He went to see the temple of Śrī Janārdana.
+
+**Purport:**
+
+Purport
+The temple of Śrī Janārdana is situated twenty-six miles north of Trivandrum, near the Varkala railway station.
+

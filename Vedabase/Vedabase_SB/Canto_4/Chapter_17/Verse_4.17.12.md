@@ -1,0 +1,25 @@
+# ŚB 4.17.12
+
+**Sanskrit:**
+
+मैत्रेय उवाच
+पृथु: प्रजानां करुणं निशम्य परिदेवितम् । दीर्घं दध्यौ कुरुश्रेष्ठ निमित्तं सोऽन्वपद्यत ॥ १२ ॥
+
+**Transliteration:**
+
+maitreya uvāca
+pṛthuḥ prajānāṁ karuṇaṁ
+niśamya paridevitam
+dīrghaṁ dadhyau kuruśreṣṭha
+nimittaṁ so ’nvapadyata
+
+**Synonyms:**
+
+Synonyms
+maitreyaḥ uvāca — the great saint Maitreya said; pṛthuḥ — King Pṛthu; prajānām — of the citizens; karuṇam — pitiable condition; niśamya — hearing; paridevitam — lamentation; dīrgham — for a long time; dadhyau — contemplated; kuru-śreṣṭha — O Vidura; nimittam — the cause; saḥ — he; anvapadyata — found out.
+
+**Translation:**
+
+Translation
+After hearing this lamentation and seeing the pitiable condition of the citizens, King Pṛthu contemplated this matter for a long time to see if he could find out the underlying causes.
+

@@ -1,0 +1,41 @@
+# ŚB 10.9.13-14
+
+**Sanskrit:**
+
+न चान्तर्न बहिर्यस्य न पूर्वं नापि चापरम् ।
+पूर्वापरं बहिश्चान्तर्जगतो यो जगच्च य: ॥ १३ ॥
+तं मत्वात्मजमव्यक्तं मर्त्यलिङ्गमधोक्षजम् ।
+गोपिकोलूखले दाम्ना बबन्ध प्राकृतं यथा ॥ १४ ॥
+
+**Transliteration:**
+
+na cāntar na bahir yasya
+na pūrvaṁ nāpi cāparam
+pūrvāparaṁ bahiś cāntar
+jagato yo jagac ca yaḥ
+taṁ matvātmajam avyaktam
+martya-liṅgam adhokṣajam
+gopikolūkhale dāmnā
+babandha prākṛtaṁ yathā
+
+**Synonyms:**
+
+Synonyms
+na — not; ca — also; antaḥ — interior; na — nor; bahiḥ — exterior; yasya — whose; na — neither; pūrvam — beginning; na — nor; api — indeed; ca — also; aparam — end; pūrva-aparam — the beginning and the end; bahiḥ ca antaḥ — the external and the internal; jagataḥ — of the whole cosmic manifestation; yaḥ — one who is; jagat ca yaḥ — and who is everything in creation in total; tam — Him; matvā — considering; ātmajam — her own son; avyaktam — the unmanifested; martya-liṅgam — appearing as a human being; adhokṣajam — beyond sense perception; gopikā — mother Yaśodā; ulūkhale — to the grinding mortar; dāmnā — by a rope; babandha — bound; prākṛtam yathā — as done to a common human child.
+
+**Translation:**
+
+Translation
+The Supreme Personality of Godhead has no beginning and no end, no exterior and no interior, no front and no rear. In other words, He is all-pervading. Because He is not under the influence of the element of time, for Him there is no difference between past, present and future; He exists in His own transcendental form at all times. Being absolute, beyond relativity, He is free from distinctions between cause and effect, although He is the cause and effect of everything. That unmanifested person, who is beyond the perception of the senses, had now appeared as a human child, and mother Yaśodā, considering Him her own ordinary child, bound Him to the wooden mortar with a rope.
+
+**Purport:**
+
+Purport
+In Bhagavad-gītā (10.12), Kṛṣṇa is described as the Supreme Brahman (paraṁ brahma paraṁ dhāma). The word brahma means “the greatest.” Kṛṣṇa is greater than the greatest, being unlimited and all-pervading. How can it be possible for the all-pervading to be measured or bound? Then again, Kṛṣṇa is the time factor. Therefore, He is all-pervading not only in space but also in time. We have measurements of time, but although we are limited by past, present and future, for Kṛṣṇa these do not exist. Every individual person can be measured, but Kṛṣṇa has already shown that although He also is an individual, the entire cosmic manifestation is within His mouth. All these points considered, Kṛṣṇa cannot be measured. How then did Yaśodā want to measure Him and bind Him? We must conclude that this took place simply on the platform of pure transcendental love. This was the only cause.
+advaitam acyutam anādim ananta-rūpam
+ādyaṁ purāṇa-puruṣaṁ nava-yauvanaṁ ca
+vedeṣu durlabham adurlabham ātma-bhaktau
+govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
+(Brahma-saṁhitā 5.33)
+Everything is one because Kṛṣṇa is the supreme cause of everything. Kṛṣṇa cannot be measured or calculated by Vedic knowledge (vedeṣu durlabham). He is available only to devotees (adurlabham ātma-bhaktau). Devotees can handle Him because they act on the basis of loving service (bhaktyā mām abhijānāti yāvān yaś cāsmi tattvataḥ). Thus mother Yaśodā wanted to bind Him.
+

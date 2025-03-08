@@ -1,0 +1,37 @@
+# CC Madhya 16.74
+
+**Bengali:**
+
+“যাঁহার দর্শনে মুখে আইসে কৃষ্ণনাম ।
+তাঁহারে জানিহ তুমি ‘বৈষ্ণব-প্রধান’ ॥” ৭৪ ॥
+
+**Transliteration:**
+
+yāṅhāra darśane mukhe āise kṛṣṇa-nāma
+tāṅhāre jāniha tumi ‘vaiṣṇava-pradhāna’
+
+**Synonyms:**
+
+Synonyms
+yāṅhāra darśane — by the sight of whom; mukhe — in the mouth; āise — automatically awakens; kṛṣṇa-nāma — the holy name of Kṛṣṇa; tāṅhāre — him; jāniha — must know; tumi — you; vaiṣṇava-pradhāna — the first-class Vaiṣṇava.
+
+**Translation:**
+
+Translation
+Śrī Caitanya Mahāprabhu said, “A first-class Vaiṣṇava is he whose very presence makes others chant the holy name of Kṛṣṇa.”
+
+**Purport:**
+
+Purport
+Śrīla Bhaktisiddhānta Sarasvatī Ṭhākura says that if an observer immediately remembers the holy name of Kṛṣṇa upon seeing a Vaiṣṇava, that Vaiṣṇava should be considered a mahā-bhāgavata, a first-class devotee. Such a Vaiṣṇava is always aware of his Kṛṣṇa conscious duty, and he is enlightened in self-realization. He is always in love with the Supreme Personality of Godhead, Kṛṣṇa, and this love is without adulteration. Because of this love, he is always awake to transcendental realization. Because he knows that Kṛṣṇa consciousness is the basis of knowledge and action, he sees everything as being connected with Kṛṣṇa. Such a person is able to chant the holy name of Kṛṣṇa perfectly. Such a mahā-bhāgavata Vaiṣṇava has the transcendental eyes to see who is sleeping under the spell of māyā, and he engages himself in awakening sleeping conditioned beings by spreading the knowledge of Kṛṣṇa consciousness. He opens eyes that are closed by forgetfulness of Kṛṣṇa. Thus the living entity is liberated from the dullness of material energy and is engaged fully in the service of the Lord. The madhyama-adhikārī Vaiṣṇava can awaken others to Kṛṣṇa consciousness and engage them in duties whereby they can advance. It is therefore said in the Caitanya-caritāmṛta (Madhya-līlā, chapter six, verse 279):
+lohāke yāvat sparśi’ hema nāhi kare
+tāvat sparśa-maṇi keha cinite nā pāre
+“One cannot understand the value of touchstone until it turns iron into gold.” One should judge by action, not by promises. A mahā-bhāgavata can turn a living entity from abominable material life to the Lord’s service. This is the test of a mahā-bhāgavata. Although preaching is not meant for a mahā-bhāgavata, a mahā-bhāgavata can descend to the platform of madhyama-bhāgavata just to convert others to Vaiṣṇavism. Actually a mahā-bhāgavata is fit to spread Kṛṣṇa consciousness, but he does not distinguish where Kṛṣṇa consciousness should be spread from where it should not. He thinks that everyone is competent to accept Kṛṣṇa consciousness if the chance is provided. A neophyte and an intermediate devotee should always be eager to hear the mahā-bhāgavata and serve him in every respect. The neophyte and intermediate devotees can gradually rise to the platform of uttama-adhikārī and become first-class devotees. Symptoms of a first-class devotee are given in Śrīmad-Bhāgavatam (11.2.45):
+sarva-bhūteṣu yaḥ paśyed bhagavad-bhāvam ātmanaḥ
+bhūtāni bhagavaty ātmany eṣa bhāgavatottamaḥ
+“The most advanced devotee sees within everything the soul of all souls, the Supreme Personality of Godhead, Śrī Kṛṣṇa. Consequently, he sees everything in relation to the Supreme Lord and understands that everything that exists is eternally situated within the Lord.”
+When teaching Sanātana Gosvāmī, the Lord further said:
+śāstra-yuktye sunipuṇa, dṛḍha-śraddhā yāṅra
+‘uttama-adhikārī’ se tāraye saṁsāra
+“One who is expert in the Vedic literature and has full faith in the Supreme Lord is an uttama-adhikārī, a first-class Vaiṣṇava, a topmost Vaiṣṇava who can deliver the whole world and turn everyone to Kṛṣṇa consciousness.” (Cc. Madhya 22.65) With great love and affection, the mahā-bhāgavata observes the Supreme Personality of Godhead, devotional service and the devotee. He observes nothing beyond Kṛṣṇa, Kṛṣṇa consciousness and Kṛṣṇa’s devotees. The mahā-bhāgavata knows that everyone is engaged in the Lord’s service in different ways. He therefore descends to the middle platform to elevate everyone to the Kṛṣṇa conscious position.
+

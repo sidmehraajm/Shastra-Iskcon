@@ -1,0 +1,30 @@
+# ŚB 10.86.26
+
+**Sanskrit:**
+
+भगवांस्तदभिप्रेत्य द्वयो: प्रियचिकीर्षया ।
+उभयोराविशद् गेहमुभाभ्यां तदलक्षित: ॥ २६ ॥
+
+**Transliteration:**
+
+bhagavāṁs tad abhipretya
+dvayoḥ priya-cikīrṣayā
+ubhayor āviśad geham
+ubhābhyāṁ tad-alakṣitaḥ
+
+**Synonyms:**
+
+Synonyms
+bhagavān — the Supreme Lord; tat — this; abhipretya — accepting; dvayoḥ — of the two of them; priya — the pleasing; cikīrṣayā — wishing to do; ubhayoḥ — of both; āviśat — He entered; geham — the houses; ubhābhyām — to both; tat — in that (entering of the other’s house); alakṣitaḥ — unseen.
+
+**Translation:**
+
+Translation
+Wanting to please them both, the Lord accepted both their invitations. Thus He simultaneously went to both homes, and neither could see Him entering the other’s house.
+
+**Purport:**
+
+Purport
+According to Śrīla Viśvanātha Cakravartī, Kṛṣṇa visited Śrutadeva and Bahulāśva at the same time by manifesting Himself in duplicate forms, along with the sages. Thus King Bahulāśva thought that Lord Kṛṣṇa had come only to his house, leaving Śrutadeva to return home disappointed, while Śrutadeva believed that just the reverse was the case.
+In Kṛṣṇa, Śrīla Prabhupāda remarks: “That [Lord Kṛṣṇa] and His companions were present in both houses, although both the brāhmaṇa and the King thought He was present in his house only, is another opulence of the Supreme Personality of Godhead. This opulence is described in the revealed scriptures as vaibhava-prakāśa. Similarly, when Lord Kṛṣṇa married sixteen thousand wives, He also expanded Himself into sixteen thousand forms, each one of them as powerful as He Himself. Similarly, in Vṛndāvana, when Brahmā stole away Kṛṣṇa’s cows, calves and cowherd boys, Kṛṣṇa expanded Himself into many new cows, calves and cowherd boys.”
+

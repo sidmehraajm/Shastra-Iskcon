@@ -1,0 +1,27 @@
+# CC Madhya 6.69
+
+**Bengali:**
+
+‘প্রকৃতি-বিনীত, সন্ন্যাসী দেখিতে সুন্দর ।
+আমার বহুপ্রীতি বাড়ে ইঁহার উপর ॥ ৬৯ ॥
+
+**Transliteration:**
+
+‘prakṛti-vinīta, sannyāsī dekhite sundara
+āmāra bahu-prīti bāḍe iṅhāra upara
+
+**Synonyms:**
+
+Synonyms
+prakṛti-vinīta — by nature very humble and meek; sannyāsī — renouncer; dekhite — to see; sundara — very beautiful; āmāra — my; bahu-prīti — great affection; bāḍe — increases; iṅhāra — Him; upara — upon.
+
+**Translation:**
+
+Translation
+“The sannyāsī is very meek and humble by nature, and His person is very beautiful to see. Consequently my affection for Him increases.
+
+**Purport:**
+
+Purport
+Sārvabhauma Bhaṭṭācārya considered Śrī Caitanya Mahāprabhu a very humble and meek person because although Caitanya Mahāprabhu was a sannyāsī, He still retained His brahmacārī name. The Lord took sannyāsa from Keśava Bhāratī in the Bhāratī sampradāya, in which the brahmacārīs (the assistants of the sannyāsīs) are named “Caitanya.” Even after accepting sannyāsa, Caitanya Mahāprabhu retained the name “Caitanya,” meaning a humble servant of a sannyāsī. Sārvabhauma Bhaṭṭācārya appreciated this very much.
+

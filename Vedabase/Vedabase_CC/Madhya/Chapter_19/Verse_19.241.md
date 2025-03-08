@@ -1,0 +1,22 @@
+# CC Madhya 19.241
+
+**Bengali:**
+
+বৃন্দাবন হৈতে তুমি গৌড়দেশ দিয়া ।
+আমারে মিলিবা নীলাচলেতে আসিয়া ॥ ২৪১ ॥
+
+**Transliteration:**
+
+vṛndāvana haite tumi gauḍa-deśa diyā
+āmāre milibā nīlācalete āsiyā
+
+**Synonyms:**
+
+Synonyms
+vṛndāvana haite — from Vṛndāvana; tumi — you; gauḍa-deśa diyā — by way of Bengal; āmāre — Me; milibā — will meet; nīlācalete — at Jagannātha Purī; āsiyā — coming.
+
+**Translation:**
+
+Translation
+“Later, you can go from Vṛndāvana to Jagannātha Purī through Bengal [Gauḍa-deśa]. There you will meet Me again.”
+

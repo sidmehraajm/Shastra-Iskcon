@@ -1,0 +1,31 @@
+# CC Madhya 22.42
+
+**Bengali:**
+
+স্থানাভিলাষী তপসি স্থিতোঽহং
+ত্বাং প্রাপ্তবান্‌ দেবমুনীন্দ্রগুহ্যম্‌ ।
+কাচং বিচিন্বন্নপি দিব্যরত্নং
+স্বামিন্‌ কৃতার্থোঽস্মি বরং ন যাচে ॥ ৪২ ॥
+
+**Transliteration:**
+
+sthānābhilāṣī tapasi sthito ’haṁ
+tvāṁ prāptavān deva-munīndra-guhyam
+kācaṁ vicinvann api divya-ratnaṁ
+svāmin kṛtārtho ’smi varaṁ na yāce
+
+**Synonyms:**
+
+Synonyms
+sthāna-abhilāṣī — desiring a very high position in the material world; tapasi — in severe austerities and penances; sthitaḥ — situated; aham — I; tvām — You; prāptavān — have obtained; deva-muni-indra-guhyam — difficult to achieve even for great demigods, saintly persons and kings; kācam — a piece of glass; vicinvan — searching for; api — although; divya-ratnam — a transcendental gem; svāmin — O my Lord; kṛta-arthaḥ asmi — I am fully satisfied; varam — any benediction; na yāce — I do not ask.
+
+**Translation:**
+
+Translation
+“[When he was being blessed by the Supreme Personality of Godhead, Dhruva Mahārāja said:] ‘O my Lord, because I was seeking an opulent material position, I was performing severe types of penance and austerity. Now I have gotten You, who are very difficult for the great demigods, saintly persons and kings to attain. I was searching after a piece of glass, but instead I have found a most valuable jewel. Therefore I am so satisfied that I do not wish to ask any benediction from You.’
+
+**Purport:**
+
+Purport
+This verse is from the Hari-bhakti-sudhodaya (7.28).
+

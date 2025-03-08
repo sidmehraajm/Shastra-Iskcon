@@ -1,0 +1,24 @@
+# ŚB 9.16.25
+
+**Sanskrit:**
+
+जामदग्‍न्योऽपि भगवान् राम: कमललोचन: ।
+आगामिन्यन्तरे राजन् वर्तयिष्यति वै बृहत् ॥ २५ ॥
+
+**Transliteration:**
+
+jāmadagnyo ’pi bhagavān
+rāmaḥ kamala-locanaḥ
+āgāminy antare rājan
+vartayiṣyati vai bṛhat
+
+**Synonyms:**
+
+Synonyms
+jāmadagnyaḥ — the son of Jamadagni; api — also; bhagavān — the Personality of Godhead; rāmaḥ — Lord Paraśurāma; kamala-locanaḥ — whose eyes are like lotus petals; āgāmini — coming; antare — in the manvantara, the time of one Manu; rājan — O King Parīkṣit; vartayiṣyati — will propound; vai — indeed; bṛhat — Vedic knowledge.
+
+**Translation:**
+
+Translation
+My dear King Parīkṣit, in the next manvantara the lotus-eyed Personality of Godhead Lord Paraśurāma, the son of Jamadagni, will be a great propounder of Vedic knowledge. In other words, he will be one of the seven sages.
+

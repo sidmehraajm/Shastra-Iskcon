@@ -1,0 +1,24 @@
+# ŚB 9.18.3
+
+**Sanskrit:**
+
+पितरि भ्रंशिते स्थानादिन्द्राण्या धर्षणाद्द्विजै: ।
+प्रापितेऽजगरत्वं वै ययातिरभवन्नृप: ॥ ३ ॥
+
+**Transliteration:**
+
+pitari bhraṁśite sthānād
+indrāṇyā dharṣaṇād dvijaiḥ
+prāpite ’jagaratvaṁ vai
+yayātir abhavan nṛpaḥ
+
+**Synonyms:**
+
+Synonyms
+pitari — when his father; bhraṁśite — was caused to fall down; sthānāt — from the heavenly planets; indrāṇyāḥ — of Śacī, the wife of Indra; dharṣaṇāt — from offending; dvijaiḥ — by them (upon her lodging a complaint with the brāhmaṇas); prāpite — being degraded to; ajagaratvam — the life of a snake; vai — indeed; yayātiḥ — the son named Yayāti; abhavat — became; nṛpaḥ — the king.
+
+**Translation:**
+
+Translation
+Because Nahuṣa, the father of Yayāti, molested Indra’s wife, Śacī, who then complained to Agastya and other brāhmaṇas, these saintly brāhmaṇas cursed Nahuṣa to fall from the heavenly planets and be degraded to the status of a python. Consequently, Yayāti became the king.
+

@@ -1,0 +1,22 @@
+# CC Madhya 12.198
+
+**Bengali:**
+
+ভোজন করি’ উঠে সবে হরিধ্বনি করি’ ।
+হরিধ্বনি উঠিল সব স্বর্গমর্ত্য ভরি’ ॥ ১৯৮ ॥
+
+**Transliteration:**
+
+bhojana kari’ uṭhe sabe hari-dhvani kari’
+hari-dhvani uṭhila saba svarga-martya bhari’
+
+**Synonyms:**
+
+Synonyms
+bhojana kari’ — after eating; uṭhe — stood up; sabe — all; hari-dhvani — the sound of Hari; kari’ — making; hari-dhvani — the sound of Hari; uṭhila — rose; saba — all; svarga-martya — the upper and lower planetary systems; bhari’ — filling.
+
+**Translation:**
+
+Translation
+After taking their lunch, all the Vaiṣṇavas stood up and chanted the holy name of Hari, and the resounding noise filled all the upper and lower planetary systems.
+

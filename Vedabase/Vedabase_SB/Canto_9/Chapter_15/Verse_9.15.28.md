@@ -1,0 +1,24 @@
+# ŚB 9.15.28
+
+**Sanskrit:**
+
+घोरमादाय परशुं सतूणं वर्म कार्मुकम् ।
+अन्वधावत दुर्मर्षो मृगेन्द्र इव यूथपम् ॥ २८ ॥
+
+**Transliteration:**
+
+ghoram ādāya paraśuṁ
+satūṇaṁ varma kārmukam
+anvadhāvata durmarṣo
+mṛgendra iva yūthapam
+
+**Synonyms:**
+
+Synonyms
+ghoram — extremely fierce; ādāya — taking in hand; paraśum — a chopper; sa-tūṇam — along with a quiver; varma — a shield; kārmukam — a bow; anvadhāvata — followed; durmarṣaḥ — Lord Paraśurāma, being exceedingly angry; mṛgendraḥ — a lion; iva — like; yūthapam — (goes to attack) an elephant.
+
+**Translation:**
+
+Translation
+Taking up his fierce chopper, his shield, his bow and a quiver of arrows, Lord Paraśurāma, exceedingly angry, chased Kārtavīryārjuna just as a lion chases an elephant.
+

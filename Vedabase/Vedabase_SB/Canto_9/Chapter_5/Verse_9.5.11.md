@@ -1,0 +1,24 @@
+# ŚB 9.5.11
+
+**Sanskrit:**
+
+यदि नो भगवान् प्रीत एक: सर्वगुणाश्रय: ।
+सर्वभूतात्मभावेन द्विजो भवतु विज्वर: ॥ ११ ॥
+
+**Transliteration:**
+
+yadi no bhagavān prīta
+ekaḥ sarva-guṇāśrayaḥ
+sarva-bhūtātma-bhāvena
+dvijo bhavatu vijvaraḥ
+
+**Synonyms:**
+
+Synonyms
+yadi — if; naḥ — unto us; bhagavān — the Supreme Personality of Godhead; prītaḥ — is satisfied; ekaḥ — without any duplicate; sarva-guṇa-āśrayaḥ — the reservoir of all transcendental qualities; sarva-bhūta-ātma-bhāvena — by a merciful attitude toward all living entities; dvijaḥ — this brāhmaṇa; bhavatu — may become; vijvaraḥ — freed from all burning.
+
+**Translation:**
+
+Translation
+If the Supreme Personality of Godhead, who is one without a second, who is the reservoir of all transcendental qualities, and who is the life and soul of all living entities, is pleased with us, we wish that this brāhmaṇa, Durvāsā Muni, be freed from the pain of being burned.
+

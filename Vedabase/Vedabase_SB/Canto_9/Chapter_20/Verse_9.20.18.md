@@ -1,0 +1,24 @@
+# ŚB 9.20.18
+
+**Sanskrit:**
+
+कण्व: कुमारस्य वने चक्रे समुचिता: क्रिया: ।
+बद्ध्वा मृगेन्द्रंतरसा क्रीडति स्म स बालक: ॥ १८ ॥
+
+**Transliteration:**
+
+kaṇvaḥ kumārasya vane
+cakre samucitāḥ kriyāḥ
+baddhvā mṛgendraṁ tarasā
+krīḍati sma sa bālakaḥ
+
+**Synonyms:**
+
+Synonyms
+kaṇvaḥ — Kaṇva Muni; kumārasya — of the son born of Śakuntalā; vane — in the forest; cakre — executed; samucitāḥ — prescribed; kriyāḥ — ritualistic ceremonies; baddhvā — capturing; mṛga-indram — a lion; tarasā — by force; krīḍati — playing; sma — in the past; saḥ — he; bālakaḥ — the child.
+
+**Translation:**
+
+Translation
+In the forest, Kaṇva Muni performed all the ritualistic ceremonies concerning the newborn child. Later, the boy became so powerful that he would capture a lion and play with it.
+

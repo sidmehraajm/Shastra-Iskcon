@@ -1,0 +1,25 @@
+# ŚB 5.6.16
+
+**Sanskrit:**
+
+इति ह स्म सकलवेदलोकदेवब्राह्मणगवां परमगुरोर्भगवत ऋषभाख्यस्य विशुद्धाचरितमीरितं पुंसां समस्तदुश्चरिताभिहरणं परममहामङ्गलायनमिदमनुश्रद्धयोपचितयानुश‍ृणोत्याश्रावयति वावहितो भगवति तस्मिन् वासुदेव एकान्ततो भक्तिरनयोरपि समनुवर्तते ॥ १६ ॥
+
+**Transliteration:**
+
+iti ha sma sakala-veda-loka-deva-brāhmaṇa-gavāṁ parama-guror bhagavata ṛṣabhākhyasya viśuddhācaritam īritaṁ puṁsāṁ samasta-duścaritābhiharaṇaṁ parama-mahā-maṅgalāyanam idam anuśraddhayopacitayānuśṛṇoty āśrāvayati vāvahito bhagavati tasmin vāsudeva ekāntato bhaktir anayor api samanuvartate.
+
+**Synonyms:**
+
+Synonyms
+iti — thus; ha sma — indeed; sakala — all; veda — of knowledge; loka — of people in general; deva — of the demigods; brāhmaṇa — of the brāhmaṇas; gavām — of the cows; parama — the supreme; guroḥ — master; bhagavataḥ — of the Supreme Personality of Godhead; ṛṣabha-ākhyasya — whose name was Lord Ṛṣabhadeva; viśuddha — pure; ācaritam — activities; īritam — now explained; puṁsām — of every living entity; samasta — all; duścarita — sinful activities; abhiharaṇam — destroying; parama — foremost; mahā — great; maṅgala — of auspiciousness; ayanam — the shelter; idam — this; anuśraddhayā — with faith; upacitayā — increasing; anuśṛṇoti — hears from the authority; āśrāvayati — speaks to others; vā — or; avahitaḥ — being attentive; bhagavati — the Supreme Personality of Godhead; tasmin — unto Him; vāsudeve — to Lord Vāsudeva, Lord Kṛṣṇa; eka-antataḥ — unflinching; bhaktiḥ — devotion; anayoḥ — of both groups, the listeners and the speakers; api — certainly; samanuvartate — factually begins.
+
+**Translation:**
+
+Translation
+Śukadeva Gosvāmī continued: Lord Ṛṣabhadeva is the master of all Vedic knowledge, human beings, demigods, cows and brāhmaṇas. I have already explained His pure, transcendental activities, which will vanquish the sinful activities of all living entities. This narration of Lord Ṛṣabhadeva’s pastimes is the reservoir of all auspicious things. Whoever attentively hears or speaks of them, following in the footsteps of the ācāryas, will certainly attain unalloyed devotional service at the lotus feet of Lord Vāsudeva, the Supreme Personality of Godhead.
+
+**Purport:**
+
+Purport
+The teachings of Lord Ṛṣabhadeva are for the people of all yugas — Satya-yuga, Tretā-yuga, Dvāpara-yuga and especially Kali-yuga. These instructions are so powerful that even in this Age of Kali, one can attain perfection simply by explaining the instructions, following in the footsteps of the ācāryas or listening to the instructions with great attention. If one does so, one can attain the platform of pure devotional service to Lord Vāsudeva. The pastimes of the Supreme Personality of Godhead and His devotees are recorded in Śrīmad-Bhāgavatam so that those who recite these pastimes and listen to them will become purified. Nityaṁ bhāgavata-sevayā. As a matter of principle, devotees should read, speak and hear Śrīmad-Bhāgavatam persistently, twenty-four hours daily if possible. That is the recommendation of Śrī Caitanya Mahāprabhu. Kīrtanīyaḥ sadā hariḥ. One should either chant the Hare Kṛṣṇa mahā-mantra or read Śrīmad-Bhāgavatam and thereby try to understand the characteristics and instructions of the Supreme Lord, who appeared as Lord Ṛṣabhadeva, Lord Kapila and Lord Kṛṣṇa. In this way one can become fully aware of the transcendental nature of the Supreme Personality of Godhead. As stated in Bhagavad-gītā, one who knows the transcendental nature of the Lord’s birth and activities attains liberation from material bondage and returns to Godhead.
+

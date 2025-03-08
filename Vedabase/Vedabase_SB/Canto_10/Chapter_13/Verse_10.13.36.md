@@ -1,0 +1,29 @@
+# ŚB 10.13.36
+
+**Sanskrit:**
+
+किमेतदद्भ‍ुतमिव वासुदेवेऽखिलात्मनि ।
+व्रजस्य सात्मनस्तोकेष्वपूर्वं प्रेम वर्धते ॥ ३६ ॥
+
+**Transliteration:**
+
+kim etad adbhutam iva
+vāsudeve ’khilātmani
+vrajasya sātmanas tokeṣv
+apūrvaṁ prema vardhate
+
+**Synonyms:**
+
+Synonyms
+kim — what; etat — this; adbhutam — wonderful; iva — just as; vāsudeve — in Vāsudeva, Lord Śrī Kṛṣṇa; akhila-ātmani — the Supersoul of all living entities; vrajasya — of all the inhabitants of Vraja; sa-ātmanaḥ — along with Me; tokeṣu — in these boys; apūrvam — unprecedented; prema — affection; vardhate — is increasing.
+
+**Translation:**
+
+Translation
+What is this wonderful phenomenon? The affection of all the inhabitants of Vraja, including Me, toward these boys and calves is increasing as never before, just like our affection for Lord Kṛṣṇa, the Supersoul of all living entities.
+
+**Purport:**
+
+Purport
+This increase of affection was not māyā; rather, because Kṛṣṇa had expanded Himself as everything and because the whole life of everyone in Vṛndāvana was meant for Kṛṣṇa, the cows, because of affection for Kṛṣṇa, had more affection for the older calves than for the new calves, and the men increased in their affection for their sons. Balarāma was astonished to see all the residents of Vṛndāvana so affectionate toward their own children, exactly as they had been for Kṛṣṇa. Similarly, the cows had grown affectionate toward their calves — as much as toward Kṛṣṇa. Balarāma was surprised to see the acts of yoga-māyā. Therefore He inquired from Kṛṣṇa, “What is happening here? What is this mystery?”
+

@@ -1,0 +1,24 @@
+# ŚB 8.19.15
+
+**Sanskrit:**
+
+भवानाचरितान्धर्मानास्थितो गृहमेधिभि: ।
+ब्राह्मणै: पूर्वजै: शूरैरन्यैश्चोद्दामकीर्तिभि: ॥ १५ ॥
+
+**Transliteration:**
+
+bhavān ācaritān dharmān
+āsthito gṛhamedhibhiḥ
+brāhmaṇaiḥ pūrvajaiḥ śūrair
+anyaiś coddāma-kīrtibhiḥ
+
+**Synonyms:**
+
+Synonyms
+bhavān — your good self; ācaritān — executed; dharmān — religious principles; āsthitaḥ — being situated; gṛhamedhibhiḥ — by persons in household life; brāhmaṇaiḥ — by the brāhmaṇas; pūrva-jaiḥ — by your forefathers; śūraiḥ — by great heroes; anyaiḥ ca — and others also; uddāma-kīrtibhiḥ — very highly elevated and famous.
+
+**Translation:**
+
+Translation
+You also have observed the principles followed by great personalities who are householder brāhmaṇas, by your forefathers and by great heroes who are extremely famous for their exalted activities.
+

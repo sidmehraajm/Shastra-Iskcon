@@ -1,0 +1,26 @@
+# ŚB 11.4.19
+
+**Sanskrit:**
+
+संस्तुन्वतो निपतितान् श्रमणानृषींश्च
+शक्रं च वृत्रवधतस्तमसि प्रविष्टम् ।
+देवस्त्रियोऽसुरगृहे पिहिता अनाथा
+जघ्नेऽसुरेन्द्रमभयाय सतां नृसिंहे ॥ १९ ॥
+
+**Transliteration:**
+
+saṁstunvato nipatitān śramaṇān ṛṣīṁś ca
+śakraṁ ca vṛtra-vadhatas tamasi praviṣṭam
+deva-striyo ’sura-gṛhe pihitā anāthā
+jaghne ’surendram abhayāya satāṁ nṛsiṁhe
+
+**Synonyms:**
+
+Synonyms
+saṁstunvataḥ — who were offering prayers; nipatitān — fallen (into the water in a cow’s hoofprint); śramaṇān — the ascetics; ṛṣīn — sages (the Vālakhilyas); ca — and; śakram — Indra; ca — and; vṛtra-vadhataḥ — from killing Vṛtrāsura; tamasi — in darkness; praviṣṭam — absorbed; deva-striyaḥ — the wives of the demigods; asura-gṛhe — in the palace of the demons; pihitāḥ — imprisoned; anāthāḥ — helpless; jaghne — He killed; asura-indram — the king of the demons, Hiraṇyakaśipu; abhayāya — for the sake of giving fearlessness; satām — to the saintly devotees; nṛsiṁhe — in the incarnation of Nṛsiṁha.
+
+**Translation:**
+
+Translation
+The Lord also delivered the tiny ascetic sages called the Vālakhilyas when they fell into the water in a cow’s hoofprint and Indra was laughing at them. The Lord then saved Indra when Indra was covered by darkness due to the sinful reaction for killing Vṛtrāsura. When the wives of the demigods were trapped in the palace of the demons without any shelter, the Lord saved them. In His incarnation as Nṛsiṁha, the Lord killed Hiraṇyakaśipu, the king of demons, to free the saintly devotees from fear.
+

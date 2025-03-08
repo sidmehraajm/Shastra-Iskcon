@@ -1,0 +1,30 @@
+# ŚB 9.23.3-4
+
+**Sanskrit:**
+
+शिबिर्वर: कृमिर्दक्षश्चत्वारोशीनरात्मजा: ।
+वृषादर्भ: सुधीरश्च मद्र: केकय आत्मवान् ॥ ३ ॥
+शिबेश्चत्वार एवासंस्तितिक्षोश्च रुषद्रथ: ।
+ततो होमोऽथ सुतपा बलि: सुतपसोऽभवत् ॥ ४ ॥
+
+**Transliteration:**
+
+śibir varaḥ kṛmir dakṣaś
+catvārośīnarātmajāḥ
+vṛṣādarbhaḥ sudhīraś ca
+madraḥ kekaya ātmavān
+śibeś catvāra evāsaṁs
+titikṣoś ca ruṣadrathaḥ
+tato homo ’tha sutapā
+baliḥ sutapaso ’bhavat
+
+**Synonyms:**
+
+Synonyms
+śibiḥ — Śibi; varaḥ — Vara; kṛmiḥ — Kṛmi; dakṣaḥ — Dakṣa; catvāraḥ — four; uśīnara-ātmajāḥ — the sons of Uśīnara; vṛṣādarbhaḥ — Vṛṣādarbha; sudhīraḥ ca — as well as Sudhīra; madraḥ — Madra; kekayaḥ — Kekaya; ātmavān — self-realized; śibeḥ — of Śibi; catvāraḥ — four; eva — indeed; āsan — there were; titikṣoḥ — of Titikṣu; ca — also; ruṣadrathaḥ — a son named Ruṣadratha; tataḥ — from him (Ruṣadratha); homaḥ — Homa; atha — from him (Homa); sutapāḥ — Sutapā; baliḥ — Bali; sutapasaḥ — of Sutapā; abhavat — there was.
+
+**Translation:**
+
+Translation
+The four sons of Uśīnara were Śibi, Vara, Kṛmi and Dakṣa, and from Śibi again came four sons, named Vṛṣādarbha, Sudhīra, Madra and ātma-tattva-vit Kekaya. The son of Titikṣu was Ruṣadratha. From Ruṣadratha came Homa; from Homa, Sutapā; and from Sutapā, Bali.
+

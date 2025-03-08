@@ -1,0 +1,33 @@
+# ŚB 4.9.1
+
+**Sanskrit:**
+
+मैत्रेय उवाच
+त एवमुत्सन्नभया उरुक्रमे
+कृतावनामा: प्रययुस्त्रिविष्टपम् ।
+सहस्रशीर्षापि ततो गरुत्मता
+मधोर्वनं भृत्यदिद‍ृक्षया गत: ॥ १ ॥
+
+**Transliteration:**
+
+maitreya uvāca
+ta evam utsanna-bhayā urukrame
+kṛtāvanāmāḥ prayayus tri-viṣṭapam
+sahasraśīrṣāpi tato garutmatā
+madhor vanaṁ bhṛtya-didṛkṣayā gataḥ
+
+**Synonyms:**
+
+Synonyms
+maitreyaḥ uvāca — the great sage Maitreya continued; te — the demigods; evam — thus; utsanna-bhayāḥ — being freed from all fears; urukrame — unto the Supreme Personality of Godhead, whose actions are uncommon; kṛta-avanāmāḥ — they offered their obeisances; prayayuḥ — they returned; tri-viṣṭapam — to their respective heavenly planets; sahasra-śīrṣā api — also the Personality of Godhead known as Sahasraśīrṣā; tataḥ — from there; garutmatā — getting up on the back of Garuḍa; madhoḥ vanam — the forest known as Madhuvana; bhṛtya — servant; didṛkṣayā — wishing to see him; gataḥ — went.
+
+**Translation:**
+
+Translation
+The great sage Maitreya told Vidura: When the demigods were thus reassured by the Personality of Godhead, they were freed from all fears, and after offering their obeisances they returned to their heavenly planets. Then the Lord, who is nondifferent from the Sahasraśīrṣā incarnation, got on the back of Garuḍa, who carried Him to the Madhuvana Forest to see His servant Dhruva.
+
+**Purport:**
+
+Purport
+The word sahasraśīrṣā refers to the Personality of Godhead known as Garbhodakaśāyī Viṣṇu. Although the Lord appeared as Kṣīrodakaśāyī Viṣṇu, He has been described here as Sahasraśīrṣā Viṣṇu because He is nondifferent from Garbhodakaśāyī Viṣṇu. According to Śrīla Rūpa Gosvāmī in his Laghu-bhāgavatāmṛta, the Sahasraśīrṣā Personality of Godhead who appeared at that time was the incarnation known as Pṛśnigarbha. He created the planet known as Dhruvaloka for the habitation of Dhruva Mahārāja.
+

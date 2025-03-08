@@ -1,0 +1,24 @@
+# ŚB 3.12.21
+
+**Sanskrit:**
+
+अथाभिध्यायत: सर्गं दश पुत्रा: प्रजज्ञिरे ।
+भगवच्छक्तियुक्तस्य लोकसन्तानहेतव: ॥ २१ ॥
+
+**Transliteration:**
+
+athābhidhyāyataḥ sargaṁ
+daśa putrāḥ prajajñire
+bhagavac-chakti-yuktasya
+loka-santāna-hetavaḥ
+
+**Synonyms:**
+
+Synonyms
+atha — thus; abhidhyāyataḥ — while thinking of; sargam — creation; daśa — ten; putrāḥ — sons; prajajñire — were begotten; bhagavat — regarding the Personality of Godhead; śakti — potency; yuktasya — empowered with; loka — the world; santāna — generation; hetavaḥ — the causes.
+
+**Translation:**
+
+Translation
+Brahmā, who was empowered by the Supreme Personality of Godhead, thought of generating living entities and begot ten sons for the extension of the generations.
+

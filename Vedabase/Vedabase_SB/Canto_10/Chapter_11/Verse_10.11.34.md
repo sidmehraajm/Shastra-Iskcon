@@ -1,0 +1,29 @@
+# ŚB 10.11.34
+
+**Sanskrit:**
+
+तथा यशोदारोहिण्यावेकं शकटमास्थिते ।
+रेजतु: कृष्णरामाभ्यां तत्कथाश्रवणोत्सुके ॥ ३४ ॥
+
+**Transliteration:**
+
+tathā yaśodā-rohiṇyāv
+ekaṁ śakaṭam āsthite
+rejatuḥ kṛṣṇa-rāmābhyāṁ
+tat-kathā-śravaṇotsuke
+
+**Synonyms:**
+
+Synonyms
+tathā — as well as; yaśodā-rohiṇyau — both mother Yaśodā and mother Rohiṇī; ekam śakaṭam — on one bullock cart; āsthite — seated; rejatuḥ — very beautiful; kṛṣṇa-rāmābhyām — Kṛṣṇa and Balarāma, along with Their mothers; tat-kathā — of the pastimes of Kṛṣṇa and Balarāma; śravaṇa-utsuke — being situated in hearing with great transcendental pleasure.
+
+**Translation:**
+
+Translation
+Thus hearing about the pastimes of Kṛṣṇa and Balarāma with great pleasure, mother Yaśodā and Rohiṇīdevī, so as not to be separated from Kṛṣṇa and Balarāma for even a moment, got up with Them on one bullock cart. In this situation, they all looked very beautiful.
+
+**Purport:**
+
+Purport
+It appears that mother Yaśodā and Rohiṇī could not be separated from Kṛṣṇa and Balarāma even for a moment. They used to pass their time either by taking care of Kṛṣṇa and Balarāma or by chanting about Their pastimes. Thus mother Yaśodā and Rohiṇī looked very beautiful.
+

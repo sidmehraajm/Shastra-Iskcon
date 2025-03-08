@@ -1,0 +1,24 @@
+# ŚB 10.11.46
+
+**Sanskrit:**
+
+स्वं स्वं वत्सकुलं सर्वे पाययिष्यन्त एकदा ।
+गत्वा जलाशयाभ्याशं पाययित्वा पपुर्जलम् ॥ ४६ ॥
+
+**Transliteration:**
+
+svaṁ svaṁ vatsa-kulaṁ sarve
+pāyayiṣyanta ekadā
+gatvā jalāśayābhyāśaṁ
+pāyayitvā papur jalam
+
+**Synonyms:**
+
+Synonyms
+svam svam — own respective; vatsa-kulam — the group of calves; sarve — all the boys and Kṛṣṇa and Balarāma; pāyayiṣyantaḥ — desiring to have them drink water; ekadā — one day; gatvā — going; jala-āśaya-abhyāśam — near the water tank; pāyayitvā — after allowing the animals to drink water; papuḥ jalam — they also drank water.
+
+**Translation:**
+
+Translation
+One day all the boys, including Kṛṣṇa and Balarāma, each boy taking his own group of calves, brought the calves to a reservoir of water, desiring to allow them to drink. After the animals drank water, the boys drank water there also.
+

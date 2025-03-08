@@ -1,0 +1,27 @@
+# CC Ādi 10.37
+
+**Bengali:**
+
+শ্রীমান্‌পণ্ডিত শাখা—প্রভুর নিজ ভৃত্য ।
+দেউটি ধরেন, যবে প্রভু করেন নৃত্য ॥ ৩৭ ॥
+
+**Transliteration:**
+
+śrīmān-paṇḍita śākhā — prabhura nija bhṛtya
+deuṭi dharena, yabe prabhu karena nṛtya
+
+**Synonyms:**
+
+Synonyms
+śrīmān-paṇḍita — Śrīmān Paṇḍita; śākhā — branch; prabhura — of the Lord; nija — own; bhṛtya — servant; deuṭi — torch light; dharena — carries; yabe — while; prabhu — Lord Caitanya; karena — does; nṛtya — dance.
+
+**Translation:**
+
+Translation
+The fifteenth branch was Śrīmān Paṇḍita, who was a constant servitor of Lord Caitanya Mahāprabhu. He used to carry a torch while the Lord danced.
+
+**Purport:**
+
+Purport
+Śrīmān Paṇḍita was among the companions of Lord Caitanya Mahāprabhu when the Lord performed saṅkīrtana. When Lord Caitanya dressed Himself in the form of the goddess Lakṣmī and danced in the streets of Navadvīpa, Śrīmān Paṇḍita carried a torch to light the way.
+

@@ -1,0 +1,24 @@
+# ŚB 8.10.47
+
+**Sanskrit:**
+
+महोरगा: समुत्पेतुर्दन्दशूका: सवृश्चिका: ।
+सिंहव्याघ्रवराहाश्च मर्दयन्तो महागजा: ॥ ४७ ॥
+
+**Transliteration:**
+
+mahoragāḥ samutpetur
+dandaśūkāḥ savṛścikāḥ
+siṁha-vyāghra-varāhāś ca
+mardayanto mahā-gajāḥ
+
+**Synonyms:**
+
+Synonyms
+mahā-uragāḥ — big serpents; samutpetuḥ — fell upon them; dandaśūkāḥ — other poisonous animals and insects; sa-vṛścikāḥ — with scorpions; siṁha — lions; vyāghra — tigers; varāhāḥ ca — and forest boars; mardayantaḥ — smashing; mahā-gajāḥ — great elephants.
+
+**Translation:**
+
+Translation
+Scorpions, large snakes and many other poisonous animals, as well as lions, tigers, boars and great elephants, all began falling upon the demigod soldiers, crushing everything.
+

@@ -1,0 +1,25 @@
+# ŚB 5.26.27
+
+**Sanskrit:**
+
+ये त्विह वै दस्यवोऽग्निदा गरदा ग्रामान् सार्थान् वा विलुम्पन्ति राजानो राजभटा वा तांश्चापि हि परेत्य यमदूता वज्रदंष्ट्रा: श्वान: सप्तशतानि विंशतिश्च सरभसं खादन्ति ॥ २७ ॥
+
+**Transliteration:**
+
+ye tv iha vai dasyavo ’gnidā garadā grāmān sārthān vā vilumpanti rājāno rāja-bhaṭā vā tāṁś cāpi hi paretya yamadūtā vajra-daṁṣṭrāḥ śvānaḥ sapta-śatāni viṁśatiś ca sarabhasaṁ khādanti.
+
+**Synonyms:**
+
+Synonyms
+ye — persons who; tu — but; iha — in this life; vai — indeed; dasyavaḥ — thieves and plunderers; agni-dāḥ — who set fire; garadāḥ — who administer poison; grāmān — villages; sārthān — the mercantile class of men; vā — or; vilumpanti — plunder; rājānaḥ — kings; rāja-bhaṭāḥ — government officials; vā — or; tān — them; ca — also; api — indeed; hi — certainly; paretya — having died; yamadūtāḥ — the assistants of Yamarāja; vajra-daṁṣṭrāḥ — having mighty teeth; śvānaḥ — dogs; sapta-śatāni — seven hundred; viṁśatiḥ — twenty; ca — and; sarabhasam — voraciously; khādanti — devour.
+
+**Translation:**
+
+Translation
+In this world, some persons are professional plunderers who set fire to others’ houses or administer poison to them. Also, members of the royalty or government officials sometimes plunder mercantile men by forcing them to pay income tax and by other methods. After death such demons are put into the hell known as Sārameyādana. On that planet there are 720 dogs with teeth as strong as thunderbolts. Under the orders of the agents of Yamarāja, these dogs voraciously devour such sinful people.
+
+**Purport:**
+
+Purport
+In the Twelfth Canto of Śrīmad-Bhāgavatam, it is said that in this Age of Kali everyone will be extremely disturbed by three kinds of tribulations: scarcity of rain, famine, and heavy taxation by the government. Because human beings are becoming more and more sinful, there will be a scarcity of rain, and naturally no food grains will be produced. On the plea of relieving the suffering caused by the ensuing famine, the government will impose heavy taxes, especially on the wealthy mercantile community. In this verse, the members of such a government are described as dasyu, thieves. Their main activity will be to plunder the wealth of the people. Whether a highway robber or a government thief, such a man will be punished in his next life by being thrown into the hell known as Sārameyādana, where he will suffer greatly from the bites of ferocious dogs.
+

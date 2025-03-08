@@ -1,0 +1,24 @@
+# CC Madhya 16.114-115
+
+**Bengali:**
+
+এক নব্য-নৌকা আনি’ রাখহ নদী-তীরে ।
+যাহাঁ স্নান করি’ প্রভু যা’ন নদী-পারে ॥ ১১৪ ॥
+তাহাঁ স্তম্ভ রোপণ কর ‘মহাতীর্থ’ করি’ ।
+নিত্য স্নান করিব তাঁহা, তাহাঁ যেন মরি ॥ ১১৫ ॥
+
+**Transliteration:**
+
+eka navya-naukā āni’ rākhaha nadī-tīre
+yāhāṅ snāna kari’ prabhu yā’na nadī-pāre
+
+**Synonyms:**
+
+Synonyms
+eka — one; navya — new; naukā — boat; āni’ — bringing; rākhaha — keep; nadī-tīre — on the bank of the river; yāhāṅ — where; snāna kari’ — taking a bath; prabhu — Śrī Caitanya Mahāprabhu; yā’na — goes; nadī-pāre — on the other bank of the river; tāhāṅ — there; stambha — a memorial column; ropaṇa kara — establish; mahā-tīrtha kari’ — making that place a great place of pilgrimage; nitya — daily; snāna kariba — I shall bathe; tāhāṅ — there; tāhāṅ — there; yena mari — let me die.
+
+**Translation:**
+
+Translation
+The King also ordered them to maintain a new boat on the banks of the river, and wherever Śrī Caitanya Mahāprabhu took His bath or crossed to the other side of the river, they should establish a memorial column and make that place a great place of pilgrimage. “Indeed,” said the King, “I will take my bath there. And let me also die there.”
+

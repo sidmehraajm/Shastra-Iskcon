@@ -1,0 +1,24 @@
+# ŚB 3.19.29
+
+**Sanskrit:**
+
+एतौ तौ पार्षदावस्य शापाद्यातावसद्गतिम् ।
+पुन: कतिपयै: स्थानं प्रपत्स्येते ह जन्मभि: ॥ २९ ॥
+
+**Transliteration:**
+
+etau tau pārṣadāv asya
+śāpād yātāv asad-gatim
+punaḥ katipayaiḥ sthānaṁ
+prapatsyete ha janmabhiḥ
+
+**Synonyms:**
+
+Synonyms
+etau — these two; tau — both; pārṣadau — personal assistants; asya — of the Personality of Godhead; śāpāt — because of being cursed; yātau — have gone; asat-gatim — to take birth in a demoniac family; punaḥ — again; katipayaiḥ — a few; sthānam — own place; prapatsyete — will get back; ha — indeed; janmabhiḥ — after births.
+
+**Translation:**
+
+Translation
+These two personal assistants of the Supreme Lord, having been cursed, have been destined to take birth in demoniac families. After a few such births, they will return to their own positions.
+

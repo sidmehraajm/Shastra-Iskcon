@@ -1,0 +1,27 @@
+# CC Madhya 12.210
+
+**Bengali:**
+
+দর্শন-লোভেতে করি’ মর্যাদা লঙ্ঘন ।
+ভোগ-মণ্ডপে যাঞা করে শ্রীমুখ দর্শন ॥ ২১০ ॥
+
+**Transliteration:**
+
+darśana-lobhete kari’ maryādā laṅghana
+bhoga-maṇḍape yāñā kare śrī-mukha darśana
+
+**Synonyms:**
+
+Synonyms
+darśana-lobhete — being very eager to see; kari’ — doing; maryādā laṅghana — transgressions of regulative principles; bhoga-maṇḍape — in the room for offering food; yāñā — going; kare — do; śrī-mukha darśana — seeing the lotus face.
+
+**Translation:**
+
+Translation
+Out of great eagerness to see the Lord, they all neglected the regulative principles and, just to see the Lord’s face, went to the place where the food was offered.
+
+**Purport:**
+
+Purport
+There are many regulative principles of Deity worship. For example, one is not allowed to enter the room where food is offered to Lord Jagannātha. But in this case, being very eager because of not having seen the Lord for fifteen days, all the people overruled the regulative principles and entered the room.
+

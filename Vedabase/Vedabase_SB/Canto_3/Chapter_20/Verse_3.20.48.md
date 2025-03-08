@@ -1,0 +1,24 @@
+# ŚB 3.20.48
+
+**Sanskrit:**
+
+येऽहीयन्तामुत: केशा अहयस्तेऽङ्ग जज्ञिरे ।
+सर्पा: प्रसर्पत: क्रूरा नागा भोगोरुकन्धरा: ॥ ४८ ॥
+
+**Transliteration:**
+
+ye ’hīyantāmutaḥ keśā
+ahayas te ’ṅga jajñire
+sarpāḥ prasarpataḥ krūrā
+nāgā bhogoru-kandharāḥ
+
+**Synonyms:**
+
+Synonyms
+ye — which; ahīyanta — dropped out; amutaḥ — from that; keśāḥ — hairs; ahayaḥ — snakes; te — they; aṅga — O dear Vidura; jajñire — took birth as; sarpāḥ — snakes; prasarpataḥ — from the crawling body; krūrāḥ — envious; nāgāḥ — cobras; bhoga — with hoods; uru — big; kandharāḥ — whose necks.
+
+**Translation:**
+
+Translation
+O dear Vidura, the hair that dropped from that body transformed into snakes, and even while the body crawled along with its hands and feet contracted, there sprang from it ferocious serpents and Nāgas with their hoods expanded.
+

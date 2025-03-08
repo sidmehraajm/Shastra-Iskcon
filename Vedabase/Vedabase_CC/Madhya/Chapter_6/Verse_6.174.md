@@ -1,0 +1,27 @@
+# CC Madhya 6.174
+
+**Bengali:**
+
+‘প্রণব’ যে মহাবাক্য — ঈশ্বরের মূর্তি ।
+প্রণব হৈতে সর্ববেদ, জগৎ-উৎপত্তি ॥ ১৭৪ ॥
+
+**Transliteration:**
+
+‘praṇava’ ye mahā-vākya — īśvarera mūrti
+praṇava haite sarva-veda, jagat-utpatti
+
+**Synonyms:**
+
+Synonyms
+praṇava — oṁkāra; mahā-vākya — transcendental vibration; īśvarera — of the Supreme Personality of Godhead; mūrti — the form; praṇava — oṁkāra; sarva-veda — all Vedic literature; jagat — of the material world; utpatti — production.
+
+**Translation:**
+
+Translation
+“The transcendental vibration oṁkāra is the sound form of the Supreme Personality of Godhead. All Vedic knowledge and this cosmic manifestation are produced from this sound representation of the Supreme Lord.
+
+**Purport:**
+
+Purport
+Oṁkāra is the representation of the Supreme Personality of Godhead in sound. This form of His holy name is accepted as the transcendental vibration (mahā-vākya) by virtue of which the temporary material manifestation has come into being. If one takes shelter of the sound representation of the Supreme Personality of Godhead (oṁkāra), he can realize his constitutional identity and engage in devotional service even though in conditioned life.
+

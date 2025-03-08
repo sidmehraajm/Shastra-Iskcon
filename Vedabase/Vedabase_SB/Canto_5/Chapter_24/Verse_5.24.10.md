@@ -1,0 +1,20 @@
+# ŚB 5.24.10
+
+**Sanskrit:**
+
+उद्यानानि चातितरां मनइन्द्रियानन्दिभि: कुसुमफलस्तबकसुभगकिसलयावनतरुचिरविटपविटपिनां लताङ्गालिङ्गितानां श्रीभि: समिथुनविविधविहङ्गमजलाशयानाममलजलपूर्णानां झषकुलोल्लङ्घनक्षुभितनीरनीरजकुमुदकुवलयकह्लारनीलोत्पल लोहितशतपत्रादिवनेषुकृतनिकेतनानामेकविहाराकुलमधुरविविधस्वनादिभिरिन्द्रि-योत्सवैरमरलोकश्रियमतिशयितानि ॥ १० ॥
+
+**Transliteration:**
+
+udyānāni cātitarāṁ mana-indriyānandibhiḥ kusuma-phala-stabaka-subhaga-kisalayāvanata-rucira-viṭapa-viṭapināṁ latāṅgāliṅgitānāṁ śrībhiḥ samithuna-vividha-vihaṅgama-jalāśayānām amala-jala-pūrṇānāṁ jhaṣakulollaṅghana-kṣubhita-nīra-nīraja-kumuda-kuva-laya-kahlāra-nīlotpala-lohita-śatapatrādi-vaneṣu kṛta-niketanānām eka-vihārākula-madhura-vividha-svanādibhir indriyotsavair amara-loka-śriyam atiśayitāni.
+
+**Synonyms:**
+
+Synonyms
+udyānāni — the gardens and parks; ca — also; atitarām — greatly; manaḥ — to the mind; indriya — and to the senses; ānandibhiḥ — which cause pleasure; kusuma — by flowers; phala — of fruits; stabaka — bunches; subhaga — very beautiful; kisalaya — new twigs; avanata — bent low; rucira — attractive; viṭapa — possessing branches; viṭapinām — of trees; latā-aṅga-āliṅgitānām — which are embraced by the limbs of creepers; śrībhiḥ — by the beauty; sa-mithuna — in pairs; vividha — varieties; vihaṅgama — frequented by birds; jala-āśayānām — of reservoirs of water; amala-jala-pūrṇānām — full of clear and transparent water; jhaṣa-kula-ullaṅghana — by the jumping of different fish; kṣubhita — agitated; nīra — in the water; nīraja — of lotus flowers; kumuda — lilies; kuvalaya — flowers named kuvalaya; nīla-utpala — blue lotus flowers; lohita — red; śata-patra-ādi — lotus flowers with a hundred petals and so on; vaneṣu — in forests; kṛta-niketanānām — of birds that have made their nests; eka-vihāra-ākula — full of uninterrupted enjoyment; madhura — very sweet; vividha — varieties; svana-ādibhiḥ — by vibrations; indriya-utsavaiḥ — invoking sense enjoyment; amara-loka-śriyam — the beauty of the residential places of the demigods; atiśayitāni — surpassing.
+
+**Translation:**
+
+Translation
+The parks and gardens in the artificial heavens surpass in beauty those of the upper heavenly planets. The trees in those gardens, embraced by creepers, bend with a heavy burden of twigs with fruits and flowers, and therefore they appear extraordinarily beautiful. That beauty could attract anyone and make his mind fully blossom in the pleasure of sense gratification. There are many lakes and reservoirs with clear, transparent water, agitated by jumping fish and decorated with many flowers such as lilies, kuvalayas, kahlāras and blue and red lotuses. Pairs of cakravākas and many other water birds nest in the lakes and always enjoy in a happy mood, making sweet, pleasing vibrations that are very satisfying and conducive to enjoyment of the senses.
+

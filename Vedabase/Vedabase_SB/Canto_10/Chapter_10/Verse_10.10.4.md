@@ -1,0 +1,29 @@
+# ŚB 10.10.4
+
+**Sanskrit:**
+
+अन्त: प्रविश्य गङ्गायामम्भोजवनराजिनि ।
+चिक्रीडतुर्युवतिभिर्गजाविव करेणुभि: ॥ ४ ॥
+
+**Transliteration:**
+
+antaḥ praviśya gaṅgāyām
+ambhoja-vana-rājini
+cikrīḍatur yuvatibhir
+gajāv iva kareṇubhiḥ
+
+**Synonyms:**
+
+Synonyms
+antaḥ — within; praviśya — entering; gaṅgāyām — the Ganges, known as Mandākinī; ambhoja — of lotus flowers; vana-rājini — where there was a congested forest; cikrīḍatuḥ — the two of them used to enjoy; yuvatibhiḥ — in the company of young girls; gajau — two elephants; iva — just like; kareṇubhiḥ — with female elephants.
+
+**Translation:**
+
+Translation
+Within the waters of the Mandākinī Ganges, which were crowded with gardens of lotus flowers, the two sons of Kuvera would enjoy young girls, just like two male elephants enjoying in the water with female elephants.
+
+**Purport:**
+
+Purport
+People generally go to the Ganges to be purified of the effects of sinful life, but here is an example of how foolish persons enter the Ganges to become involved in sinful life. It is not that everyone becomes purified by entering the Ganges. Everything, spiritual and material, depends on one’s mental condition.
+

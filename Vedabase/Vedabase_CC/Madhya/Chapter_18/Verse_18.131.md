@@ -1,0 +1,22 @@
+# CC Madhya 18.131
+
+**Bengali:**
+
+একদিন ‘দশ’ ‘বিশ’ আইসে নিমন্ত্রণ ।
+ভট্টাচার্য একের মাত্র করেন গ্রহণ ॥ ১৩১ ॥
+
+**Transliteration:**
+
+eka-dina ‘daśa’ ‘biśa’ āise nimantraṇa
+bhaṭṭācārya ekera mātra karena grahaṇa
+
+**Synonyms:**
+
+Synonyms
+eka-dina — in one day; daśa biśa — ten to twenty; āise — come; nimantraṇa — the invitations; bhaṭṭācārya — Balabhadra Bhaṭṭācārya; ekera — of one of them; mātra — only; karena grahaṇa — accepts.
+
+**Translation:**
+
+Translation
+In one day, ten to twenty invitations were received, but Balabhadra Bhaṭṭācārya would accept only one of them.
+

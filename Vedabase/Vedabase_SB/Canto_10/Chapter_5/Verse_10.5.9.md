@@ -1,0 +1,24 @@
+# ŚB 10.5.9
+
+**Sanskrit:**
+
+गोप्यश्चाकर्ण्य मुदिता यशोदाया: सुतोद्भ‍वम् ।
+आत्मानं भूषयांचक्रुर्वस्त्राकल्पाञ्जनादिभि: ॥ ९ ॥
+
+**Transliteration:**
+
+gopyaś cākarṇya muditā
+yaśodāyāḥ sutodbhavam
+ātmānaṁ bhūṣayāṁ cakrur
+vastrākalpāñjanādibhiḥ
+
+**Synonyms:**
+
+Synonyms
+gopyaḥ — the feminine community, the wives of the cowherd men; ca — also; ākarṇya — after hearing; muditāḥ — became very glad; yaśodāyāḥ — of mother Yaśodā; suta-udbhavam — the birth of a male child; ātmānam — personally; bhūṣayām cakruḥ — dressed very nicely to attend the festival; vastra-ākalpa-añjana-ādibhiḥ — with proper dress, ornaments, black ointment, and so on.
+
+**Translation:**
+
+Translation
+The gopī wives of the cowherd men were very pleased to hear that mother Yaśodā had given birth to a son, and they began to decorate themselves very nicely with proper dresses, ornaments, black ointment for the eyes, and so on.
+

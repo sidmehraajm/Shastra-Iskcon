@@ -1,0 +1,24 @@
+# ŚB 9.4.12
+
+**Sanskrit:**
+
+य एतत् संस्मरेत् प्रात: सायं च सुसमाहित: ।
+कविर्भवति मन्त्रज्ञो गतिं चैव तथात्मन: ॥ १२ ॥
+
+**Transliteration:**
+
+ya etat saṁsmaret prātaḥ
+sāyaṁ ca susamāhitaḥ
+kavir bhavati mantra-jño
+gatiṁ caiva tathātmanaḥ
+
+**Synonyms:**
+
+Synonyms
+yaḥ — anyone who; etat — about this incident; saṁsmaret — may remember; prātaḥ — in the morning; sāyam ca — and in the evening; susamāhitaḥ — with great attention; kaviḥ — learned; bhavati — becomes; mantra-jñaḥ — well aware of all Vedic mantras; gatim — the destination; ca — also; eva — indeed; tathā ātmanaḥ — like that of the self-realized soul.
+
+**Translation:**
+
+Translation
+If one hears and chants or remembers this narration in the morning and evening with great attention, he certainly becomes learned, experienced in understanding the Vedic hymns, and expert in self-realization.
+

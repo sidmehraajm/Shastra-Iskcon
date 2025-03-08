@@ -1,0 +1,22 @@
+# CC Madhya 12.177
+
+**Bengali:**
+
+সার্বভৌমে প্রভু বসাঞাছেন বাম-পাশে ।
+দুই ভক্তের স্নেহ দেখি’ সার্বভৌম হাসে ॥ ১৭৭ ॥
+
+**Transliteration:**
+
+sārvabhaume prabhu vasāñāchena vāma-pāśe
+dui bhaktera sneha dekhi’ sārvabhauma hāse
+
+**Synonyms:**
+
+Synonyms
+sārvabhaume — Sārvabhauma Bhaṭṭācārya; prabhu — the Lord; vasāñāchena — made to sit; vāma-pāśe — on His left side; dui bhaktera — of the two devotees; sneha — the affection; dekhi’ — seeing; sārvabhauma — Sārvabhauma Bhaṭṭācārya; hāse — smiles.
+
+**Translation:**
+
+Translation
+The Lord made Sārvabhauma Bhaṭṭācārya sit on His left side, and when Sārvabhauma saw the behavior of Svarūpa Dāmodara and Jagadānanda, he smiled.
+

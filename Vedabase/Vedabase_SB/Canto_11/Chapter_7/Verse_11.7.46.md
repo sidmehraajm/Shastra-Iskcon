@@ -1,0 +1,29 @@
+# ŚB 11.7.46
+
+**Sanskrit:**
+
+क्व‍‍चिच्छन्न: क्व‍‍चित् स्पष्ट उपास्य: श्रेय इच्छताम् ।
+भुङ्क्ते सर्वत्र दातृणां दहन् प्रागुत्तराशुभम् ॥ ४६ ॥
+
+**Transliteration:**
+
+kvacic channaḥ kvacit spaṣṭa
+upāsyaḥ śreya icchatām
+bhuṅkte sarvatra dātṝṇāṁ
+dahan prāg-uttarāśubham
+
+**Synonyms:**
+
+Synonyms
+kvacit — sometimes; channaḥ — concealed; kvacit — sometimes; spaṣṭaḥ — manifest; upāsyaḥ — worshipable; śreyaḥ — the highest good; icchatām — by those desiring; bhuṅkte — he devours; sarvatra — on all sides; dātṝṇām — of those making offerings to him; dahan — burning; prāk — previous; uttara — and future; aśubham — sinful reactions.
+
+**Translation:**
+
+Translation
+A saintly person, just like fire, sometimes appears in a concealed form and at other times reveals himself. For the welfare of the conditioned souls who desire real happiness, a saintly person may accept the worshipable position of spiritual master, and thus like fire he burns to ashes all the past and future sinful reactions of his worshipers by mercifully accepting their offerings.
+
+**Purport:**
+
+Purport
+A saintly person prefers to conceal his exalted spiritual position, but to instruct the suffering people of the world he sometimes reveals his own greatness. This is compared to a fire that sometimes burns unnoticed beneath ashes and sometimes blazes openly. Just as fire devours the ghee and other offerings given by the performers of sacrifice, similarly a saintly person accepts the praise offered by his conditioned followers, knowing that in fact all praise is meant for the Supreme Lord, Kṛṣṇa. Although an ordinary person immediately becomes puffed up and foolish when he is praised, such inauspicious tendencies within a saintly person are burned to ashes by his attachment to the Absolute Truth. In this way, he is just like fire.
+

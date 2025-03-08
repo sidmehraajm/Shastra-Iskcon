@@ -1,0 +1,24 @@
+# ŚB 4.8.74
+
+**Sanskrit:**
+
+तृतीयं चानयन्मासं नवमे नवमेऽहनि ।
+अब्भक्ष उत्तमश्लोकमुपाधावत्समाधिना ॥ ७४ ॥
+
+**Transliteration:**
+
+tṛtīyaṁ cānayan māsaṁ
+navame navame ’hani
+ab-bhakṣa uttamaślokam
+upādhāvat samādhinā
+
+**Synonyms:**
+
+Synonyms
+tṛtīyam — the third month; ca — also; ānayan — passing; māsam — one month; navame navame — on each ninth; ahani — on the day; ap-bhakṣaḥ — drinking water only; uttama-ślokam — the Supreme Personality of Godhead, who is worshiped by selected verses; upādhāvat — worshiped; samādhinā — in trance.
+
+**Translation:**
+
+Translation
+In the third month he drank water only every nine days. Thus he remained completely in trance and worshiped the Supreme Personality of Godhead, who is adored by selected verses.
+

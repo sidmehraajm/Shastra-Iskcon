@@ -1,0 +1,28 @@
+# ŚB 9.24.62
+
+**Sanskrit:**
+
+यस्मिन् सत्कर्णपीयुषे यशस्तीर्थवरे सकृत् । श्रोत्राञ्जलिरुपस्पृश्य धुनुते कर्मवासनाम् ॥ ६२ ॥
+
+**Transliteration:**
+
+yasmin sat-karṇa-pīyuṣe
+yaśas-tīrtha-vare sakṛt
+śrotrāñjalir upaspṛśya
+dhunute karma-vāsanām
+
+**Synonyms:**
+
+Synonyms
+yasmin — in the history of the transcendental activities of Kṛṣṇa upon the surface of the earth; sat-karṇa-pīyuṣe — who pleases the demands of the transcendental, purified ears; yaśaḥ-tīrtha-vare — keeping oneself in the best of holy places by hearing the transcendental activities of the Lord; sakṛt — once only, immediately; śrotra-añjaliḥ — in the form of hearing the transcendental message; upaspṛśya — touching (exactly like the water of the Ganges); dhunute — destroys; karma-vāsanām — the strong desire for fruitive activities.
+
+**Translation:**
+
+Translation
+Simply by receiving the glories of the Lord through purified transcendental ears, the devotees of the Lord are immediately freed from strong material desires and engagement in fruitive activities.
+
+**Purport:**
+
+Purport
+When the devotees aurally receive the activities of the Supreme Personality of Godhead as enacted in Bhagavad-gītā and Śrīmad-Bhāgavatam, they immediately achieve a transcendental vision in which they are no longer interested in materialistic activities. Thus they achieve freedom from the material world. For sense gratification practically everyone is engaged in materialistic activities, which prolong the process of janma-mṛtyu-jarā-vyādhi — birth, death, old age and disease — but the devotee, simply by hearing the message of Bhagavad-gītā and further relishing the narrations of Śrīmad-Bhāgavatam, becomes so pure that he no longer takes interest in materialistic activities. At the moment, devotees in the Western countries are being attracted by Kṛṣṇa consciousness and becoming uninterested in materialistic activities, and therefore people are trying to oppose this movement. But they cannot possibly check this movement or stop the activities of the devotees in Europe and America by their artificial impositions. Here the words śrotrāñjalir upaspṛśya indicate that simply by hearing the transcendental activities of the Lord the devotees become so pure that they are immediately immune to the contamination of materialistic fruitive activities. Anyābhilāṣitā-śūnyam. Materialistic activities are unnecessary for the soul, and therefore the devotees are freed from such activities. The devotees are situated in liberation (brahma-bhūyāya kalpate), and therefore they cannot be called back to their material homes and materialistic activities.
+

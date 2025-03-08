@@ -1,0 +1,24 @@
+# ŚB 6.14.41
+
+**Sanskrit:**
+
+दासीनां को नु सन्ताप: स्वामिन: परिचर्यया ।
+अभीक्ष्णं लब्धमानानां दास्या दासीव दुर्भगा: ॥ ४१ ॥
+
+**Transliteration:**
+
+dāsīnāṁ ko nu santāpaḥ
+svāminaḥ paricaryayā
+abhīkṣṇaṁ labdha-mānānāṁ
+dāsyā dāsīva durbhagāḥ
+
+**Synonyms:**
+
+Synonyms
+dāsīnām — of the maidservants; kaḥ — what; nu — indeed; santāpaḥ — lamentation; svāminaḥ — unto the husband; paricaryayā — by rendering service; abhīkṣṇam — constantly; labdha-mānānām — honored; dāsyāḥ — of the maidservant; dāsī iva — like a maidservant; durbhagāḥ — most unfortunate.
+
+**Translation:**
+
+Translation
+Even maidservants who are constantly engaged in rendering service to the husband are honored by the husband, and thus they have nothing for which to lament. Our position, however, is that we are maidservants of the maidservant. Therefore we are most unfortunate.
+

@@ -1,0 +1,22 @@
+# CC Madhya 8.160
+
+**Bengali:**
+
+প্রেমের পরম-সার ‘মহাভাব’ জানি ।
+সেই মহাভাবরূপা রাধা-ঠাকুরাণী ॥ ১৬০ ॥
+
+**Transliteration:**
+
+premera parama-sāra ‘mahābhāva’ jāni
+sei mahābhāva-rūpā rādhā-ṭhākurāṇī
+
+**Synonyms:**
+
+Synonyms
+premera — of love of Godhead; parama-sāra — the essential part; mahā-bhāva — the transcendental ecstasy of the name mahābhāva; sei — that; mahā-bhāva-rūpā — the personification of the mahābhāva transcendental ecstasy; rādhā-ṭhākurāṇī — Śrīmatī Rādhārāṇī.
+
+**Translation:**
+
+Translation
+“The essential part of love of Godhead is called mahābhāva, transcendental ecstasy, and that ecstasy is represented by Śrīmatī Rādhārāṇī.
+

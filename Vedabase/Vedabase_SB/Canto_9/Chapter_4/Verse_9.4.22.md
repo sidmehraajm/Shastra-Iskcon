@@ -1,0 +1,31 @@
+# ŚB 9.4.22
+
+**Sanskrit:**
+
+ईजेऽश्वमेधैरधियज्ञमीश्वरं
+महाविभूत्योपचिताङ्गदक्षिणै: ।
+ततैर्वसिष्ठासितगौतमादिभि-
+र्धन्वन्यभिस्रोतमसौ सरस्वतीम् ॥ २२ ॥
+
+**Transliteration:**
+
+īje ’śvamedhair adhiyajñam īśvaraṁ
+mahā-vibhūtyopacitāṅga-dakṣiṇaiḥ
+tatair vasiṣṭhāsita-gautamādibhir
+dhanvany abhisrotam asau sarasvatīm
+
+**Synonyms:**
+
+Synonyms
+īje — worshiped; aśvamedhaiḥ — by performing the horse sacrifice yajñas; adhiyajñam — to satisfy the master of all yajñas; īśvaram — the Supreme Personality of Godhead; mahā-vibhūtyā — with great opulence; upacita-aṅga-dakṣiṇaiḥ — with all prescribed paraphernalia and contributions of dakṣiṇā to the brāhmaṇas; tataiḥ — executed; vasiṣṭha-asita-gautama-ādibhiḥ — by such brāhmaṇas as Vasiṣṭha, Asita and Gautama; dhanvani — in the desert; abhisrotam — inundated by the water of the river; asau — Mahārāja Ambarīṣa; sarasvatīm — on the bank of the Sarasvatī.
+
+**Translation:**
+
+Translation
+In desert countries where there flowed the river Sarasvatī, Mahārāja Ambarīṣa performed great sacrifices like the aśvamedha-yajña and thus satisfied the master of all yajñas, the Supreme Personality of Godhead. Such sacrifices were performed with great opulence and suitable paraphernalia and with contributions of dakṣiṇā to the brāhmaṇas, who were supervised by great personalities like Vasiṣṭha, Asita and Gautama, representing the king, the performer of the sacrifices.
+
+**Purport:**
+
+Purport
+When one performs ritualistic sacrifices as prescribed in the Vedas, one needs expert brāhmaṇas known as yājñika-brāhmaṇas. In Kali-yuga, however, there is a scarcity of such brāhmaṇas. Therefore in Kali-yuga the sacrifice recommended in śāstra is saṅkīrtana-yajña (yajñaiḥ saṅkīrtana-prāyair yajanti hi sumedhasaḥ). Instead of spending money unnecessarily on performing yajñas impossible to perform in this Age of Kali because of the scarcity of yājñika-brāhmaṇas, one who is intelligent performs saṅkīrtana-yajña. Without properly performed yajñas to satisfy the Supreme Personality of Godhead, there will be scarcity of rain (yajñād bhavati parjanyaḥ). Therefore the performance of yajña is essential. Without yajña there will be a scarcity of rain, and because of this scarcity, no food grains will be produced, and there will be famines. It is the duty of the king, therefore, to perform different types of yajñas, such as the aśvamedha-yajña, to maintain the production of food grains. Annād bhavanti bhūtāni. Without food grains, both men and animals will starve. Therefore yajña is necessary for the state to perform because by yajña the people in general will be fed sumptuously. The brāhmaṇas and yājñika priests should be sufficiently paid for their expert service. This payment is called dakṣiṇā. Ambarīṣa Mahārāja, as the head of the state, performed all these yajñas through great personalities like Vasiṣṭha, Gautama and Asita. Personally, however, he was engaged in devotional service, as mentioned before (sa vai manaḥ kṛṣṇa-padāravindayoḥ). The king or head of state must see that things go on well under proper guidance, and he must be an ideal devotee, as exemplified by Mahārāja Ambarīṣa. It is the duty of the king to see that food grains are produced even in desert countries, what to speak of elsewhere.
+

@@ -1,0 +1,35 @@
+# ŚB 10.10.27
+
+**Sanskrit:**
+
+बालेन निष्कर्षयतान्वगुलूखलं तद्
+दामोदरेण तरसोत्कलिताङ्‍‍घ्रिबन्धौ ।
+निष्पेततु: परमविक्रमितातिवेप-
+स्कन्धप्रवालविटपौ कृतचण्डशब्दौ ॥ २७ ॥
+
+**Transliteration:**
+
+bālena niṣkarṣayatānvag ulūkhalaṁ tad
+dāmodareṇa tarasotkalitāṅghri-bandhau
+niṣpetatuḥ parama-vikramitātivepa-
+skandha-pravāla-viṭapau kṛta-caṇḍa-śabdau
+
+**Synonyms:**
+
+Synonyms
+bālena — by the boy Kṛṣṇa; niṣkarṣayatā — who was dragging; anvak — following the dragging of Kṛṣṇa; ulūkhalam — the wooden mortar; tat — that; dāma-udareṇa — by Kṛṣṇa, who was tied by the belly; tarasā — with great force; utkalita — uprooted; aṅghri-bandhau — the roots of the two trees; niṣpetatuḥ — fell down; parama-vikramita — by the supreme power; ati-vepa — trembling severely; skandha — trunk; pravāla — bunches of leaves; viṭapau — those two trees, along with their branches; kṛta — having made; caṇḍa-śabdau — a fierce sound.
+
+**Translation:**
+
+Translation
+By dragging behind Him with great force the wooden mortar tied to His belly, the boy Kṛṣṇa uprooted the two trees. By the great strength of the Supreme Person, the two trees, with their trunks, leaves and branches, trembled severely and fell to the ground with a great crash.
+
+**Purport:**
+
+Purport
+This is the pastime of Kṛṣṇa known as dāmodara-līlā. Therefore another of Kṛṣṇa’s names is Dāmodara. As stated in the Hari-vaṁśa:
+sa ca tenaiva nāmnā tu
+kṛṣṇo vai dāma-bandhanāt
+goṣṭhe dāmodara iti
+gopībhiḥ parigīyate
+

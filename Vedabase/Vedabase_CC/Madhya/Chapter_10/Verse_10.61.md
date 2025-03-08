@@ -1,0 +1,22 @@
+# CC Madhya 10.61
+
+**Bengali:**
+
+তবে মহাপ্রভু তাঁরে ঘরে পাঠাইল ।
+বাণীনাথ-পট্টনায়কে নিকটে রাখিল ॥ ৬১ ॥
+
+**Transliteration:**
+
+tabe mahāprabhu tāṅre ghare pāṭhāila
+vāṇīnātha-paṭṭanāyake nikaṭe rākhila
+
+**Synonyms:**
+
+Synonyms
+tabe — thereafter; mahāprabhu — Śrī Caitanya Mahāprabhu; tāṅre — him (Bhavānanda Rāya); ghare — to his home; pāṭhāila — sent back; vāṇīnātha-paṭṭanāyake — Vāṇīnātha Paṭṭanāyaka; nikaṭe — near; rākhila — kept.
+
+**Translation:**
+
+Translation
+Śrī Caitanya Mahāprabhu then sent Bhavānanda Rāya back to his home, and He kept only Vāṇīnātha Paṭṭanāyaka in His personal service.
+

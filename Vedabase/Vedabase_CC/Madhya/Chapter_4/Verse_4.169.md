@@ -1,0 +1,27 @@
+# CC Madhya 4.169
+
+**Bengali:**
+
+গ্রীষ্মকাল-অন্তে পুনঃ নীলাচলে গেলা ।
+নীলাচলে চাতুর্মাস্য আনন্দে রহিলা ॥ ১৬৯ ॥
+
+**Transliteration:**
+
+grīṣma-kāla-ante punaḥ nīlācale gelā
+nīlācale cāturmāsya ānande rahilā
+
+**Synonyms:**
+
+Synonyms
+grīṣma-kāla — of the summer season; ante — at the end; punaḥ — again; nīlācale — to Jagannātha Purī; gelā — went; nīlācale — in Jagannātha Purī; cātur-māsya — the four months for vows; ānande — in great pleasure; rahilā — remained.
+
+**Translation:**
+
+Translation
+At the end of summer Mādhavendra Purī returned to Jagannātha Purī, where he remained with great pleasure during the whole period of Cāturmāsya.
+
+**Purport:**
+
+Purport
+The Cāturmāsya period begins in the month of Āṣāḍha (June-July) from the day of Ekādaśī called Śayanā-ekādaśī, in the fortnight of the waxing moon. The period ends in the month of Kārttika (October-November) on the Ekādaśī day known as Utthānā-ekādaśī, in the fortnight of the waxing moon. This four-month period is known as Cāturmāsya. Some Vaiṣṇavas also observe it from the full-moon day of Āṣāḍha until the full-moon day of Kārttika. That is also a period of four months. This period, calculated by the lunar months, is called Cāturmāsya, but others also observe Cāturmāsya according to the solar month from Śrāvaṇa to Kārttika. The whole period, either lunar or solar, takes place during the rainy season. Cāturmāsya should be observed by all sections of the population. It does not matter whether one is a gṛhastha or a sannyāsī. The observance is obligatory for all āśramas. The real purpose behind the vow taken during these four months is to minimize the quantity of sense gratification. This is not very difficult. In the month of Śrāvaṇa one should not eat spinach, in the month of Bhādra one should not eat yogurt, and in the month of Āśvina one should not drink milk. One should not eat fish or other nonvegetarian food during the month of Kārttika. A nonvegetarian diet means fish and meat. Similarly, masūra dhal and urad dhal are also considered nonvegetarian. These two dhals contain a great amount of protein, and food rich in protein is considered nonvegetarian. On the whole, during the four-month period of Cāturmāsya one should practice giving up all food intended for sense enjoyment.
+

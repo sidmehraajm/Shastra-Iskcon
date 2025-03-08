@@ -1,0 +1,53 @@
+# ŚB 7.14.30-33
+
+**Sanskrit:**
+
+सरांसि पुष्करादीनि क्षेत्राण्यर्हाश्रितान्युत ।
+कुरुक्षेत्रं गयशिर: प्रयाग: पुलहाश्रम: ॥ ३० ॥
+नैमिषं फाल्गुनं सेतु: प्रभासोऽथ कुशस्थली ।
+वाराणसी मधुपुरी पम्पा बिन्दुसरस्तथा ॥ ३१ ॥
+नारायणाश्रमो नन्दा सीतारामाश्रमादय: ।
+सर्वे कुलाचला राजन्महेन्द्रमलयादय: ॥ ३२ ॥
+एते पुण्यतमा देशा हरेरर्चाश्रिताश्च ये ।
+एतान्देशान्निषेवेत श्रेयस्कामो ह्यभीक्ष्णश: ।
+धर्मो ह्यत्रेहित: पुंसां सहस्राधिफलोदय: ॥ ३३ ॥
+
+**Transliteration:**
+
+sarāṁsi puṣkarādīni
+kṣetrāṇy arhāśritāny uta
+kurukṣetraṁ gaya-śiraḥ
+prayāgaḥ pulahāśramaḥ
+naimiṣaṁ phālgunaṁ setuḥ
+prabhāso ’tha kuśa-sthalī
+vārāṇasī madhu-purī
+pampā bindu-saras tathā
+nārāyaṇāśramo nandā
+sītā-rāmāśramādayaḥ
+sarve kulācalā rājan
+mahendra-malayādayaḥ
+ete puṇyatamā deśā
+harer arcāśritāś ca ye
+etān deśān niṣeveta
+śreyas-kāmo hy abhīkṣṇaśaḥ
+dharmo hy atrehitaḥ puṁsāṁ
+sahasrādhi-phalodayaḥ
+
+**Synonyms:**
+
+Synonyms
+sarāṁsi — lakes; puṣkara-ādīni — such as Puṣkara; kṣetrāṇi — sacred places (like Kurukṣetra, Gayākṣetra and Jagannātha Purī); arha — for worshipable, saintly persons; āśritāni — places of shelter; uta — celebrated; kurukṣetram — a particular sacred place (dharma-kṣetra); gaya-śiraḥ — the place known as Gayā, where Gayāsura took shelter of the lotus feet of Lord Viṣṇu; prayāgaḥ — Allahabad, at the confluence of the two sacred rivers Ganges and Yamunā; pulaha-āśramaḥ — the residence of Pulaha Muni; naimiṣam — the place known as Naimiṣāraṇya (near Lucknow); phālgunam — the place where the Phālgu River flows; setuḥ — Setubandha, where Lord Rāmacandra constructed a bridge between India and Laṅkā; prabhāsaḥ — Prabhāsakṣetra; atha — as well as; kuśa-sthalī — Dvāravatī, or Dvārakā; vārāṇasī — Benares; madhu-purī — Mathurā; pampā — a place where there is a lake called Pampā; bindu-saraḥ — the place where Bindu-sarovara is situated; tathā — there; nārāyaṇa-āśramaḥ — known as Badarikāśrama; nandā — the place where the Nandā River flows; sītā-rāma — of Lord Rāmacandra and mother Sītā; āśrama-ādayaḥ — places of shelter like Citrakūṭa; sarve — all (such places); kulācalāḥ — hilly tracts of land; rājan — O King; mahendra — known as Mahendra; malaya-ādayaḥ — and others, like Malayācala; ete — all of them; puṇya-tamāḥ — extremely sacred; deśāḥ — places; hareḥ — of the Supreme Personality of Godhead; arca-āśritāḥ — places where the Deity of Rādhā-Kṛṣṇa is worshiped (such as big American cities like New York, Los Angeles and San Francisco, and European cities like London and Paris, or wherever there are centers of Kṛṣṇa consciousness); ca — as well as; ye — those which; etān deśān — all these countries; niṣeveta — should worship or visit; śreyaḥ-kāmaḥ — one who desires auspiciousness; hi — indeed; abhīkṣṇaśaḥ — again and again; dharmaḥ — religious activities; hi — from which; atra — in these places; īhitaḥ — performed; puṁsām — of the persons; sahasra-adhi — more than a thousand times; phala-udayaḥ — effective.
+
+**Translation:**
+
+Translation
+The sacred lakes like Puṣkara and places where saintly persons live, like Kurukṣetra, Gayā, Prayāga, Pulahāśrama, Naimiṣāraṇya, the banks of the Phālgu River, Setubandha, Prabhāsa, Dvārakā, Vārāṇasī, Mathurā, Pampā, Bindu-sarovara, Badarikāśrama [Nārāyaṇāśrama], the places where the Nandā River flows, the places where Lord Rāmacandra and mother Sītā took shelter, such as Citrakūṭa, and also the hilly tracts of land known as Mahendra and Malaya — all of these are to be considered most pious and sacred. Similarly, places outside India where there are centers of the Kṛṣṇa consciousness movement and where Rādhā-Kṛṣṇa Deities are worshiped must all be visited and worshiped by those who want to be spiritually advanced. One who intends to advance in spiritual life may visit all these places and perform ritualistic ceremonies to get results a thousand times better than the results of the same activities performed in any other place.
+
+**Purport:**
+
+Purport
+In these verses and in verse twenty-nine, stress is given to one point: harer arcāśritāś ca ye or harer arcā. In other words, any place where the Deity of the Supreme Personality of Godhead is worshiped by devotees is most significant. The Kṛṣṇa consciousness movement is giving the population of the entire world a chance to take advantage of Kṛṣṇa consciousness through the ISKCON centers, where one may perform Deity worship and chant the Hare Kṛṣṇa mahā-mantra and in this way obtain results with effectiveness increased a thousand times. This constitutes the best welfare activity for human society. This was Śrī Caitanya Mahāprabhu’s mission as it was predicted by Him in the Caitanya-bhāgavata (Antya 4.126):
+pṛthivīte āche yata nagarādi-grāma
+sarvatra pracāra haibe mora nāma
+Śrī Caitanya Mahāprabhu wanted the Hare Kṛṣṇa movement, with installed Deities, to spread to every village and town in the world, so that everyone in the world might take advantage of this movement and become all-auspicious in spiritual life. Without spiritual life, nothing is auspicious. Moghāśā mogha-karmāṇo mogha-jñānā vicetasaḥ (Bg. 9.12). No one can become successful in fruitive activities or speculative knowledge without being Kṛṣṇa conscious. As recommended in the śāstras, everyone should be very eagerly interested in taking part in the Kṛṣṇa consciousness movement and understanding the value of spiritual life.
+

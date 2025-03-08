@@ -1,0 +1,37 @@
+# ŚB 10.7.35-36
+
+**Sanskrit:**
+
+पीतप्रायस्य जननी सुतस्य रुचिरस्मितम् ।
+मुखं लालयती राजञ्जृम्भतो दद‍ृशे इदम् ॥ ३५ ॥
+खं रोदसी ज्योतिरनीकमाशा:
+सूर्येन्दुवह्निश्वसनाम्बुधींश्च ।
+द्वीपान् नगांस्तद्दुहितृर्वनानि
+भूतानि यानि स्थिरजङ्गमानि? ॥ ३६ ॥
+
+**Transliteration:**
+
+pīta-prāyasya jananī
+sutasya rucira-smitam
+mukhaṁ lālayatī rājañ
+jṛmbhato dadṛśe idam
+khaṁ rodasī jyotir-anīkam āśāḥ
+sūryendu-vahni-śvasanāmbudhīṁś ca
+dvīpān nagāṁs tad-duhitṝr vanāni
+bhūtāni yāni sthira-jaṅgamāni
+
+**Synonyms:**
+
+Synonyms
+pīta-prāyasya — of child Kṛṣṇa, who was being offered breast milk and was almost satisfied; jananī — mother Yaśodā; sutasya — of her son; rucira-smitam — seeing the child fully satisfied and smiling; mukham — the face; lālayatī — patting and softly rubbing with her hand; rājan — O King; jṛmbhataḥ — while the child was yawning; dadṛśe — she saw; idam — the following; kham — the sky; rodasī — both the higher planetary system and the earth; jyotiḥ-anīkam — the luminaries; āśāḥ — the directions; sūrya — the sun; indu — the moon; vahni — fire; śvasana — the air; ambudhīn — the seas; ca — and; dvīpān — the islands; nagān — the mountains; tat-duhitṝḥ — the daughters of the mountains (the rivers); vanāni — forests; bhūtāni — all kinds of living entities; yāni — which are; sthira-jaṅgamāni — nonmoving and moving.
+
+**Translation:**
+
+Translation
+O King Parīkṣit, when the child Kṛṣṇa was almost finished drinking His mother’s milk and mother Yaśodā was touching Him and looking at His beautiful, brilliantly smiling face, the baby yawned, and mother Yaśodā saw in His mouth the whole sky, the higher planetary system and the earth, the luminaries in all directions, the sun, the moon, fire, air, the seas, islands, mountains, rivers, forests, and all kinds of living entities, moving and nonmoving.
+
+**Purport:**
+
+Purport
+By the arrangement of Yoga-māyā, Kṛṣṇa’s pastimes with mother Yaśodā were all regarded as ordinary. So here was an opportunity for Kṛṣṇa to show His mother that the whole universe is situated within Him. In His small form, Kṛṣṇa was kind enough to show His mother the virāṭ-rūpa, the universal form, so that she could enjoy seeing what kind of child she had on her lap. The rivers have been mentioned here as the daughters of the mountains (nagāṁs tad-duhitṝḥ). It is the flowing of the rivers that makes big forests possible. There are living entities everywhere, some of them moving and some of them not moving. No place is vacant. This is a special feature of God’s creation.
+

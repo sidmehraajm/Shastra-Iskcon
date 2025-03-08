@@ -1,0 +1,24 @@
+# ŚB 8.1.27
+
+**Sanskrit:**
+
+चतुर्थ उत्तमभ्राता मनुर्नाम्ना च तामस: ।
+पृथु: ख्यातिर्नर: केतुरित्याद्या दश तत्सुता: ॥ २७ ॥
+
+**Transliteration:**
+
+caturtha uttama-bhrātā
+manur nāmnā ca tāmasaḥ
+pṛthuḥ khyātir naraḥ ketur
+ity ādyā daśa tat-sutāḥ
+
+**Synonyms:**
+
+Synonyms
+caturtha — the fourth Manu; uttama-bhrātā — the brother of Uttama; manuḥ — became the Manu; nāmnā — celebrated by the name; ca — also; tāmasaḥ — Tāmasa; pṛthuḥ — Pṛthu; khyātiḥ — Khyāti; naraḥ — Nara; ketuḥ — Ketu; iti — thus; ādyāḥ — headed by; daśa — ten; tat-sutāḥ — sons of Tāmasa Manu.
+
+**Translation:**
+
+Translation
+The brother of the third Manu, Uttama, was celebrated by the name Tāmasa, and he became the fourth Manu. Tāmasa had ten sons, headed by Pṛthu, Khyāti, Nara and Ketu.
+

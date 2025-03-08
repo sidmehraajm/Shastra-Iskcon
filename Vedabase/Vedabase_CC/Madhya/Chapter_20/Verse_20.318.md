@@ -1,0 +1,29 @@
+# CC Madhya 20.318
+
+**Bengali:**
+
+সৃজামি তন্নিযুক্তোঽহং হরো হরতি তদ্বশঃ ।
+বিশ্বং পুরুষরূপেণ পরিপাতি ত্রিশক্তিধৃক্ ॥ ৩১৮ ॥
+
+**Transliteration:**
+
+sṛjāmi tan-niyukto ’haṁ
+haro harati tad-vaśaḥ
+viśvaṁ puruṣa-rūpeṇa
+paripāti tri-śakti-dhṛk
+
+**Synonyms:**
+
+Synonyms
+sṛjāmi — create; tat-niyuktaḥ — engaged by Him; aham — I; haraḥ — Lord Śiva; harati — annihilates; tat-vaśaḥ — under His control; viśvam — the whole universe; puruṣa-rūpeṇa — in the form of Lord Viṣṇu; paripāti — maintains; tri-śakti-dhṛk — the controller of the three modes of material nature.
+
+**Translation:**
+
+Translation
+“[Lord Brahmā said:] ‘I am engaged by the Supreme Personality of Godhead to create. Following His orders, Lord Śiva dissolves everything. The Supreme Personality of Godhead in His form of Kṣīrodakaśāyī Viṣṇu maintains all the affairs of material nature. Thus the supreme controller of the three modes of material nature is Lord Viṣṇu.’
+
+**Purport:**
+
+Purport
+This is a quotation from Śrīmad-Bhāgavatam (2.6.32). Lord Brahmā gave this information to Devarṣi Nārada when he was receiving instructions from Lord Brahmā to understand the Supreme Personality of Godhead, Paramātmā. After describing the universal form of the Lord, Lord Brahmā explained that his position and Lord Śiva’s position are controlled by Lord Viṣṇu.
+

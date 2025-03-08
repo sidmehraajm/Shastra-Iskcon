@@ -1,0 +1,21 @@
+# CC Antya 2.91
+
+**Bengali:**
+
+ācārya-sambandhe bāhye kare prītyābhāsa
+kṛṣṇa-bhakti vinā prabhura nā haya ullāsa
+
+**Transliteration:**
+
+ācārya-sambandhe — because he was related with Bhagavān Ācārya; bāhye — externally; kare — does; prīti-ābhāsa — appearance of pleasure; kṛṣṇa-bhakti — devotional service to Lord Kṛṣṇa; vinā — without; prabhura — of Śrī Caitanya Mahāprabhu; nā haya — there is no; ullāsa — jubilation.
+
+**Synonyms:**
+
+Synonyms
+ācārya-sambandhe — because he was related with Bhagavān Ācārya; bāhye — externally; kare — does; prīti-ābhāsa — appearance of pleasure; kṛṣṇa-bhakti — devotional service to Lord Kṛṣṇa; vinā — without; prabhura — of Śrī Caitanya Mahāprabhu; nā haya — there is no; ullāsa — jubilation.
+
+**Translation:**
+
+Translation
+Śrī Caitanya Mahāprabhu derives no happiness from meeting one who is not a pure devotee of Kṛṣṇa. Thus because Gopāla Bhaṭṭācārya was a Māyāvādī scholar, the Lord felt no jubilation in meeting him. Nevertheless, because Gopāla Bhaṭṭācārya was related to Bhagavān Ācārya, Śrī Caitanya Mahāprabhu feigned pleasure in seeing him.
+

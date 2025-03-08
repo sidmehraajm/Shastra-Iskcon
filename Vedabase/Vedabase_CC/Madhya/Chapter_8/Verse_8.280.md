@@ -1,0 +1,22 @@
+# CC Madhya 8.280
+
+**Bengali:**
+
+নিজগূঢ়কার্য তোমার — প্রেম আস্বাদন ।
+আনুষঙ্গে প্রেমময় কৈলে ত্রিভুবন ॥ ২৮০ ॥
+
+**Transliteration:**
+
+nija-gūḍha-kārya tomāra — prema āsvādana
+ānuṣaṅge prema-maya kaile tribhuvana
+
+**Synonyms:**
+
+Synonyms
+nija-gūḍha-kārya — own confidential business; tomāra — Your; prema — transcendental love; āsvādana — tasting; ānuṣaṅge — simultaneously; prema-maya — transformed into love of God; kaile — You have made; tri-bhuvana — all the world.
+
+**Translation:**
+
+Translation
+“My dear Lord, You have descended in this incarnation of Lord Caitanya for Your own personal reasons. You have come to taste Your own spiritual bliss, and at the same time You are transforming the whole world by spreading the ecstasy of love of Godhead.
+

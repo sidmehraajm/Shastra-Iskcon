@@ -1,0 +1,33 @@
+# ŚB 9.4.28
+
+**Sanskrit:**
+
+तस्मा अदाद्धरिश्चक्रं प्रत्यनीकभयावहम् ।
+एकान्तभक्तिभावेन प्रीतो भक्ताभिरक्षणम् ॥ २८ ॥
+
+**Transliteration:**
+
+tasmā adād dhariś cakraṁ
+pratyanīka-bhayāvaham
+ekānta-bhakti-bhāvena
+prīto bhaktābhirakṣaṇam
+
+**Synonyms:**
+
+Synonyms
+tasmai — unto him (Ambarīṣa Mahārāja); adāt — gave; hariḥ — the Supreme Personality of Godhead; cakram — His disc; pratyanīka-bhaya-āvaham — the Lord’s disc, which was extremely fearful to the enemies of the Lord and His devotees; ekānta-bhakti-bhāvena — because of his performing unalloyed devotional service; prītaḥ — the Lord being so pleased; bhakta-abhirakṣaṇam — for the protection of His devotees.
+
+**Translation:**
+
+Translation
+Being very pleased by the unalloyed devotion of Mahārāja Ambarīṣa, the Supreme Personality of Godhead gave the King His disc, which is fearful to enemies and which always protects the devotee from enemies and adversities.
+
+**Purport:**
+
+Purport
+A devotee, being always engaged in the service of the Lord, may not be expert in self-defense, but because a devotee fully depends on the lotus feet of the Supreme Personality of Godhead, he is always sure of protection by the Lord. Prahlāda Mahārāja said:
+naivodvije para duratyaya-vaitaraṇyās
+tvad-vīrya-gāyana-mahāmṛta-magna-cittaḥ
+(Bhāg. 7.9.43)
+A devotee is always merged in the ocean of the transcendental bliss of rendering service to the Lord. Therefore he is not at all afraid of any adverse situation in the material world. The Lord also promises, kaunteya pratijānīhi na me bhaktaḥ praṇaśyati: “O Arjuna, you may declare to the world that the devotees of the Lord are never vanquished.” (Bg. 9.31) For the protection of the devotees, Kṛṣṇa’s disc, the Sudarśana cakra, is always ready. This disc is extremely fearful to the nondevotees (pratyanīka-bhayāvaham). Therefore although Mahārāja Ambarīṣa was fully engaged in devotional service, his kingdom was free of all fear of adversity.
+

@@ -1,0 +1,20 @@
+# ŚB 5.26.14
+
+**Sanskrit:**
+
+यस्त्विह ब्रह्मध्रुक स कालसूत्रसंज्ञके नरके अयुतयोजनपरिमण्डले ताम्रमये तप्तखले उपर्यधस्तादग्‍न्‍यर्काभ्यामतितप्यमानेऽभिनिवेशित: क्षुत्पिपासाभ्यां च दह्यमानान्तर्बहि:शरीर आस्ते शेते चेष्टतेऽवतिष्ठति परिधावति च यावन्ति पशुरोमाणि तावद्वर्षसहस्राणि ॥ १४ ॥
+
+**Transliteration:**
+
+yas tv iha brahma-dhruk sa kālasūtra-saṁjñake narake ayuta-yojana-parimaṇḍale tāmramaye tapta-khale upary-adhastād agny-arkābhyām ati-tapyamāne ’bhiniveśitaḥ kṣut-pipāsābhyāṁ ca dahyamānāntar-bahiḥ-śarīra āste śete ceṣṭate ’vatiṣṭhati paridhāvati ca yāvanti paśu-romāṇi tāvad varṣa-sahasrāṇi.
+
+**Synonyms:**
+
+Synonyms
+yaḥ — anyone who; tu — but; iha — in this life; brahma-dhruk — the killer of a brāhmaṇa; saḥ — such a person; kālasūtra-saṁjñake — named Kālasūtra; narake — in the hell; ayuta-yojana-parimaṇḍale — having a circumference of eighty thousand miles; tāmra-maye — made of copper; tapta — heated; khale — in a level place; upari-adhastāt — above and beneath; agni — by fire; arkābhyām — and by the sun; ati-tapyamāne — which is being heated; abhiniveśitaḥ — being made to enter; kṣut-pipāsābhyām — by hunger and thirst; ca — and; dahyamāna — being burned; antaḥ — internally; bahiḥ — externally; śarīraḥ — whose body; āste — remains; śete — sometimes lies; ceṣṭate — sometimes moves his limbs; avatiṣṭhati — sometimes stands; paridhāvati — sometimes runs here and there; ca — also; yāvanti — as many; paśu-romāṇi — hairs on the body of an animal; tāvat — that long; varṣa-sahasrāṇi — thousands of years.
+
+**Translation:**
+
+Translation
+The killer of a brāhmaṇa is put into the hell known as Kālasūtra, which has a circumference of eighty thousand miles and which is made entirely of copper. Heated from below by fire and from above by the scorching sun, the copper surface of this planet is extremely hot. Thus the murderer of a brāhmaṇa suffers from being burned both internally and externally. Internally he is burning with hunger and thirst, and externally he is burning from the scorching heat of the sun and the fire beneath the copper surface. Therefore he sometimes lies down, sometimes sits, sometimes stands up and sometimes runs here and there. He must suffer in this way for as many thousands of years as there are hairs on the body of an animal.
+

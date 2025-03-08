@@ -1,0 +1,31 @@
+# ŚB 10.7.29
+
+**Sanskrit:**
+
+तमन्तरिक्षात् पतितं शिलायां
+विशीर्णसर्वावयवं करालम् ।
+पुरं यथा रुद्रशरेण विद्धं
+स्त्रियो रुदत्यो दद‍ृशु: समेता: ॥ २९ ॥
+
+**Transliteration:**
+
+tam antarikṣāt patitaṁ śilāyāṁ
+viśīrṇa-sarvāvayavaṁ karālam
+puraṁ yathā rudra-śareṇa viddhaṁ
+striyo rudatyo dadṛśuḥ sametāḥ
+
+**Synonyms:**
+
+Synonyms
+tam — unto the demon Tṛṇāvarta; antarikṣāt — from outer space; patitam — fallen; śilāyām — on a slab of stone; viśīrṇa — scattered, separated; sarva-avayavam — all the parts of his body; karālam — very fierce hands and legs; puram — the place of Tripurāsura; yathā — as; rudra-śareṇa — by the arrow of Lord Śiva; viddham — pierced; striyaḥ — all the women, the gopīs; rudatyaḥ — although crying because Kṛṣṇa was separated from them; dadṛśuḥ — they saw in front of them; sametāḥ — all together.
+
+**Translation:**
+
+Translation
+While the gopīs who had gathered were crying for Kṛṣṇa, the demon fell from the sky onto a big slab of stone, his limbs dislocated, as if he had been pierced by the arrow of Lord Śiva like Tripurāsura.
+
+**Purport:**
+
+Purport
+In transcendental life, as soon as devotees of the Lord merge in lamentation, they immediately experience the Lord’s transcendental activities and merge in transcendental bliss. Actually such devotees are always in transcendental bliss, and such apparent calamities provide a further impetus for that bliss.
+

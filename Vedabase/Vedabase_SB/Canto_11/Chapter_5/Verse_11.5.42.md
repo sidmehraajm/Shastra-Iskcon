@@ -1,0 +1,38 @@
+# ŚB 11.5.42
+
+**Sanskrit:**
+
+स्वपादमूलं भजत: प्रियस्य
+त्यक्तान्यभावस्य हरि: परेश: ।
+विकर्म यच्चोत्पतितं कथञ्चिद्
+धुनोति सर्वं हृदि सन्निविष्ट: ॥ ४२ ॥
+
+**Transliteration:**
+
+sva-pāda-mūlam bhajataḥ priyasya
+tyaktānya-bhāvasya hariḥ pareśaḥ
+vikarma yac cotpatitaṁ kathañcid
+dhunoti sarvaṁ hṛdi sanniviṣṭaḥ
+
+**Synonyms:**
+
+Synonyms
+sva-pāda-mūlam — the lotus feet of Kṛṣṇa, the shelter of the devotees; bhajataḥ — who is engaged in worshiping; priyasya — who is very dear to Kṛṣṇa; tyakta — given up; anya — for others; bhāvasya — of one whose disposition or inclination; hariḥ — the Supreme Personality of Godhead; para-īśaḥ — the Supreme Lord; vikarma — sinful activities; yat — whatever; ca — and; utpatitam — occurred; kathañcit — somehow; dhunoti — removes; sarvam — all; hṛdi — in the heart; sanniviṣṭaḥ — entered.
+
+**Translation:**
+
+Translation
+One who has thus given up all other engagements and has taken full shelter at the lotus feet of Hari, the Supreme Personality of Godhead, is very dear to the Lord. Indeed, if such a surrendered soul accidentally commits some sinful activity, the Supreme Personality of Godhead, who is seated within everyone’s heart, immediately takes away the reaction to such sin.
+
+**Purport:**
+
+Purport
+In the previous verse it was clearly described that a fully surrendered devotee of the Supreme Lord has no need to perform ordinary, worldly duties. Now in this verse it is revealed that devotional service is so pure and potent that a surrendered devotee of the Lord has no need to perform any other purificatory process. As described in the Sixth Canto of Śrīmad-Bhāgavatam, a surrendered devotee has no need to perform prāyaścitta, or atonement for an accidental falldown into sinful activity. Since devotional service is itself the most purifying process, a sincere devotee who has accidentally stumbled on the path should immediately resume his pure devotional service at the lotus feet of the Lord. And thus the Lord will protect him, as stated in Bhagavad-gītā (9.30):
+api cet su-durācāro
+bhajate mām ananya-bhāk
+sādhur eva sa mantavyaḥ
+samyag vyavasito hi saḥ
+The word tyaktānya-bhāvasya in this verse is very significant. As stated in the previous verse, a pure devotee realizes clearly that all living entities, including Brahmā and Śiva, are part and parcel of the Supreme Personality of Godhead and thus have no separate or independent existence. Realizing that everything and everyone is part and parcel of the Lord, a devotee automatically is not inclined to commit sinful activities by violating the order of God. However, due to the powerful influence of material nature, even a sincere devotee may be temporarily overwhelmed by illusion and deviate from the rigid path of pure devotional service. In such a case, Lord Kṛṣṇa Himself, acting within the heart, removes such sinful activities. Even Yamarāja, the lord of death, has no power to punish a surrendered devotee who has accidentally committed sinful activities. As stated here, Kṛṣṇa is pareśa, or the Supreme Lord, and all secondary lords such as the demigods cannot threaten the Lord’s personal devotees. In his youth Ajāmila had been a pious brāhmaṇa engaged in the service of the Lord. Then, by bad association with a prostitute, he became practically the most degraded man in the world. At the end of his life, Yamarāja sent his Yamadūtas to drag away the soul of the sinful Ajāmila, but the Personality of Godhead immediately sent His personal associates to save Ajāmila and demonstrate to Yamarāja that no secondary personality can disturb the personal devotees of the Supreme Personality of Godhead. As stated in Bhagavad-gītā, kaunteya pratijānīhi na me bhaktaḥ praṇaśyati.
+The argument may be raised that the smṛti-śāstra states, śruti-smṛtī mamaivājñe: the Vedic scriptures are the direct orders of the Personality of Godhead. Therefore, one may ask, how can the Lord tolerate that His orders be occasionally neglected, even by His devotees? To answer this possible objection, the word priyasya is used in this verse. The devotees of the Lord are very dear to the Lord. Although the beloved child may accidentally commit an abominable activity, the loving father forgives the child, taking into consideration the actual good intentions of the child. Thus, although the devotee of the Lord does not try to exploit the Lord’s mercy by requesting the Lord to free him from any future suffering, the Lord, by His own initiative, frees the devotee from the reactions to accidental falldowns.
+This causeless mercy of the Lord upon His devotee is His paramaiśvaryam, or supreme opulence. Gradually the faithful devotee becomes free, even from accidental falldown, because simply by remembering the lotus feet of the Lord, what to speak of by actively rendering service to Him, his heart is purified. Although the surrendered devotees of the Personality of Godhead may sometimes appear to be affected by mundane attitudes, they are inevitably protected by the merciful Lord and are never actually defeated in life.
+

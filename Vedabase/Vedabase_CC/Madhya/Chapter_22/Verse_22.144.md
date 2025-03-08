@@ -1,0 +1,26 @@
+# CC Madhya 22.144
+
+**Bengali:**
+
+স্বপাদমূলং ভজতঃ প্রিয়স্য
+ত্যক্তান্যভাবস্য হরিঃ পরেশঃ ।
+বিকর্ম যচ্চোৎপতিতং কথঞ্চিদ্
+ধুনোতি সর্বং হৃদি সন্নিবিষ্টঃ ॥ ১৪৪ ॥
+
+**Transliteration:**
+
+sva-pāda-mūlaṁ bhajataḥ priyasya
+tyaktānya-bhāvasya hariḥ pareśaḥ
+vikarma yac cotpatitaṁ kathañcid
+dhunoti sarvaṁ hṛdi sanniviṣṭaḥ
+
+**Synonyms:**
+
+Synonyms
+sva-pāda-mūlam — the lotus feet of Kṛṣṇa, the shelter of the devotees; bhajataḥ — who is engaged in worshiping; priyasya — who is very dear to Kṛṣṇa; tyakta — given up; anya — for others; bhāvasya — of one whose disposition or inclination; hariḥ — the Supreme Personality of Godhead; para-īśaḥ — the Supreme Lord; vikarma — sinful activities; yat — whatever; ca — and; utpatitam — occurred; kathañcit — somehow; dhunoti — removes; sarvam — everything; hṛdi — in the heart; sanniviṣṭaḥ — entered.
+
+**Translation:**
+
+Translation
+“ ‘One who has given up everything and taken full shelter at the lotus feet of Hari, the Supreme Personality of Godhead, is very dear to Kṛṣṇa. If he is involved in some sinful activity by accident, the Supreme Personality of Godhead, who is seated within everyone’s heart, removes his sins without difficulty.’
+

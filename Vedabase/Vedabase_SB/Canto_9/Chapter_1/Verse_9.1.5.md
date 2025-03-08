@@ -1,0 +1,24 @@
+# ŚB 9.1.5
+
+**Sanskrit:**
+
+ये भूता ये भविष्याश्च भवन्त्यद्यतनाश्च ये ।
+तेषां न: पुण्यकीर्तीनां सर्वेषां वद विक्रमान् ॥ ५ ॥
+
+**Transliteration:**
+
+ye bhūtā ye bhaviṣyāś ca
+bhavanty adyatanāś ca ye
+teṣāṁ naḥ puṇya-kīrtīnāṁ
+sarveṣāṁ vada vikramān
+
+**Synonyms:**
+
+Synonyms
+ye — all of whom; bhūtāḥ — have already appeared; ye — all of whom; bhaviṣyāḥ — will appear in the future; ca — also; bhavanti — are existing; adyatanāḥ — at present; ca — also; ye — all of whom; teṣām — of all of them; naḥ — unto us; puṇya-kīrtīnām — who were all pious and celebrated; sarveṣām — of all of them; vada — kindly explain; vikramān — about the abilities.
+
+**Translation:**
+
+Translation
+Kindly tell us about the abilities of all the celebrated kings born in the dynasty of Vaivasvata Manu, including those who have already passed, those who may appear in the future, and those who exist at present.
+

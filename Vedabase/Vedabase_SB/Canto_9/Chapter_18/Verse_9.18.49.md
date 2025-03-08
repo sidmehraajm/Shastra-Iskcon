@@ -1,0 +1,34 @@
+# ŚB 9.18.49
+
+**Sanskrit:**
+
+यस्मिन्निदं विरचितं व्योम्नीव जलदावलि: ।
+नानेव भाति नाभाति स्वप्नमायामनोरथ: ॥ ४९ ॥
+
+**Transliteration:**
+
+yasminn idaṁ viracitaṁ
+vyomnīva jaladāvaliḥ
+nāneva bhāti nābhāti
+svapna-māyā-manorathaḥ
+
+**Synonyms:**
+
+Synonyms
+yasmin — in whom; idam — this entire cosmic manifestation; viracitam — created; vyomni — in the sky; iva — just like; jalada-āvaliḥ — clouds; nānā iva — as if in different varieties; bhāti — is manifested; na ābhāti — is unmanifested; svapna-māyā — illusion, like a dream; manaḥ-rathaḥ — created to be traversed by the chariot of the mind.
+
+**Translation:**
+
+Translation
+The Supreme Lord, Vāsudeva, who created the cosmic manifestation, exhibits Himself as all-pervading, like the sky that holds clouds. And when the creation is annihilated, everything enters into the Supreme Lord, Viṣṇu, and varieties are no longer manifested.
+
+**Purport:**
+
+Purport
+As stated by the Lord Himself in Bhagavad-gītā (7.19):
+bahūnāṁ janmanām ante
+jñānavān māṁ prapadyate
+vāsudevaḥ sarvam iti
+sa mahātmā sudurlabhaḥ
+“After many births and deaths, he who is actually in knowledge surrenders unto Me, knowing Me to be the cause of all causes and all that is. Such a great soul is very rare.” The Supreme Personality of Godhead, Vāsudeva, is one with the Supreme Brahman, the Supreme Absolute Truth. Everything is in Him in the beginning, and at the end all manifestations enter into Him. He is situated in everyone’s heart (sarvasya cāhaṁ hṛdi sanniviṣṭaḥ). And from Him everything has emanated (janmādy asya yataḥ). All material manifestations, however, are temporary. The word svapna means “dreams,” māyā means “illusion,” and manoratha means “mental creations.” Dreams, illusions and mental creations are temporary. Similarly, all material creation is temporary, but Vāsudeva, the Supreme Personality of Godhead, is the eternal Absolute Truth.
+

@@ -1,0 +1,24 @@
+# ŚB 8.17.4
+
+**Sanskrit:**
+
+तस्या: प्रादुरभूत्तात भगवानादिपुरुष: ।
+पीतवासाश्चतुर्बाहु: शङ्खचक्रगदाधर: ॥ ४ ॥
+
+**Transliteration:**
+
+tasyāḥ prādurabhūt tāta
+bhagavān ādi-puruṣaḥ
+pīta-vāsāś catur-bāhuḥ
+śaṅkha-cakra-gadā-dharaḥ
+
+**Synonyms:**
+
+Synonyms
+tasyāḥ — before her; prādurabhūt — appeared; tāta — my dear King; bhagavān — the Supreme Personality of Godhead; ādi-puruṣaḥ — the original person; pīta-vāsāḥ — dressed in yellow garments; catuḥ-bāhuḥ — with four arms; śaṅkha-cakra-gadā-dharaḥ — bearing the conchshell, disc, club and lotus flower.
+
+**Translation:**
+
+Translation
+My dear King, the original Supreme Personality of Godhead, dressed in yellow garments and bearing a conchshell, disc, club and lotus in His four hands, then appeared before Aditi.
+

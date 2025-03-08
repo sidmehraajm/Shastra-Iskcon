@@ -1,0 +1,22 @@
+# CC Madhya 23.119
+
+**Bengali:**
+
+তবে সনাতন প্রভুর চরণে ধরিয়া ।
+নিবেদন করে দন্তে তৃণ-গুচ্ছ লঞা ॥ ১১৯ ॥
+
+**Transliteration:**
+
+tabe sanātana prabhura caraṇe dhariyā
+nivedana kare dante tṛṇa-guccha lañā
+
+**Synonyms:**
+
+Synonyms
+tabe — at that time; sanātana — Sanātana Gosvāmī; prabhura — of Śrī Caitanya Mahāprabhu; caraṇe dhariyā — catching the lotus feet; nivedana kare — submits a petition; dante — in the teeth; tṛṇa-guccha — a bunch of straw; lañā — taking.
+
+**Translation:**
+
+Translation
+Sanātana Gosvāmī then humbly accepted his position as lower than a piece of straw, and symbolically holding some straw in his mouth, he fell down, clasped the lotus feet of Śrī Caitanya Mahāprabhu and submitted the following petition.
+

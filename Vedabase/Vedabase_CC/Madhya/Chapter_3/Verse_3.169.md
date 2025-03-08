@@ -1,0 +1,22 @@
+# CC Madhya 3.169
+
+**Bengali:**
+
+শুনি’ শচী সবাকারে করিল মিনতি ।
+নিমাঞির দরশন আর মুঞি পাব কতি ॥ ১৬৯ ॥
+
+**Transliteration:**
+
+śuni’ śacī sabākāre karila minati
+nimāñira daraśana āra muñi pāba kati
+
+**Synonyms:**
+
+Synonyms
+śuni’ — hearing of this; śacī — mother Śacī; sabākāre — unto all of them; karila — made; minati — submission; nimāñira — of Nimāi, Śrī Caitanya Mahāprabhu; daraśana — visit; āra — any more; muñi — I; pāba — shall get; kati — where or how many times.
+
+**Translation:**
+
+Translation
+Hearing these proposals made by other devotees of the Lord, mother Śacī said to the devotees, “How many times shall I get the chance to see Nimāi again?”
+

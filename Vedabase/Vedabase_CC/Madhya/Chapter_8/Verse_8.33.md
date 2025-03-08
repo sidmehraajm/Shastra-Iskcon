@@ -1,0 +1,22 @@
+# CC Madhya 8.33
+
+**Bengali:**
+
+তাঁর কৃপায় পাইনু তোমার দরশন ।
+আজি সফল হৈল মোর মনুষ্যজনম ॥ ৩৩ ॥
+
+**Transliteration:**
+
+tāṅra kṛpāya pāinu tomāra daraśana
+āji saphala haila mora manuṣya-janama
+
+**Synonyms:**
+
+Synonyms
+tāṅra kṛpāya — by his mercy; pāinu — I have gotten; tomāra — Your; daraśana — interview; āji — today; sa-phala — successful; haila — has become; mora — my; manuṣya-janama — birth as a human being.
+
+**Translation:**
+
+Translation
+“By his mercy I have received Your interview here. Consequently I consider that today I have become a successful human being.
+

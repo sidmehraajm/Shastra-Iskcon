@@ -1,0 +1,24 @@
+# ŚB 6.17.26
+
+**Sanskrit:**
+
+ततस्तु भगवान् रुद्रो रुद्राणीमिदमब्रवीत् ।
+देवर्षिदैत्यसिद्धानां पार्षदानां च श‍ृण्वताम् ॥ २६ ॥
+
+**Transliteration:**
+
+tatas tu bhagavān rudro
+rudrāṇīm idam abravīt
+devarṣi-daitya-siddhānāṁ
+pārṣadānāṁ ca śṛṇvatām
+
+**Synonyms:**
+
+Synonyms
+tataḥ — thereafter; tu — then; bhagavān — the most powerful; rudraḥ — Lord Śiva; rudrāṇīm — unto his wife, Pārvatī; idam — this; abravīt — said; devarṣi — while the great sage Nārada; daitya — the demons; siddhānām — and the inhabitants of Siddhaloka, who are expert in yogic power; pārṣadānām — his personal associates; ca — also; śṛṇvatām — were listening.
+
+**Translation:**
+
+Translation
+Thereafter, in the presence of the great sage Nārada, the demons, the inhabitants of Siddhaloka, and his personal associates, Lord Śiva, who is most powerful, spoke to his wife, Pārvatī, while they all listened.
+

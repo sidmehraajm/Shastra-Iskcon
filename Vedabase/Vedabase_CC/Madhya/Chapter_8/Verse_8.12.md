@@ -1,0 +1,22 @@
+# CC Madhya 8.12
+
+**Bengali:**
+
+সেই বনে কতক্ষণ করি’ নৃত্য-গান ।
+গোদাবরী পার হঞা তাহাঁ কৈল স্নান ॥ ১২ ॥
+
+**Transliteration:**
+
+sei vane kata-kṣaṇa kari’ nṛtya-gāna
+godāvarī pāra hañā tāhāṅ kaila snāna
+
+**Synonyms:**
+
+Synonyms
+sei vane — in that forest; kata-kṣaṇa — for some time; kari’ — performing; nṛtya-gāna — dancing and chanting; godāvarī — the river; pāra hañā — crossing; tāhāṅ — there; kaila — took; snāna — bath.
+
+**Translation:**
+
+Translation
+After performing His usual chanting and dancing for some time in this forest, the Lord crossed the river and took His bath on the other bank.
+

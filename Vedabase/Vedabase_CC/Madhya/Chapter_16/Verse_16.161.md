@@ -1,0 +1,22 @@
+# CC Madhya 16.161
+
+**Bengali:**
+
+সেই কালে সে যবনের এক অনুচর ।
+‘উড়িয়া-কটকে’ আইল করি’ বেশান্তর ॥ ১৬১ ॥
+
+**Transliteration:**
+
+sei kāle se yavanera eka anucara
+‘uḍiyā-kaṭake’ āila kari’ veśāntara
+
+**Synonyms:**
+
+Synonyms
+sei kāle — at that time; se yavanera — of the Muslim governor; eka anucara — one follower; uḍiyā-kaṭake — to the camp of Orissan soldiers; āila — came; kari’ veśa-antara — changing the dress.
+
+**Translation:**
+
+Translation
+At that time, a follower of the Muslim governor arrived at the Orissa encampment dressed in disguise.
+

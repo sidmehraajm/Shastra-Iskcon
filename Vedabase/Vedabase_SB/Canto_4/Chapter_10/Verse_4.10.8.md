@@ -1,0 +1,23 @@
+# ŚB 4.10.8
+
+**Sanskrit:**
+
+स तानापततो वीर उग्रधन्वा महारथ: । एकैकं युगपत्सर्वानहन् बाणैस्त्रिभिस्त्रिभि: ॥ ८ ॥
+
+**Transliteration:**
+
+sa tān āpatato vīra
+ugra-dhanvā mahā-rathaḥ
+ekaikaṁ yugapat sarvān
+ahan bāṇais tribhis tribhiḥ
+
+**Synonyms:**
+
+Synonyms
+saḥ — Dhruva Mahārāja; tān — all of them; āpatataḥ — falling upon him; vīraḥ — hero; ugra-dhanvā — powerful bowman; mahā-rathaḥ — who could fight with many chariots; eka-ekam — one after another; yugapat — simultaneously; sarvān — all of them; ahan — killed; bāṇaiḥ — by arrows; tribhiḥ tribhiḥ — by threes.
+
+**Translation:**
+
+Translation
+Dhruva Mahārāja, who was a great charioteer and certainly a great bowman also, immediately began to kill them by simultaneously discharging arrows three at a time.
+

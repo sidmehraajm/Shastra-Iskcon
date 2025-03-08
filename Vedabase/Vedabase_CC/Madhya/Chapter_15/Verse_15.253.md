@@ -1,0 +1,22 @@
+# CC Madhya 15.253
+
+**Bengali:**
+
+দুঁহার দুঃখ দেখি’ প্রভু দুঁহা প্রবোধিয়া ।
+দুঁহার ইচ্ছাতে ভোজন কৈল তুষ্ট হঞা ॥ ২৫৩ ॥
+
+**Transliteration:**
+
+duṅhāra duḥkha dekhi’ prabhu duṅhā prabodhiyā
+duṅhāra icchāte bhojana kaila tuṣṭa hañā
+
+**Synonyms:**
+
+Synonyms
+duṅhāra duḥkha dekhi’ — seeing the lamentation of both; prabhu — Lord Śrī Caitanya Mahāprabhu; duṅhā prabodhiyā — pacifying them; duṅhāra icchāte — by the will of both of them; bhojana kaila — took His lunch; tuṣṭa hañā — with great satisfaction.
+
+**Translation:**
+
+Translation
+Seeing the lamentation of both husband and wife, Śrī Caitanya Mahāprabhu tried to pacify them. According to their desire, He ate the prasādam and was very satisfied.
+

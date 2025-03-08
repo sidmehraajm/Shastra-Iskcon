@@ -1,0 +1,30 @@
+# ŚB 8.5.17-18
+
+**Sanskrit:**
+
+निशाम्यैतत् सुरगणा महेन्द्रवरुणादय: ।
+नाध्यगच्छन्स्वयं मन्त्रैर्मन्त्रयन्तो विनिश्चितम् ॥ १७ ॥
+ततो ब्रह्मसभां जग्मुर्मेरोर्मूर्धनि सर्वश: ।
+सर्वं विज्ञापयां चक्रु: प्रणता: परमेष्ठिने ॥ १८ ॥
+
+**Transliteration:**
+
+niśāmyaitat sura-gaṇā
+mahendra-varuṇādayaḥ
+nādhyagacchan svayaṁ mantrair
+mantrayanto viniścitam
+tato brahma-sabhāṁ jagmur
+meror mūrdhani sarvaśaḥ
+sarvaṁ vijñāpayāṁ cakruḥ
+praṇatāḥ parameṣṭhine
+
+**Synonyms:**
+
+Synonyms
+niśāmya — hearing; etat — this incident; sura-gaṇāḥ — all the demigods; mahā-indra — King Indra; varuṇa-ādayaḥ — Varuṇa and other demigods; na — not; adhyagacchan — reached; svayam — personally; mantraiḥ — by deliberation; mantrayantaḥ — discussing; viniścitam — a real conclusion; tataḥ — thereupon; brahma-sabhām — to the assembly of Lord Brahmā; jagmuḥ — they went; meroḥ — of Sumeru Mountain; mūrdhani — on the top; sarvaśaḥ — all of them; sarvam — everything; vijñāpayām cakruḥ — they informed; praṇatāḥ — offered obeisances; parameṣṭhine — unto Lord Brahmā.
+
+**Translation:**
+
+Translation
+Lord Indra, Varuṇa and the other demigods, seeing their lives in such a state, consulted among themselves, but they could not find any solution. Then all the demigods assembled and went together to the peak of Sumeru Mountain. There, in the assembly of Lord Brahmā, they fell down to offer Lord Brahmā their obeisances, and then they informed him of all the incidents that had taken place.
+

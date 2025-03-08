@@ -1,0 +1,25 @@
+# ŚB 5.4.4
+
+**Sanskrit:**
+
+नाभिस्तु यथाभिलषितं सुप्रजस्त्वमवरुध्यातिप्रमोदभरविह्वलो गद्गदाक्षरया गिरा स्वैरं गृहीत नरलोकसधर्मं भगवन्तं पुराणपुरुषं मायाविलसितमतिर्वत्स तातेति सानुरागमुपलालयन् परां निर्वृतिमुपगत: ॥ ४ ॥
+
+**Transliteration:**
+
+nābhis tu yathābhilaṣitaṁ suprajastvam avarudhyāti-pramoda-bhara-vihvalo gadgadākṣarayā girā svairaṁ gṛhīta-naraloka-sadharmaṁ bhagavantaṁ purāṇa-puruṣaṁ māyā-vilasita-matir vatsa tāteti sānurāgam upalālayan parāṁ nirvṛtim upagataḥ.
+
+**Synonyms:**
+
+Synonyms
+nābhiḥ — King Nābhi; tu — certainly; yathā-abhilaṣitam — according to his desire; su-prajastvam — the most beautiful son; avarudhya — getting; ati-pramoda — of great jubilation; bhara — by an excess; vihvalaḥ — being overwhelmed; gadgada-akṣarayā — faltering in ecstasy; girā — with a voice; svairam — by His independent will; gṛhīta — accepted; nara-loka-sadharmam — acting as if a human being; bhagavantam — the Supreme Personality of Godhead; purāṇa-puruṣam — the oldest among living beings; māyā — by yoga-māyā; vilasita — bewildered; matiḥ — his mentality; vatsa — my dear son; tāta — my darling; iti — thus; sa-anurāgam — with great affection; upalālayan — raising; parām — transcendental; nirvṛtim — bliss; upagataḥ — achieved.
+
+**Translation:**
+
+Translation
+Due to getting a perfect son according to his desire, King Nābhi was always overwhelmed with transcendental bliss and was very affectionate to his son. It was with ecstasy and a faltering voice that he addressed Him, “My dear son, my darling.” This mentality was brought about by yoga-māyā, whereby he accepted the Supreme Lord, the supreme father, as his own son. Out of His supreme good will, the Lord became his son and dealt with everyone as if He were an ordinary human being. Thus King Nābhi began to raise his transcendental son with great affection, and he was overwhelmed with transcendental bliss, joy and devotion.
+
+**Purport:**
+
+Purport
+The word māyā is used in the sense of illusion. Considering the Supreme Personality of Godhead to be his own son, Mahārāja Nābhi was certainly in illusion, but this was transcendental illusion. This illusion is required; otherwise how can one accept the supreme father as his own son? The Supreme Lord appears as the son of one of His devotees, just as Lord Kṛṣṇa appeared as the son of Yaśodā and Nanda Mahārāja. These devotees could never think of their son as the Supreme Personality of Godhead, for such appreciation would hamper their relationship of parental love.
+

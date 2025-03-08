@@ -1,0 +1,22 @@
+# CC Ādi 5.159
+
+**Bengali:**
+
+বেদগুহ্য কথা এই অযোগ্য কহিতে ।
+তথাপি কহিয়ে তাঁর কৃপা প্রকাশিতে ॥ ১৫৯ ॥
+
+**Transliteration:**
+
+veda-guhya kathā ei ayogya kahite
+tathāpi kahiye tāṅra kṛpā prakāśite
+
+**Synonyms:**
+
+Synonyms
+veda — like the Vedas; kathā — incident; ei — this; ayogya kahite — not fit to disclose; tathāpi — still; kahiye — I speak; tāṅra — His; kṛpā — mercy; prakāśite — to manifest.
+
+**Translation:**
+
+Translation
+To disclose it is not proper, for it should be kept as confidential as the Vedas, yet I shall speak of it to make His mercy known to all.
+

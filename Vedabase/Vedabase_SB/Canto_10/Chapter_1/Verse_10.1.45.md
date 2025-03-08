@@ -1,0 +1,23 @@
+# ŚB 10.1.45
+
+**Sanskrit:**
+
+एषा तवानुजा बाला कृपणा पुत्रिकोपमा । हन्तुं नार्हसि कल्याणीमिमां त्वं दीनवत्सल: ॥ ४५ ॥
+
+**Transliteration:**
+
+eṣā tavānujā bālā
+kṛpaṇā putrikopamā
+hantuṁ nārhasi kalyāṇīm
+imāṁ tvaṁ dīna-vatsalaḥ
+
+**Synonyms:**
+
+Synonyms
+eṣā — this; tava — your; anujā — younger sister; bālā — innocent woman; kṛpaṇā — completely dependent on you; putrikā-upamā — exactly like your own daughter; hantum — to kill her; na — not; arhasi — you deserve; kalyāṇīm — who is under your affection; imām — her; tvam — you; dīna-vatsalaḥ — very compassionate to the poor and innocent.
+
+**Translation:**
+
+Translation
+As your younger sister, this poor girl Devakī is like your own daughter and deserves to be affectionately maintained. You are merciful, and therefore you should not kill her. Indeed, she deserves your affection.
+

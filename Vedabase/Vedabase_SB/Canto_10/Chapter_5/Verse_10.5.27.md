@@ -1,0 +1,24 @@
+# ŚB 10.5.27
+
+**Sanskrit:**
+
+भ्रातर्मम सुत: कच्चिन्मात्रा सह भवद्‌व्रजे ।
+तातं भवन्तं मन्वानो भवद्‌भ्यामुपलालित: ॥ २७ ॥
+
+**Transliteration:**
+
+bhrātar mama sutaḥ kaccin
+mātrā saha bhavad-vraje
+tātaṁ bhavantaṁ manvāno
+bhavadbhyām upalālitaḥ
+
+**Synonyms:**
+
+Synonyms
+bhrātaḥ — my dear brother; mama — my; sutaḥ — son (Baladeva, born of Rohiṇī); kaccit — whether; mātrā saha — with His mother, Rohiṇī; bhavat-vraje — in your house; tātam — as father; bhavantam — unto you; manvānaḥ — thinking; bhavadbhyām — by you and your wife, Yaśodā; upalālitaḥ — properly being raised.
+
+**Translation:**
+
+Translation
+My son Baladeva, being raised by you and your wife, Yaśodādevī, considers you His father and mother. Is He living very peacefully in your home with His real mother, Rohiṇī?
+

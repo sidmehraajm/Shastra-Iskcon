@@ -1,0 +1,24 @@
+# ŚB 4.10.17
+
+**Sanskrit:**
+
+तस्य ते चापनिर्मुक्ता भित्त्वा वर्माणि रक्षसाम् ।
+कायानाविविशुस्तिग्मा गिरीनशनयो यथा ॥ १७ ॥
+
+**Transliteration:**
+
+tasya te cāpa-nirmuktā
+bhittvā varmāṇi rakṣasām
+kāyān āviviśus tigmā
+girīn aśanayo yathā
+
+**Synonyms:**
+
+Synonyms
+tasya — of Dhruva; te — those arrows; cāpa — from the bow; nirmuktāḥ — released; bhittvā — having pierced; varmāṇi — shields; rakṣasām — of the demons; kāyān — bodies; āviviśuḥ — entered; tigmāḥ — sharp; girīn — mountains; aśanayaḥ — thunderbolts; yathā — just like.
+
+**Translation:**
+
+Translation
+The sharp arrows released from the bow of Dhruva Mahārāja pierced the shields and bodies of the enemy, like the thunderbolts released by the King of heaven, which dismantle the bodies of the mountains.
+

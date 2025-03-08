@@ -1,0 +1,26 @@
+# ŚB 8.16.1
+
+**Sanskrit:**
+
+श्रीशुक उवाच
+एवं पुत्रेषु नष्टेषु देवमातादितिस्तदा ।
+हृते त्रिविष्टपे दैत्यै: पर्यतप्यदनाथवत् ॥ १ ॥
+
+**Transliteration:**
+
+śrī-śuka uvāca
+evaṁ putreṣu naṣṭeṣu
+deva-mātāditis tadā
+hṛte tri-viṣṭape daityaiḥ
+paryatapyad anāthavat
+
+**Synonyms:**
+
+Synonyms
+śrī-śukaḥ uvāca — Śrī Śukadeva Gosvāmī said; evam — in this way; putreṣu — when her sons; naṣṭeṣu — disappearing from their position; deva-mātā — the mother of the demigods; aditiḥ — Aditi; tadā — at that time; hṛte — because of being lost; tri-viṣṭape — the kingdom of heaven; daityaiḥ — by the influence of the demons; paryatapyat — began to lament; anātha-vat — as if she had no protector.
+
+**Translation:**
+
+Translation
+Śukadeva Gosvāmī said: O King, when Aditi’s sons, the demigods, had thus disappeared from heaven and the demons had occupied their places, Aditi began lamenting, as if she had no protector.
+

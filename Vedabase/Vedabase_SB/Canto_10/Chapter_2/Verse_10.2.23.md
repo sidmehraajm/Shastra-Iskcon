@@ -1,0 +1,23 @@
+# ŚB 10.2.23
+
+**Sanskrit:**
+
+इति घोरतमाद् भावात् सन्निवृत्त: स्वयं प्रभु: । आस्ते प्रतीक्षंस्तज्जन्म हरेर्वैरानुबन्धकृत् ॥ २३ ॥
+
+**Transliteration:**
+
+iti ghoratamād bhāvāt
+sannivṛttaḥ svayaṁ prabhuḥ
+āste pratīkṣaṁs taj-janma
+harer vairānubandha-kṛt
+
+**Synonyms:**
+
+Synonyms
+iti — thus (thinking in the above-mentioned way); ghora-tamāt bhāvāt — from the most ghastly contemplation of how to kill his sister; sannivṛttaḥ — refrained; svayam — personally deliberating; prabhuḥ — one who was in full knowledge (Kaṁsa); āste — remained; pratīkṣan — awaiting the moment; tat-janma — until the birth of Him; hareḥ — of the Supreme Personality of Godhead, Hari; vaira-anubandha-kṛt — determined to continue such enmity.
+
+**Translation:**
+
+Translation
+Śukadeva Gosvāmī said: Deliberating in this way, Kaṁsa, although determined to continue in enmity toward the Supreme Personality of Godhead, refrained from the vicious killing of his sister. He decided to wait until the Lord was born and then do what was needed.
+

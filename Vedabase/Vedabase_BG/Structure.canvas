@@ -1,0 +1,20 @@
+{
+	"nodes":[
+		{"id":"c6db820da977f7e7","type":"text","text":"## Arjuna's Reasons Not to Fight","x":-355,"y":-324,"width":455,"height":64},
+		{"id":"203b3732801234c6","type":"text","text":"### BG 1.36-38 - Fear of Sinful Reaction\n\n","x":-21,"y":-5,"width":243,"height":145,"color":"1"},
+		{"id":"d0e2d3eaff1f855f","type":"text","text":"### BG 1.31-35 - Foreseeing no enjoyment in Victory","x":-476,"y":-5,"width":243,"height":145,"color":"1"},
+		{"id":"9d6cd54da79e4890","type":"text","text":"### Bg 1.28-30 -  Compassion for relatives and the resultant bodily symptoms","x":-960,"y":-105,"width":243,"height":200,"color":"1"},
+		{"id":"c3ddc432e934ab85","type":"text","text":"### BG 1.39-43- Harmful Effects of Destroying the Family\n","x":420,"y":-50,"width":243,"height":145,"color":"1"},
+		{"id":"cad1c404ffb4c204","type":"text","text":"### BG 2.4-6 - How can I fight my teachers when they are worshipable","x":860,"y":-50,"width":260,"height":190,"color":"1"},
+		{"id":"b6c4a7a4c3960c19","type":"text","text":"### BG 1-6 Karma Yoga","x":2480,"y":-1140,"width":280,"height":60,"color":"3"},
+		{"id":"53a5e07ee8e54a42","x":2860,"y":-1220,"width":580,"height":565,"color":"4","type":"file","file":"Shastra-Iskcon/Source_Folder/Study Bhakti Shastri/BG Study.md"}
+	],
+	"edges":[
+		{"id":"9bb43dd4ff56ac13","fromNode":"c6db820da977f7e7","fromSide":"bottom","toNode":"9d6cd54da79e4890","toSide":"top"},
+		{"id":"e18e4e3b870be764","fromNode":"c6db820da977f7e7","fromSide":"bottom","toNode":"d0e2d3eaff1f855f","toSide":"top"},
+		{"id":"66842f36ce99f244","fromNode":"c6db820da977f7e7","fromSide":"bottom","toNode":"203b3732801234c6","toSide":"top"},
+		{"id":"23e8e7fe58ef9a10","fromNode":"c6db820da977f7e7","fromSide":"bottom","toNode":"c3ddc432e934ab85","toSide":"top"},
+		{"id":"d94b7229f261a681","fromNode":"c6db820da977f7e7","fromSide":"bottom","toNode":"cad1c404ffb4c204","toSide":"top"},
+		{"id":"5d32015bc1f02bcb","fromNode":"b6c4a7a4c3960c19","fromSide":"right","toNode":"53a5e07ee8e54a42","toSide":"left"}
+	]
+}

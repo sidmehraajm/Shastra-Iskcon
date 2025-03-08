@@ -1,0 +1,22 @@
+# CC Madhya 14.75
+
+**Bengali:**
+
+নানোদ্যানে ভক্তসঙ্গে বৃন্দাবন-লীলা ।
+‘ইন্দ্রদ্যুম্ন’-সরোবরে করে জলখেলা ॥ ৭৫ ॥
+
+**Transliteration:**
+
+nānodyāne bhakta-saṅge vṛndāvana-līlā
+‘indradyumna’-sarovare kare jala-khelā
+
+**Synonyms:**
+
+Synonyms
+nānā-udyāne — in various gardens; bhakta-saṅge — with the devotees; vṛndāvana-līlā — pastimes of Vṛndāvana; indradyumna — Indradyumna; sarovare — in the lake; kare jala-khelā — performed sports in the water.
+
+**Translation:**
+
+Translation
+There were many gardens near the Guṇḍicā temple, and Śrī Caitanya Mahāprabhu and His devotees used to perform the pastimes of Vṛndāvana in each of them. In the lake named Indradyumna, He sported in the water.
+

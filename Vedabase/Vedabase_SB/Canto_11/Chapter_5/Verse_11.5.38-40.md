@@ -1,0 +1,104 @@
+# ŚB 11.5.38-40
+
+**Sanskrit:**
+
+कृतादिषु प्रजा राजन् कलाविच्छन्ति सम्भवम् ।
+कलौ खलु भविष्यन्ति नारायणपरायणा: ।
+क्व‍‍चित् क्व‍‍चिन्महाराज द्रविडेषु च भूरिश: ॥ ३८ ॥
+ताम्रपर्णी नदी यत्र कृतमाला पयस्विनी ।
+कावेरी च महापुण्या प्रतीची च महानदी ॥ ३९ ॥
+ये पिबन्ति जलं तासां मनुजा मनुजेश्वर ।
+प्रायो भक्ता भगवति वासुदेवेऽमलाशया: ॥ ४० ॥
+
+**Transliteration:**
+
+kṛtādiṣu prajā rājan
+kalāv icchanti sambhavam
+kalau khalu bhaviṣyanti
+nārāyaṇa-parāyaṇāḥ
+kvacit kvacin mahā-rāja
+draviḍeṣu ca bhūriśaḥ
+tāmraparṇī nadī yatra
+kṛtamālā payasvinī
+kāverī ca mahā-puṇyā
+pratīcī ca mahā-nadī
+ye pibanti jalaṁ tāsāṁ
+manujā manujeśvara
+prāyo bhaktā bhagavati
+vāsudeve ’malāśayāḥ
+
+**Synonyms:**
+
+Synonyms
+kṛta-ādiṣu — of Satya and the other earlier ages; prajāḥ — the inhabitants; rājan — O King; kalau — in Kali-yuga; icchanti — they want; sambhavam — birth; kalau — in Kali; khalu — certainly; bhaviṣyanti — there will be; nārāyaṇa-parāyaṇāḥ — devotees who dedicate their lives to the service of Lord Nārāyaṇa; kvacit kvacit — here and there; mahā-rāja — O great monarch; draviḍeṣu — in the provinces of South India; ca — but; bhūriśaḥ — especially plentifully; tāmraparṇī — named Tāmraparṇī; nadī — the river; yatra — where; kṛtamālā — Kṛtamālā; payasvinī — Payasvinī; kāverī — Kāverī; ca — and; mahā-puṇyā — extremely pious; pratīcī — named Pratīcī; ca — and; mahā-nadī — the Mahānadī; ye — those who; pibanti — drink; jalam — the water; tāsām — of these; manujāḥ — humans; manuja-īśvara — O lord of men (Nimi); prāyaḥ — for the most part; bhaktāḥ — devotees; bhagavati — of the Personality of Godhead; vāsudeve — Lord Vāsudeva; amala-āśayāḥ — having spotless hearts.
+
+**Translation:**
+
+Translation
+My dear King, the inhabitants of Satya-yuga and other ages eagerly desire to take birth in this Age of Kali, since in this age there will be many devotees of the Supreme Lord, Nārāyaṇa. These devotees will appear in various places but will be especially numerous in South India. O master of men, in the Age of Kali those persons who drink the waters of the holy rivers of Draviḍa-deśa, such as the Tāmraparṇī, Krtamālā, Payasvinī, the extremely pious Kāverī and the Pratīcī Mahānadī, will almost all be purehearted devotees of the Supreme Personality of Godhead, Vāsudeva.
+
+**Purport:**
+
+Purport
+The Vedas contain information of past, present and future living conditions throughout the universe. This is not very wonderful. For example, although at present time in India we are experiencing spring weather, we know that in the future the torrid summer will come, followed by the rainy season, autumn and eventually winter and a new spring. Similarly, we know that these seasons have occurred repeatedly in the past. Thus, just as ordinary human beings can understand the past, present and future seasons of the earth, the liberated followers of Vedic culture can easily understand the past, present and future conditions of the seasonal ages of the earth and other planets. The inhabitants of Satya-yuga are certainly aware of the conditions of Kali-yuga. They know that in Kali-yuga the difficult material situation forces the living entity to take complete shelter of the Supreme Personality of Godhead and that the inhabitants of Kali-yuga therefore develop a high degree of love of Godhead. Therefore although the inhabitants of Satya-yuga are far more sinless, truthful and self-controlled than the people of other ages, they desire to take birth in Kali-yuga in order to taste pure love of Kṛṣṇa.
+Without associating with the devotees of the Lord no one can become an advanced devotee of the Lord. Therefore, since in Kali-yuga other Vedic processes collapse due to the unfavorable condition, and since the only authorized Vedic process is the devotional chanting of the Lord’s holy name, which is available to everyone, there will undoubtedly be innumerable Vaiṣṇavas, or devotees of the Lord, in this age. Birth in this age is very favorable for one who is eager to associate with the devotees. In fact, the Kṛṣṇa consciousness movement is establishing authorized Vaiṣṇava temples throughout the world so that in innumerable areas one may avail himself of association with pure Vaiṣṇavas.
+Association with the devotees of the Lord is far more valuable than any amount of association with persons who are merely self-controlled, sinless or expert in Vedic scholarship. Therefore it is stated in Śrīmad-Bhāgavatam (6.14.5):
+muktānām api siddhānāṁ
+nārāyaṇa-parāyaṇaḥ
+su-durlabhaḥ praśāntātmā
+koṭiṣv api mahā-mune
+“O great sage, among many millions who are liberated and perfect in knowledge of liberation, one may be a devotee of Lord Nārāyaṇa, or Kṛṣṇa. Such devotees, who are fully peaceful, are extremely rare.” Similarly, it is stated in Caitanya-caritāmṛta (Madhya 22.54):
+‘sādhu-saṅga’, ‘sādhu-saṅga’ — sarva-śāstre kaya
+lava-mātra sādhu-saṅge sarva-siddhi haya
+“The verdict of all revealed scriptures is that by even a moment’s association with a pure devotee, one can attain all success.”
+According to Śrīla Jīva Gosvāmī the words kvacit kvacit in this verse indicate that in Kali-yuga Lord Śrī Kṛṣṇa Caitanya will appear in Gauḍa-deśa, in the district of Nadia. And from this pivotal point, He will gradually expand the flood of love of Godhead to cover the entire earth. Many exalted devotees such as Śrī Advaitācārya also take birth in Gauḍa-deśa.
+The process of chanting the holy name of Kṛṣṇa, kṛṣṇa-kīrtana, is not limited to Kali-yuga. In the Viṣṇu-dharma, in relation to the story of the fallen son of a kṣatriya, it is stated:
+na deśa-niyamas tatra
+na kāla-niyamas tathā
+nocchiṣṭādau niṣedhaś ca
+śrī-harer nāmni lubdhakaḥ
+“There is no restriction of place or time, nor any injunction forbidding the accepting of remnants of foods, etc., when one has become greedy to chant the name of Śrī Hari.” Similarly, it is stated in the Skanda Purāṇa, the Viṣṇu-dharma and the Vaiśākha-māhātmya section of the Padma Purāṇa, cakrāyudhasya nāmāni sadā sarvatra kīrtayet: “The names of the Supreme Lord who has the disc as His weapon should be glorified always and everywhere.” Similarly, the Skanda Purāṇa states:
+na deśa-kālāvasthātma-
+śuddhy-ādikam apekṣate
+kintu svatantram evaitaṁ
+nāma kāmita-kāma-dam
+“The name of the Lord need not be chanted with regard to place, time, circumstantial conditions, preliminary self-purification or any other factors. Rather, it is completely independent of all other processes and rewards all the desires of those who eagerly chant it.” Similarly, it is stated in the Viṣṇu-dharma:
+kalau kṛta-yugaṁ tasya
+kalis tasya kṛte yuge
+yasya cetasi govindo
+hṛdaye yasya nācyutaḥ
+“For one who has Lord Govinda in his heart, Satya-yuga becomes manifest in the midst of Kali, and conversely even Satya-yuga becomes Kali-yuga for one who does not have the infallible Lord in his heart.” The holy name of Kṛṣṇa is potent everywhere, at all times and in all circumstances; therefore one should always chant the holy names of the Lord, either in Kali-yuga, Satya-yuga, in heaven, in hell or in Vaikuṇṭha. Kṛṣṇa’s holy name is eternally nondifferent from Him, and Kṛṣṇa is eternally the Supreme Personality of Godhead. Thus, it is not that the holy name is powerful in this age only because other processes are not effective.
+It is also stated in the Śrī Viṣṇu Purāṇa that chanting the holy names of the Lord is far more potent than simply trying to remember the Lord through meditation. In Śrīmad-Bhāgavatam (2.1.11), Śukadeva Gosvāmī has stated:
+etan nirvidyamānānām
+icchatām akuto-bhayam
+yogināṁ nṛpa nirṇītaṁ
+harer nāmānukīrtanam
+“O King, constant chanting of the holy name of the Lord after the ways of the great authorities is the doubtless and fearless way of success for all, including those who are free from all material desires, those who are desirous of all material enjoyment, and also those who are self-satisfied by dint of transcendental knowledge.” In his commentary on this verse in the Bhāgavatam, Śrīla Prabhupāda has written: “According to Śrī Śukadeva Gosvāmī, this way of attaining success [chanting the holy name] is an established fact, concluded not only by him, but also by all other previous ācāryas. Therefore there is no need of further evidence.” The reader may consult Śrīla Prabhupāda’s purport to this verse for a detailed explanation of the chanting of the holy name of the Lord and the offenses to be avoided in such chanting.
+In the Vaiṣṇava-cintāmaṇi there is the following statement:
+agha-cchit smaraṇaṁ viṣṇor
+bahv-āyāsena sādhyate
+oṣṭha-spandana-mātreṇa
+kīrtanaṁ tu tato varam
+“Although capable of destroying all sins, the remembrance of Lord Viṣṇu is achieved only with extraordinary effort. On the other hand, one may perform kṛṣṇa-kīrtana simply by moving one’s lips, and thus this process is superior.” Śrīla Jīva Gosvāmī has also quoted the following verse:
+yena janma-śataiḥ pūrvaṁ
+vāsudevaḥ samārcitaḥ
+tan-mukhe hari-nāmāni
+sadā tiṣṭhanti bhārata
+“O descendant of Bharata, the holy names of Lord Viṣṇu are always vibrating in the mouth of one who has previously worshiped Vāsudeva perfectly for hundreds of lifetimes.” The same idea is conveyed in the Śrīmad-Bhāgavatam by Śrīmatī Devahūti in her statement to her son, Kapila:
+aho bata śva-paco ’to garīyān
+yaj-jihvāgre vartate nāma tubhyam
+tepus tapas te juhuvuḥ sasnur āryā
+brahmānūcur nāma gṛṇanti ye te
+“Oh, how glorious are they whose tongues are chanting Your holy name! Even if born in the families of dog-eaters, such persons are worshipable. Persons who chant the holy name of Your Lordship must have executed all kinds of austerities and fire sacrifices and achieved all the good manners of the Āryans. To be chanting the holy name of Your Lordship, they must have bathed at holy places of pilgrimage, studied the Vedas and fulfilled everything required.” (Bhāg. 3.33.7)
+Therefore, Śrīla Jīva Gosvāmī has concluded that it is possible to perform kīrtana equally in all ages. In Kali-yuga, however, the Supreme Personality of Godhead, by His causeless mercy, personally induces the living entities to take the holy name. Bhaktivinoda Ṭhākura has thus quoted the Lord as follows:
+enechi auṣadhi māyā nāśibāra lāgi’
+hari-nāma mahā-mantra lao tumi māgi’
+“O conditioned souls who are foolishly sleeping on the lap of the witch Māyā, I have brought an excellent medicine to cure the disease of your illusion. This medicine is called hari-nāma. It is My holy name, and by taking this medicine you will get all perfection in life. Therefore, I sincerely request you to please take this medicine that I have personally brought for you.”
+In verse 32 of this chapter it was stated, yajñaiḥ saṅkīrtana-prāyair yajanti hi su-medhasaḥ. According to Śrīla Jīva Gosvāmī the words saṅkīrtana-prāyaiḥ, which mean “mainly by the process of saṅkīrtana,” indicate that although other processes such as Deity worship may be performed to some extent in Kali-yuga, such processes, in order to be successful, must be favorably connected with the chanting of the holy names of the Lord. One who is performing worship of the Kṛṣṇa Deity should know that the most essential part of such Deity worship is constant chanting of the holy names of the Lord. On the other hand, one who has perfectly chanted the holy name of the Lord need not depend on other processes, as expressed in the following famous mantra:
+harer nāma harer nāma
+harer nāmaiva kevalam
+kalau nāsty eva nāsty eva
+nāsty eva gatir anyathā
+“In this Age of Kali there is no alternative, there is no alternative, there is no alternative for spiritual progress other than the holy name, the holy name, the holy name of the Lord.” (Bṛhan-nāradīya Purāṇa 38.126) As proved by all of these evidences, the statement in the Bhāgavatam (kaliṁ sabhājayanty āryāḥ) that spiritually advanced persons worship the Age of Kali due to the facilities offered in this age by the Lord is not at all contradictory.
+At the end of verse 40 in this chapter it is stated, prāyo bhaktā bhagavati vāsudeve ’malāśayāḥ: in general those who are able to regularly drink the waters of the holy rivers of South India will be pure-hearted devotees of Lord Vāsudeva. The word prāyaḥ, or “in general,” indicates that those who are offensive to the Lord’s devotees, although claiming themselves to be devotees, are not included within the list of amalāśayāḥ, or purehearted souls. Śrīla Bhaktisiddhānta Sarasvatī Ṭhākura has pointed out that one should not be bewildered by seeing the apparently poverty-stricken condition of the inhabitants of South India. Even nowadays the inhabitants of the places mentioned in this verse generally spend their days with meager eating and clothing and live as great renounced devotees of the Supreme Lord. In other words, clothes do not make the man. To live as a polished animal, dressing oneself luxuriously and gratifying the tongue with rich foodstuffs, is not the actual symptom of an advanced transcendentalist. Although the residents of South India are generally Śrī Vaiṣṇavas, or devotees in the Lakṣmī sampradāya, they are recognized as devotees of the Lord by the followers of Caitanya Mahāprabhu. According to Śrīla Bhaktisiddhānta Sarasvatī Ṭhākura, their austere living conditions should be taken as a good qualification, not a disqualification.
+

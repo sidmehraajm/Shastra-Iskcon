@@ -1,0 +1,29 @@
+# CC Madhya 9.1
+
+**Bengali:**
+
+নানামতগ্রাহগ্রস্তান্ দাক্ষিণাত্যজনদ্বিপান্ ।
+কৃপারিণা বিমুচ্যৈতান্ গৌরশ্চক্রে স বৈষ্ণবান্ ॥ ১ ॥
+
+**Transliteration:**
+
+nānā-mata-grāha-grastān
+dākṣiṇātya-jana-dvipān
+kṛpāriṇā vimucyaitān
+gauraś cakre sa vaiṣṇavān
+
+**Synonyms:**
+
+Synonyms
+nānā-mata — by various philosophies; grāha — like crocodiles; grastān — captured; dākṣiṇātya-jana — the inhabitants of South India; dvipān — like elephants; kṛpā-ariṇā — by His disc of mercy; vimucya — liberating; etān — all these; gauraḥ — Śrī Caitanya Mahāprabhu; cakre — converted; saḥ — He; vaiṣṇavān — to the Vaiṣṇava cult.
+
+**Translation:**
+
+Translation
+Lord Śrī Caitanya Mahāprabhu converted the inhabitants of South India. These people were as strong as elephants, but they were in the clutches of the crocodiles of various philosophies, such as the Buddhist, Jain and Māyāvāda philosophies. With His disc of mercy the Lord delivered them all by converting them into Vaiṣṇavas, devotees of the Lord.
+
+**Purport:**
+
+Purport
+Śrī Caitanya Mahāprabhu’s converting the people of South India into Vaiṣṇavas is compared herein to Lord Viṣṇu’s delivering Gajendra the elephant from the attack of a crocodile. When Śrī Caitanya Mahāprabhu visited southern India, almost all the residents were within the jaws of the crocodiles of Buddhist, Jain and Māyāvāda philosophy. Here Kavirāja Gosvāmī states that although these people were as strong as elephants, they were almost in the clutches of death because they were being attacked by the crocodiles of various philosophies. However, just as Śrī Caitanya Mahāprabhu in the form of Viṣṇu saved the elephant Gajendra from the clutches of a crocodile, so He saved all the people of South India from the clutches of various philosophies by converting them into Vaiṣṇavas.
+

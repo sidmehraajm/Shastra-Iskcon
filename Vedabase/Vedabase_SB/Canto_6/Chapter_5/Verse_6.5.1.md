@@ -1,0 +1,26 @@
+# ŚB 6.5.1
+
+**Sanskrit:**
+
+श्रीशुक उवाच
+तस्यां स पाञ्चजन्यां वै विष्णुमायोपबृंहित: ।
+हर्यश्वसंज्ञानयुतं पुत्रानजनयद्विभु: ॥ १ ॥
+
+**Transliteration:**
+
+śrī-śuka uvāca
+tasyāṁ sa pāñcajanyāṁ vai
+viṣṇu-māyopabṛṁhitaḥ
+haryaśva-saṁjñān ayutaṁ
+putrān ajanayad vibhuḥ
+
+**Synonyms:**
+
+Synonyms
+śrī-śukaḥ uvāca — Śrī Śukadeva Gosvāmī said; tasyām — in her; saḥ — Prajāpati Dakṣa; pāñcajanyām — his wife named Pāñcajanī; vai — indeed; viṣṇu-māyā-upabṛṁhitaḥ — being made capable by the illusory energy of Lord Viṣṇu; haryaśva-saṁjñān — named the Haryaśvas; ayutam — ten thousand; putrān — sons; ajanayat — begot; vibhuḥ — being powerful.
+
+**Translation:**
+
+Translation
+Śrīla Śukadeva Gosvāmī continued: Impelled by the illusory energy of Lord Viṣṇu, Prajāpati Dakṣa begot ten thousand sons in the womb of Pāñcajanī [Asiknī]. My dear King, these sons were called the Haryaśvas.
+

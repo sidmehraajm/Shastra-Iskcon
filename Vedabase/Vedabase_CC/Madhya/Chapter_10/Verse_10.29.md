@@ -1,0 +1,22 @@
+# CC Madhya 10.29
+
+**Bengali:**
+
+আর দিন মহাপ্রভু ভট্টাচার্যের সঙ্গে ।
+জগন্নাথ দরশন কৈল মহারঙ্গে ॥ ২৯ ॥
+
+**Transliteration:**
+
+āra dina mahāprabhu bhaṭṭācāryera saṅge
+jagannātha daraśana kaila mahā-raṅge
+
+**Synonyms:**
+
+Synonyms
+āra dina — the next day; mahāprabhu — Śrī Caitanya Mahāprabhu; bhaṭṭācāryera saṅge — with Sārvabhauma Bhaṭṭācārya; jagannātha — of Lord Jagannātha; daraśana — visiting the temple; kaila — did; mahā-raṅge — with great enthusiasm.
+
+**Translation:**
+
+Translation
+The next day Śrī Caitanya Mahāprabhu arrived and went with Sārvabhauma Bhaṭṭācārya, with great enthusiasm, to see the temple of Lord Jagannātha.
+

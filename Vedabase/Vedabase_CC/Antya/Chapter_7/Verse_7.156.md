@@ -1,0 +1,21 @@
+# CC Antya 7.156
+
+**Bengali:**
+
+tumi kene āsi’ tāṅre nā dilā olāhana?
+bhīta-prāya hañā kāṅhe karilā sahana?”
+
+**Transliteration:**
+
+tumi — you; kene — why; āsi’ — coming; tāṅre — unto Him; nā dilā — did not give; olāhana — chastisement; bhīta-prāya — as if fearful; hañā — being; kāṅhe — why; karilā sahana — did you tolerate.
+
+**Synonyms:**
+
+Synonyms
+tumi — you; kene — why; āsi’ — coming; tāṅre — unto Him; nā dilā — did not give; olāhana — chastisement; bhīta-prāya — as if fearful; hañā — being; kāṅhe — why; karilā sahana — did you tolerate.
+
+**Translation:**
+
+Translation
+“Why did you not retaliate by reproaching Him? Why did you fearfully tolerate His criticism?”
+

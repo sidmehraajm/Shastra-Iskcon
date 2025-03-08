@@ -1,0 +1,30 @@
+# ŚB 10.28.3
+
+**Sanskrit:**
+
+चुक्रुशुस्तमपश्यन्त: कृष्ण रामेति गोपका: । भगवांस्तदुपश्रुत्य पितरं वरुणाहृतम् । तदन्तिकं गतो राजन्स्वानामभयदो विभु: ॥ ३ ॥
+
+**Transliteration:**
+
+cukruśus tam apaśyantaḥ
+kṛṣṇa rāmeti gopakāḥ
+bhagavāṁs tad upaśrutya
+pitaraṁ varuṇāhṛtam
+tad-antikaṁ gato rājan
+svānām abhaya-do vibhuḥ
+
+**Synonyms:**
+
+Synonyms
+cukruśuḥ — they called out loudly; tam — him, Nanda; apaśyantaḥ — not seeing; kṛṣṇa — O Kṛṣṇa; rāma — O Rāma; iti — thus; gopakāḥ — the cowherd men; bhagavān — the Supreme Lord, Kṛṣṇa; tat — that; upaśrutya — hearing; pitaram — His father; varuṇa — by Varuṇa; āhṛtam — taken away; tat — of Varuṇa; antikam — to the presence; gataḥ — went; rājan — my dear King Parīkṣit; svānām — of His own devotees; abhaya — of fearlessness; daḥ — the giver; vibhuḥ — the almighty Lord.
+
+**Translation:**
+
+Translation
+O King, not seeing Nanda Mahārāja, the cowherd men loudly cried out, “O Kṛṣṇa! O Rāma!” Lord Kṛṣṇa heard their cries and understood that His father had been captured by Varuṇa. Therefore the almighty Lord, who makes His devotees fearless, went to the court of Varuṇadeva.
+
+**Purport:**
+
+Purport
+Viśvanātha Cakravartī Ṭhākura explains that when Nanda Mahārāja went to bathe in the river, he was accompanied by several cowherd men. When Nanda did not come out of the water, they began to cry out, and Lord Kṛṣṇa immediately came there. Understanding the situation, Śrī Kṛṣṇa entered the water and went to the court of the demigod Varuṇa, determined to free His father and the other cowherd men from fear of a mere demigod.
+

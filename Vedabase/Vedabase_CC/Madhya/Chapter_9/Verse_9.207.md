@@ -1,0 +1,22 @@
+# CC Madhya 9.207
+
+**Bengali:**
+
+শুনিঞা প্রভুর আনন্দিত হৈল মন ।
+রামদাস-বিপ্রের কথা হইল স্মরণ ॥ ২০৭ ॥
+
+**Transliteration:**
+
+śuniñā prabhura ānandita haila mana
+rāmadāsa-viprera kathā ha-ila smaraṇa
+
+**Synonyms:**
+
+Synonyms
+śuniñā — hearing; prabhura — of Śrī Caitanya Mahāprabhu; ānandita — very pleased; haila — became; mana — the mind; rāmadāsa-viprera — of the brāhmaṇa known as Rāmadāsa; kathā — words; ha-ila smaraṇa — He remembered.
+
+**Translation:**
+
+Translation
+When Śrī Caitanya Mahāprabhu heard this story, He was very pleased, and He remembered the words of Rāmadāsa Vipra.
+

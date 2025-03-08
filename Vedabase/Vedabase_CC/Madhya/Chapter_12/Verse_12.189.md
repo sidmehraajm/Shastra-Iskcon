@@ -1,0 +1,22 @@
+# CC Madhya 12.189
+
+**Bengali:**
+
+অদ্বৈত কহে, — অবধূতের সঙ্গে এক পংক্তি ।
+ভোজন করিলুঁ, না জানি হবে কোন্ গতি ॥ ১৮৯ ॥
+
+**Transliteration:**
+
+advaita kahe, — avadhūtera saṅge eka paṅkti
+bhojana kariluṅ, nā jāni habe kon gati
+
+**Synonyms:**
+
+Synonyms
+advaita kahe — Advaita Ācārya said; avadhūtera saṅge — with a mendicant; eka paṅkti — in one line; bhojana kariluṅ — I am taking My food; nā jāni — I do not know; habe — will be; kon — what; gati — destination.
+
+**Translation:**
+
+Translation
+First Advaita Ācārya said, “I am sitting in line with an unknown mendicant, and because I am eating with Him, I do not know what kind of destination is awaiting Me.
+

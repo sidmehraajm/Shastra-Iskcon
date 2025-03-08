@@ -1,0 +1,31 @@
+# ŚB 10.1.55
+
+**Sanskrit:**
+
+श्रीशुक उवाच
+स्वसुर्वधान्निववृते कंसस्तद्वाक्यसारवित् । वसुदेवोऽपि तं प्रीत: प्रशस्य
+प्राविशद् गृहम् ॥ ५५ ॥
+
+**Transliteration:**
+
+śrī-śuka uvāca
+svasur vadhān nivavṛte
+kaṁsas tad-vākya-sāra-vit
+vasudevo ’pi taṁ prītaḥ
+praśasya prāviśad gṛham
+
+**Synonyms:**
+
+Synonyms
+śrī-śukaḥ uvāca — Śrī Śukadeva Gosvāmī said; svasuḥ — of his sister (Devakī); vadhāt — from the act of killing; nivavṛte — stopped for the time being; kaṁsaḥ — Kaṁsa; tat-vākya — the words of Vasudeva; sāra-vit — knowing to be perfectly correct; vasudevaḥ — Vasudeva; api — also; tam — to him (Kaṁsa); prītaḥ — being satisfied; praśasya — pacifying more; prāviśat gṛham — entered his own house.
+
+**Translation:**
+
+Translation
+Śrīla Śukadeva Gosvāmī continued: Kaṁsa agreed to the logical arguments of Vasudeva, and, having full faith in Vasudeva’s words, he refrained from killing his sister. Vasudeva, being pleased with Kaṁsa, pacified him further and entered his own house.
+
+**Purport:**
+
+Purport
+Although Kaṁsa was a sinful demon, he believed that Vasudeva would never deviate from his word. The character of a pure devotee like Vasudeva is such that even so great a demon as Kaṁsa firmly believed in his words and was satisfied. Yasyāsti bhaktir bhagavaty akiñcanā sarvair guṇais tatra samāsate surāḥ (Bhāg. 5.18.12). All good attributes are present in a devotee, so much so that even Kaṁsa believed in Vasudeva’s words without a doubt.
+

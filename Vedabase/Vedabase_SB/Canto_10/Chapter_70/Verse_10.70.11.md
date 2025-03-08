@@ -1,0 +1,28 @@
+# ŚB 10.70.11
+
+**Sanskrit:**
+
+आत्मानं भूषयामास नरलोकविभूषणम् । वासोभिर्भूषणै: स्वीयैर्दिव्यस्रगनुलेपनै: ॥ ११ ॥
+
+**Transliteration:**
+
+ātmānaṁ bhūṣayām āsa
+nara-loka-vibhūṣaṇam
+vāsobhir bhūṣaṇaiḥ svīyair
+divya-srag-anulepanaiḥ
+
+**Synonyms:**
+
+Synonyms
+ātmānam — Himself; bhūṣayām āsa — He decorated; nara-loka — of human society; vibhūṣaṇam — the very ornament; vāsobhiḥ — with clothes; bhūṣaṇaiḥ — and jewelry; svīyaiḥ — belonging to Himself; divya — divine; srak — with flower garlands; anulepanaiḥ — and ointments.
+
+**Translation:**
+
+Translation
+He would decorate His body, the very ornament of human society, with His own special clothes and jewelry and with divine flower garlands and ointments.
+
+**Purport:**
+
+Purport
+Śrīdhara Svāmī points out that the Lord’s “own garments and ornaments” include the Lord’s well-known yellow garments, the Kaustubha gem and so on.
+

@@ -1,0 +1,20 @@
+# ŚB 5.16.27
+
+**Sanskrit:**
+
+जठरदेवकूटौ मेरुं पूर्वेणाष्टादशयोजनसहस्रमुदगायतौ द्विसहस्रं पृथुतुङ्गौ भवत: । एवमपरेण पवनपारियात्रौ दक्षिणेन कैलासकरवीरौ प्रागायतावेवमुत्तरतस्त्रिश‍ृङ्गमकरावष्टभिरेतै: परिसृतोऽग्निरिव परितश्चकास्ति काञ्चनगिरि: ॥ २७ ॥
+
+**Transliteration:**
+
+jaṭhara-devakūṭau meruṁ pūrveṇāṣṭādaśa-yojana-sahasram udagāyatau dvi-sahasraṁ pṛthu-tuṅgau bhavataḥ; evam apareṇa pavana-pāriyātrau dakṣiṇena kailāsa-karavīrau prāg-āyatāv evam uttaratas triśṛṅga-makarāv aṣṭabhir etaiḥ parisṛto ’gnir iva paritaś cakāsti kāñcana-giriḥ.
+
+**Synonyms:**
+
+Synonyms
+jaṭhara-devakūṭau — two mountains named Jaṭhara and Devakūṭa; merum — Sumeru Mountain; pūrveṇa — on the eastern side; aṣṭādaśa-yojana-sahasram — eighteen thousand yojanas; udagāyatau — stretching from north to south; dvi-sahasram — two thousand yojanas; pṛthu-tuṅgau — in width and height; bhavataḥ — there are; evam — similarly; apareṇa — on the western side; pavana-pāriyātrau — two mountains named Pavana and Pāriyātra; dakṣiṇena — on the southern side; kailāsa-karavīrau — two mountains named Kailāsa and Karavīra; prāk-āyatau — expanding east and west; evam — similarly; uttarataḥ — on the northern side; triśṛṅga-makarau — two mountains named Triśṛṅga and Makara; aṣṭabhiḥ etaiḥ — by these eight mountains; parisṛtaḥ — surrounded; agniḥ iva — like fire; paritaḥ — all over; cakāsti — brilliantly shines; kāñcana-giriḥ — the golden mountain named Sumeru, or Meru.
+
+**Translation:**
+
+Translation
+On the eastern side of Sumeru Mountain are two mountains named Jaṭhara and Devakūṭa, which extend to the north and south for 18,000 yojanas [144,000 miles]. Similarly, on the western side of Sumeru are two mountains named Pavana and Pāriyātra, which also extend north and south for the same distance. On the southern side of Sumeru are two mountains named Kailāsa and Karavīra, which extend east and west for 18,000 yojanas, and on the northern side of Sumeru, extending for the same distance east and west, are two mountains named Triśṛṅga and Makara. The width and height of all these mountains is 2,000 yojanas [16,000 miles]. Sumeru, a mountain of solid gold shining as brilliantly as fire, is surrounded by these eight mountains.
+

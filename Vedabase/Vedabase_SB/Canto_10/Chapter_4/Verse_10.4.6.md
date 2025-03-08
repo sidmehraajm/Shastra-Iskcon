@@ -1,0 +1,24 @@
+# ŚB 10.4.6
+
+**Sanskrit:**
+
+नन्वहं ते ह्यवरजा दीना हतसुता प्रभो ।
+दातुमर्हसि मन्दाया अङ्गेमां चरमां प्रजाम् ॥ ६ ॥
+
+**Transliteration:**
+
+nanv ahaṁ te hy avarajā
+dīnā hata-sutā prabho
+dātum arhasi mandāyā
+aṅgemāṁ caramāṁ prajām
+
+**Synonyms:**
+
+Synonyms
+nanu — however; aham — I am; te — your; hi — indeed; avarajā — younger sister; dīnā — very poor; hata-sutā — deprived of all children; prabho — O my lord; dātum arhasi — you deserve to give (some gift); mandāyāḥ — to me, who am so poor; aṅga — my dear brother; imām — this; caramām — last; prajām — child.
+
+**Translation:**
+
+Translation
+My lord, my brother, I am very poor, being bereft of all my children, but still I am your younger sister, and therefore it would be worthy of you to give me this last child as a gift.
+

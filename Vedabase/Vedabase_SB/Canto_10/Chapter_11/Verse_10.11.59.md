@@ -1,0 +1,29 @@
+# ŚB 10.11.59
+
+**Sanskrit:**
+
+एवं विहारै: कौमारै: कौमारं जहतुर्व्रजे ।
+निलायनै: सेतुबन्धैर्मर्कटोत्‍प्लवनादिभि: ॥ ५९ ॥
+
+**Transliteration:**
+
+evaṁ vihāraiḥ kaumāraiḥ
+kaumāraṁ jahatur vraje
+nilāyanaiḥ setu-bandhair
+markaṭotplavanādibhiḥ
+
+**Synonyms:**
+
+Synonyms
+evam — in this way; vihāraiḥ — by different pastimes; kaumāraiḥ — childish; kaumāram — the age of childhood; jahatuḥ — (Kṛṣṇa and Balarāma) passed; vraje — in Vrajabhūmi; nilāyanaiḥ — by playing hide-and-seek; setu-bandhaiḥ — by constructing an artificial bridge on the ocean; markaṭa — like the monkeys; utplavana-ādibhiḥ — by jumping here and there, etc.
+
+**Translation:**
+
+Translation
+In this way Kṛṣṇa and Balarāma passed Their childhood age in Vrajabhūmi by engaging in activities of childish play, such as playing hide-and-seek, constructing a make-believe bridge on the ocean, and jumping here and there like monkeys.
+
+**Purport:**
+
+Purport
+Thus end the Bhaktivedanta purports of the Tenth Canto, Eleventh Chapter, of the Śrīmad-Bhāgavatam, entitled “The Childhood Pastimes of Kṛṣṇa.”
+

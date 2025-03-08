@@ -1,0 +1,35 @@
+# ŚB 10.11.39-40
+
+**Sanskrit:**
+
+क्‍वचिद्वादयतो वेणुं क्षेपणै: क्षिपत: क्‍वचित् ।
+क्‍वचित्पादै: किङ्किणीभि: क्‍वचित्कृत्रिमगोवृषै: ॥ ३९ ॥
+वृषायमाणौ नर्दन्तौ युयुधाते परस्परम् ।
+अनुकृत्य रुतैर्जन्तूंश्चेरतु: प्राकृतौ यथा ॥ ४० ॥
+
+**Transliteration:**
+
+kvacid vādayato veṇuṁ
+kṣepaṇaiḥ kṣipataḥ kvacit
+kvacit pādaiḥ kiṅkiṇībhiḥ
+kvacit kṛtrima-go-vṛṣaiḥ
+vṛṣāyamāṇau nardantau
+yuyudhāte parasparam
+anukṛtya rutair jantūṁś
+ceratuḥ prākṛtau yathā
+
+**Synonyms:**
+
+Synonyms
+kvacit — sometimes; vādayataḥ — blowing; veṇum — on the flute; kṣepaṇaiḥ — with a device of rope for throwing; kṣipataḥ — throwing stones to get fruit; kvacit — sometimes; kvacit pādaiḥ — sometimes with the legs; kiṅkiṇībhiḥ — with the sound of ankle bells; kvacit — sometimes; kṛtrima-go-vṛṣaiḥ — by becoming artificial cows and bulls; vṛṣāyamāṇau — imitating the animals; nardantau — roaring loudly; yuyudhāte — They both used to fight; parasparam — with one another; anukṛtya — imitating; rutaiḥ — by resounding; jantūn — all the animals; ceratuḥ — They used to wander; prākṛtau — two ordinary human children; yathā — like.
+
+**Translation:**
+
+Translation
+Sometimes Kṛṣṇa and Balarāma would play on Their flutes, sometimes They would throw ropes and stones devised for getting fruits from the trees, sometimes They would throw only stones, and sometimes, Their ankle bells tinkling, They would play football with fruits like bael and āmalakī. Sometimes They would cover Themselves with blankets and imitate cows and bulls and fight with one another, roaring loudly, and sometimes They would imitate the voices of the animals. In this way They enjoyed sporting, exactly like two ordinary human children.
+
+**Purport:**
+
+Purport
+Vṛndāvana is full of peacocks. Kūjat-kokila-haṁsa-sārasa-gaṇākīrṇe mayūrākule. The Vṛndāvana forest is always full of cuckoos, ducks, swans, peacocks, cranes and also monkeys, bulls and cows. So Kṛṣṇa and Balarāma used to imitate the sounds of these animals and enjoy sporting.
+

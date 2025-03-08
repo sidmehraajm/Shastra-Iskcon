@@ -1,0 +1,21 @@
+# CC Antya 6.301
+
+**Bengali:**
+
+‘prabhura svahasta-datta govardhana-śilā’
+ei cinti’ raghunātha preme bhāsi’ gelā
+
+**Transliteration:**
+
+prabhura — of Śrī Caitanya Mahāprabhu; sva-hasta — own hand; datta — handed over by; govardhana-śilā — the stone from Govardhana Hill; ei cinti’ — thinking this; raghunātha — Raghunātha dāsa; preme — in ecstatic love; bhāsi’ gelā — became overflooded.
+
+**Synonyms:**
+
+Synonyms
+prabhura — of Śrī Caitanya Mahāprabhu; sva-hasta — own hand; datta — handed over by; govardhana-śilā — the stone from Govardhana Hill; ei cinti’ — thinking this; raghunātha — Raghunātha dāsa; preme — in ecstatic love; bhāsi’ gelā — became overflooded.
+
+**Translation:**
+
+Translation
+Thinking of how he had received the govardhana-śilā directly from the hands of Śrī Caitanya Mahāprabhu, Raghunātha dāsa was always overflooded with ecstatic love.
+

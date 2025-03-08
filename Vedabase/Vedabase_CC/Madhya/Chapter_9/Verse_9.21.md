@@ -1,0 +1,22 @@
+# CC Madhya 9.21
+
+**Bengali:**
+
+স্কন্দক্ষেত্র-তীর্থে কৈল স্কন্দ দরশন ।
+ত্রিমঠ আইলা, তাঁহা দেখি’ ত্রিবিক্রম ॥ ২১ ॥
+
+**Transliteration:**
+
+skanda-kṣetra-tīrthe kaila skanda daraśana
+trimaṭha āilā, tāhāṅ dekhi’ trivikrama
+
+**Synonyms:**
+
+Synonyms
+skanda-kṣetra-tīrthe — in the holy place known as Skanda-kṣetra; kaila — did; skanda daraśana — visiting Lord Skanda (Kārttikeya, son of Lord Śiva); trimaṭha — at Trimaṭha; āilā — arrived; tāhāṅ — there; dekhi’ — seeing; trivikrama — a form of Lord Viṣṇu, Trivikrama.
+
+**Translation:**
+
+Translation
+At the holy place known as Skanda-kṣetra, Lord Śrī Caitanya Mahāprabhu visited the temple of Skanda. From there He went to Trimaṭha, where He saw the Viṣṇu Deity Trivikrama.
+

@@ -1,0 +1,21 @@
+# CC Antya 1.55
+
+**Bengali:**
+
+sabāra caraṇa rūpa karilā vandana
+kṛpā kari’ rūpe sabe kailā āliṅgana
+
+**Transliteration:**
+
+sabāra — of all the devotees; caraṇa — to the lotus feet; rūpa — Śrīla Rūpa Gosvāmī; karilā vandana — offered prayers; kṛpā kari’ — showing great mercy; rūpe — Rūpa Gosvāmī; sabe — all the devotees; kailā — did; āliṅgana — embracing.
+
+**Synonyms:**
+
+Synonyms
+sabāra — of all the devotees; caraṇa — to the lotus feet; rūpa — Śrīla Rūpa Gosvāmī; karilā vandana — offered prayers; kṛpā kari’ — showing great mercy; rūpe — Rūpa Gosvāmī; sabe — all the devotees; kailā — did; āliṅgana — embracing.
+
+**Translation:**
+
+Translation
+Śrīla Rūpa Gosvāmī offered his respectful obeisances unto the lotus feet of them all, and all the devotees, by their mercy, embraced him.
+

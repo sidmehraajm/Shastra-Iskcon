@@ -1,0 +1,24 @@
+# ŚB 3.14.3
+
+**Sanskrit:**
+
+तस्य चोद्धरत: क्षौणीं स्वदंष्ट्राग्रेण लीलया ।
+दैत्यराजस्य च ब्रह्मन् कस्माद्धेतोरभून्मृध: ॥ ३ ॥
+
+**Transliteration:**
+
+tasya coddharataḥ kṣauṇīṁ
+sva-daṁṣṭrāgreṇa līlayā
+daitya-rājasya ca brahman
+kasmād dhetor abhūn mṛdhaḥ
+
+**Synonyms:**
+
+Synonyms
+tasya — His; ca — also; uddharataḥ — while lifting; kṣauṇīm — the earth planet; sva-daṁṣṭra-agreṇa — by the edge of His tusks; līlayā — in His pastimes; daitya-rājasya — of the king of demons; ca — and; brahman — O brāhmaṇa; kasmāt — from what; hetoḥ — reason; abhūt — there was; mṛdhaḥ — fight.
+
+**Translation:**
+
+Translation
+What was the reason, O brāhmaṇa, for the fight between the demon king and Lord Boar while the Lord was lifting the earth as His pastime?
+

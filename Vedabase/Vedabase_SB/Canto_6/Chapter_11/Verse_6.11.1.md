@@ -1,0 +1,26 @@
+# ŚB 6.11.1
+
+**Sanskrit:**
+
+श्रीशुक उवाच
+त एवं शंसतो धर्मं वच: पत्युरचेतस: ।
+नैवागृह्णन्त सम्भ्रान्ता: पलायनपरा नृप ॥ १ ॥
+
+**Transliteration:**
+
+śrī-śuka uvāca
+ta evaṁ śaṁsato dharmaṁ
+vacaḥ patyur acetasaḥ
+naivāgṛhṇanta sambhrāntāḥ
+palāyana-parā nṛpa
+
+**Synonyms:**
+
+Synonyms
+śrī-śukaḥ uvāca — Śrī Śukadeva Gosvāmī said; te — they; evam — thus; śaṁsataḥ — praising; dharmam — the principles of religion; vacaḥ — the words; patyuḥ — of their master; acetasaḥ — their minds being very disturbed; na — not; eva — indeed; agṛhṇanta — accepted; sambhrāntāḥ — fearful; palāyana-parāḥ — intent upon fleeing; nṛpa — O King.
+
+**Translation:**
+
+Translation
+Śrī Śukadeva Gosvāmī said: O King, Vṛtrāsura, the commander in chief of the demons, advised his lieutenants in the principles of religion, but the cowardly demoniac commanders, intent upon fleeing the battlefield, were so disturbed by fear that they could not accept his words.
+

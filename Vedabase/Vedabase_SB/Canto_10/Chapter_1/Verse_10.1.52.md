@@ -1,0 +1,23 @@
+# ŚB 10.1.52
+
+**Sanskrit:**
+
+एवं विमृश्य तं पापं यावदात्मनिदर्शनम् । पूजयामास वै शौरिर्बहुमानपुर:सरम् ॥ ५२ ॥
+
+**Transliteration:**
+
+evaṁ vimṛśya taṁ pāpaṁ
+yāvad-ātmani-darśanam
+pūjayām āsa vai śaurir
+bahu-māna-puraḥsaram
+
+**Synonyms:**
+
+Synonyms
+evam — in this way; vimṛśya — after contemplating; tam — unto Kaṁsa; pāpam — the most sinful; yāvat — as far as possible; ātmani-darśanam — with all the intelligence possible within himself; pūjayām āsa — praised; vai — indeed; śauriḥ — Vasudeva; bahu-māna — offering all respect; puraḥsaram — before him.
+
+**Translation:**
+
+Translation
+After thus considering the matter as far as his knowledge would allow, Vasudeva submitted his proposal to the sinful Kaṁsa with great respect.
+

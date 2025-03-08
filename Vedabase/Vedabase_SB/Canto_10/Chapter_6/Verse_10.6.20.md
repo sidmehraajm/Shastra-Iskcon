@@ -1,0 +1,24 @@
+# ŚB 10.6.20
+
+**Sanskrit:**
+
+गोमूत्रेण स्‍नापयित्वा पुनर्गोरजसार्भकम् ।
+रक्षां चक्रुश्च शकृता द्वादशाङ्गेषु नामभि: ॥ २० ॥
+
+**Transliteration:**
+
+go-mūtreṇa snāpayitvā
+punar go-rajasārbhakam
+rakṣāṁ cakruś ca śakṛtā
+dvādaśāṅgeṣu nāmabhiḥ
+
+**Synonyms:**
+
+Synonyms
+go-mūtreṇa — with the urine of the cows; snāpayitvā — after thoroughly washing; punaḥ — again; go-rajasā — with the dust floating because of the movements of the cows; arbhakam — unto the child; rakṣām — protection; cakruḥ — executed; ca — also; śakṛtā — with the cow dung; dvādaśa-aṅgeṣu — in twelve places (dvādaśa-tilaka); nāmabhīḥ — by imprinting the holy names of the Lord.
+
+**Translation:**
+
+Translation
+The child was thoroughly washed with cow urine and then smeared with the dust raised by the movements of the cows. Then different names of the Lord were applied with cow dung on twelve different parts of His body, beginning with the forehead, as done in applying tilaka. In this way, the child was given protection.
+

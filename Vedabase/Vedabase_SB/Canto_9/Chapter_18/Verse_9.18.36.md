@@ -1,0 +1,24 @@
+# ŚB 9.18.36
+
+**Sanskrit:**
+
+शुक्रस्तमाह कुपित: स्त्रीकामानृतपूरुष ।
+त्वां जरा विशतां मन्द विरूपकरणी नृणाम् ॥ ३६ ॥
+
+**Transliteration:**
+
+śukras tam āha kupitaḥ
+strī-kāmānṛta-pūruṣa
+tvāṁ jarā viśatāṁ manda
+virūpa-karaṇī nṛṇām
+
+**Synonyms:**
+
+Synonyms
+śukraḥ — Śukrācārya; tam — unto him (King Yayāti); āha — said; kupitaḥ — being very angry at him; strī-kāma — O you who have lusty desires for women; anṛta-pūruṣa — O untruthful person; tvām — unto you; jarā — old age, invalidity; viśatām — may enter; manda — you fool; virūpa-karaṇī — which disfigures; nṛṇām — the bodies of human beings.
+
+**Translation:**
+
+Translation
+Śukrācārya was extremely angry. “You untruthful fool, lusting after women! You have done a great wrong,” he said. “I therefore curse you to be attacked and disfigured by old age and invalidity.”
+

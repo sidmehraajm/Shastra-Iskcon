@@ -1,0 +1,36 @@
+# ŚB 10.6.15-17
+
+**Sanskrit:**
+
+ईषामात्रोग्रदंष्ट्रास्यं गिरिकन्दरनासिकम् ।
+गण्डशैलस्तनं रौद्रं प्रकीर्णारुणमूर्धजम् ॥ १५ ॥
+अन्धकूपगभीराक्षं पुलिनारोहभीषणम् ।
+बद्धसेतुभुजोर्वङ्‍‍घ्रि शून्यतोयह्रदोदरम् ॥ १६ ॥
+सन्तत्रसु: स्म तद्वीक्ष्य गोपा गोप्य: कलेवरम् ।
+पूर्वं तु तन्नि:स्वनितभिन्नहृत्कर्णमस्तका: ॥ १७ ॥
+
+**Transliteration:**
+
+īṣā-mātrogra-daṁṣṭrāsyaṁ
+giri-kandara-nāsikam
+gaṇḍa-śaila-stanaṁ raudraṁ
+prakīrṇāruṇa-mūrdhajam
+andha-kūpa-gabhīrākṣaṁ
+pulināroha-bhīṣaṇam
+baddha-setu-bhujorv-aṅghri
+śūnya-toya-hradodaram
+santatrasuḥ sma tad vīkṣya
+gopā gopyaḥ kalevaram
+pūrvaṁ tu tan-niḥsvanita-
+bhinna-hṛt-karṇa-mastakāḥ
+
+**Synonyms:**
+
+Synonyms
+īṣā-mātra — like the front of a plow; ugra — fierce; daṁṣṭra — the teeth; āsyam — having a mouth in which; giri-kandara — like mountain caves; nāsikam — the nostrils of whom; gaṇḍa-śaila — like big slabs of stone; stanam — the breasts of whom; raudram — very fierce; prakīrṇa — scattered; aruṇa-mūrdha-jam — whose hair was the color of copper; andha-kūpa — like blind wells; gabhīra — deep; akṣam — eye sockets; pulina-āroha-bhīṣaṇam — whose thighs were fearful like the banks of a river; baddha-setu-bhuja-uru-aṅghri — whose arms, thighs and feet were strongly built bridges; śūnya-toya-hrada-udaram — whose abdomen was like a lake without water; santatrasuḥ sma — became frightened; tat — that; vīkṣya — seeing; gopāḥ — the cowherd men; gopyaḥ — and the cowherd women; kalevaram — such a gigantic body; pūrvam tu — before that; tat-niḥsvanita — because of her loud vibration; bhinna — were shocked; hṛt — whose hearts; karṇa — ears; mastakāḥ — and heads.
+
+**Translation:**
+
+Translation
+The Rākṣasī’s mouth was full of teeth, each resembling the front of a plow, her nostrils were deep like mountain caves, and her breasts resembled big slabs of stone fallen from a hill. Her scattered hair was the color of copper. The sockets of her eyes appeared like deep blind wells, her fearful thighs resembled the banks of a river, her arms, legs and feet seemed like big bridges, and her abdomen appeared like a dried-up lake. The hearts, ears and heads of the cowherd men and women were already shocked by the Rākṣasī’s screaming, and when they saw the fierce wonder of her body, they were even more frightened.
+

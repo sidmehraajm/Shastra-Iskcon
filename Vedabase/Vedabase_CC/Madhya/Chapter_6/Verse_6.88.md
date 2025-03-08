@@ -1,0 +1,22 @@
+# CC Madhya 6.88
+
+**Bengali:**
+
+সার্বভৌম কহে, — আচার্য, কহ সাবধানে ।
+তোমাতে ঈশ্বর-কৃপা ইথে কি প্রমাণে ॥ ৮৮ ॥
+
+**Transliteration:**
+
+sārvabhauma kahe, — ācārya, kaha sāvadhāne
+tomāte īśvara-kṛpā ithe ki pramāṇe
+
+**Synonyms:**
+
+Synonyms
+sārvabhauma kahe — Sārvabhauma Bhaṭṭācārya says; ācārya — my dear Gopīnātha Ācārya; kaha — kindly speak; sāvadhāne — very carefully; tomāte — unto you; īśvara-kṛpā — mercy of the Lord; ithe — in this matter; ki pramāṇe — by what evidence.
+
+**Translation:**
+
+Translation
+Sārvabhauma Bhaṭṭācārya replied, “My dear Gopīnātha Ācārya, please speak with great care. What is the proof that you have received the mercy of the Lord?”
+

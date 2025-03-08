@@ -1,0 +1,29 @@
+# ŚB 10.11.55
+
+**Sanskrit:**
+
+अहो बतास्य बालस्य बहवो मृत्यवोऽभवन् ।
+अप्यासीद् विप्रियं तेषां कृतं पूर्वं यतो भयम् ॥ ५५ ॥
+
+**Transliteration:**
+
+aho batāsya bālasya
+bahavo mṛtyavo ’bhavan
+apy āsīd vipriyaṁ teṣāṁ
+kṛtaṁ pūrvaṁ yato bhayam
+
+**Synonyms:**
+
+Synonyms
+aho bata — it is very astonishing; asya — of this; bālasya — Kṛṣṇa; bahavaḥ — many, many; mṛtyavaḥ — causes of death; abhavan — appeared; api — still; āsīt — there was; vipriyam — the cause of death; teṣām — of them; kṛtam — done; pūrvam — formerly; yataḥ — from which; bhayam — there was fear of death.
+
+**Translation:**
+
+Translation
+The cowherd men, headed by Nanda Mahārāja, began to contemplate: It is very astonishing that although this boy Kṛṣṇa has many times faced many varied causes of death, by the grace of the Supreme Personality of Godhead it was these causes of fear that were killed, instead of Him.
+
+**Purport:**
+
+Purport
+The cowherd men innocently thought, “Because our Kṛṣṇa is innocent, the causes of death that appeared before Him were themselves killed instead of Kṛṣṇa. This is the greatest grace of the Supreme Personality of Godhead.”
+

@@ -1,0 +1,31 @@
+# ŚB 10.13.1
+
+**Sanskrit:**
+
+श्रीशुक उवाच
+साधु पृष्टं महाभाग त्वया भागवतोत्तम ।
+यन्नूतनयसीशस्य श‍ृण्वन्नपि कथां मुहु: ॥ १ ॥
+
+**Transliteration:**
+
+śrī-śuka uvāca
+sādhu pṛṣṭaṁ mahā-bhāga
+tvayā bhāgavatottama
+yan nūtanayasīśasya
+śṛṇvann api kathāṁ muhuḥ
+
+**Synonyms:**
+
+Synonyms
+śrī-śukaḥ uvāca — Śukadeva Gosvāmī said; sādhu pṛṣṭam — I have been very much honored by your inquiry; mahā-bhāga — you are a greatly fortunate personality; tvayā — by you; bhāgavata-uttama — O best of devotees; yat — because; nūtanayasi — you are making newer and newer; īśasya — of the Supreme Personality of Godhead; śṛṇvan api — although you are continuously hearing; kathām — the pastimes; muhuḥ — again and again.
+
+**Translation:**
+
+Translation
+Śrīla Śukadeva Gosvāmī said: O best of devotees, most fortunate Parīkṣit, you have inquired very nicely, for although constantly hearing the pastimes of the Lord, you are perceiving His activities to be newer and newer.
+
+**Purport:**
+
+Purport
+Unless one is very advanced in Kṛṣṇa consciousness, one cannot stick to hearing the pastimes of the Lord constantly. Nityaṁ nava-navāya-mānam: even though advanced devotees hear continually about the Lord for years, they still feel that these topics are coming to them as newer and fresher. Therefore such devotees cannot give up hearing of the pastimes of Lord Kṛṣṇa. Premāñjana-cchurita-bhakti-vilocanena santaḥ sadaiva hṛdayeṣu vilokayanti. The word santaḥ is used to refer to persons who have developed love for Kṛṣṇa. Yaṁ śyāmasundaram acintya-guṇa-svarūpaṁ govindam ādi-puruṣaṁ tam ahaṁ bhajāmi (Brahma-saṁhitā 5.38). Parīkṣit Mahārāja, therefore, is addressed as bhāgavatottama, the best of devotees, because unless one is very much elevated in devotional service, one cannot feel ecstasy from hearing more and more and appreciate the topics as ever fresher and newer.
+

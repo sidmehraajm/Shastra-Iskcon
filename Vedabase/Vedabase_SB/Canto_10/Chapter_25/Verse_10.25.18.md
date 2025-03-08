@@ -1,0 +1,28 @@
+# ŚB 10.25.18
+
+**Sanskrit:**
+
+तस्मान्मच्छरणं गोष्ठं मन्नाथं मत्परिग्रहम् । गोपाये स्वात्मयोगेन सोऽयं मे व्रत आहित: ॥ १८ ॥
+
+**Transliteration:**
+
+tasmān mac-charaṇaṁ goṣṭhaṁ
+man-nāthaṁ mat-parigraham
+gopāye svātma-yogena
+so ’yaṁ me vrata āhitaḥ
+
+**Synonyms:**
+
+Synonyms
+tasmāt — therefore; mat-śaraṇam — having taken shelter of Me; goṣṭham — the cowherd community; mat-nātham — who have Me as their master; mat-parigraham — My own family; gopāye — I shall protect; sva-ātma-yogena — by My personal mystic power; saḥ ayam — this; me — by Me; vrataḥ — vow; āhitaḥ — has been taken.
+
+**Translation:**
+
+Translation
+I must therefore protect the cowherd community by My transcendental potency, for I am their shelter, I am their master, and indeed they are My own family. After all, I have taken a vow to protect My devotees.
+
+**Purport:**
+
+Purport
+The word mac-charaṇam indicates not only that Lord Kṛṣṇa was the sole shelter for the vraja-jana, the people of Vṛndāvana, but also that Lord Kṛṣṇa had established His home among them. Śrīla Viśvanātha Cakravartī Ṭhākura quotes from the Anekārtha-varga dictionary, śaraṇaṁ gṛha-rakṣitroḥ: “The word śaraṇam can represent either home or protector.” The residents of Vṛndāvana adopted Kṛṣṇa as their beloved child, friend, lover and life itself, and the Lord reciprocated their feelings. Thus Śrī Kṛṣṇa lived among these fortunate people, moving in their houses and fields; naturally He would protect such intimate devotees from all types of danger.
+

@@ -1,0 +1,22 @@
+# CC Madhya 9.325
+
+**Bengali:**
+
+রায়ের আনন্দ হৈল পুস্তক পাইয়া ।
+প্রভু-সহ আস্বাদিল, রাখিল লিখিয়া ॥ ৩২৫ ॥
+
+**Transliteration:**
+
+rāyera ānanda haila pustaka pāiyā
+prabhu-saha āsvādila, rākhila likhiyā
+
+**Synonyms:**
+
+Synonyms
+rāyera — of Rāya Rāmānanda; ānanda — happiness; haila — there was; pustaka pāiyā — getting those two books; prabhu-saha — with the Lord; āsvādila — tasted; rākhila — kept; likhiyā — writing.
+
+**Translation:**
+
+Translation
+Rāmānanda Rāya was very happy to receive these books. He tasted their contents along with the Lord and made a copy of each.
+

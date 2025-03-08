@@ -1,0 +1,29 @@
+# ŚB 8.6.25
+
+**Sanskrit:**
+
+न भेतव्यं कालकूटाद् विषाज्जलधिसम्भवात् ।
+लोभ: कार्यो न वो जातु रोष: कामस्तु वस्तुषु ॥ २५ ॥
+
+**Transliteration:**
+
+na bhetavyaṁ kālakūṭād
+viṣāj jaladhi-sambhavāt
+lobhaḥ kāryo na vo jātu
+roṣaḥ kāmas tu vastuṣu
+
+**Synonyms:**
+
+Synonyms
+na — not; bhetavyam — should be afraid; kālakūṭāt — of kālakūṭa; viṣāt — from the poison; jaladhi — from the Ocean of Milk; sambhavāt — which will appear; lobhaḥ — greed; kāryaḥ — execution; na — not; vaḥ — unto you; jātu — at any time; roṣaḥ — anger; kāmaḥ — lust; tu — and; vastuṣu — in the products.
+
+**Translation:**
+
+Translation
+A poison known as kālakūṭa will be generated from the Ocean of Milk, but you should not fear it. And when various products are churned from the ocean, you should not be greedy for them or anxious to obtain them, nor should you be angry.
+
+**Purport:**
+
+Purport
+It appears that by the churning process many things would be generated from the Ocean of Milk, including poison, valuable gems, nectar and many beautiful women. The demigods were advised, however, not to be greedy for the gems or beautiful women, but to wait patiently for the nectar. The real purpose was to get the nectar.
+

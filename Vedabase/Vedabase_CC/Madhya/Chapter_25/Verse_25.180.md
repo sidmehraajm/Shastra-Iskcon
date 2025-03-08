@@ -1,0 +1,22 @@
+# CC Madhya 25.180
+
+**Bengali:**
+
+সবে চাহে প্রভু-সঙ্গে নীলাচল যাইতে ।
+সবারে বিদায় দিলা প্রভু যত্ন-সহিতে ॥ ১৮০ ॥
+
+**Transliteration:**
+
+sabe cāhe prabhu-saṅge nīlācala yāite
+sabāre vidāya dilā prabhu yatna-sahite
+
+**Synonyms:**
+
+Synonyms
+sabe cāhe — every one of them wanted; prabhu-saṅge — with Śrī Caitanya Mahāprabhu; nīlācala yāite — to go to Jagannātha Purī; sabāre — to all of them; vidāya dilā — bade farewell; prabhu — Śrī Caitanya Mahāprabhu; yatna-sahite — with great attention.
+
+**Translation:**
+
+Translation
+These five wanted to accompany Śrī Caitanya Mahāprabhu to Jagannātha Purī, but the Lord attentively bade them farewell.
+

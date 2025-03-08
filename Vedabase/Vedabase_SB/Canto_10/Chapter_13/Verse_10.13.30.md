@@ -1,0 +1,31 @@
+# ŚB 10.13.30
+
+**Sanskrit:**
+
+द‍ृष्ट्वाथ तत्स्‍नेहवशोऽस्मृतात्मा
+स गोव्रजोऽत्यात्मपदुर्गमार्ग: ।
+द्विपात्ककुद्ग्रीव उदास्यपुच्छो-
+ऽगाद्धुङ्कृतैरास्रुपया जवेन ॥ ३० ॥
+
+**Transliteration:**
+
+dṛṣṭvātha tat-sneha-vaśo ’smṛtātmā
+sa go-vrajo ’tyātmapa-durga-mārgaḥ
+dvi-pāt kakud-grīva udāsya-puccho
+’gād dhuṅkṛtair āsru-payā javena
+
+**Synonyms:**
+
+Synonyms
+dṛṣṭvā — when the cows saw their calves below; atha — thereafter; tat-sneha-vaśaḥ — because of increased love for the calves; asmṛta-ātmā — as if they had forgotten themselves; saḥ — that; go-vrajaḥ — herd of cows; ati-ātma-pa-durga-mārgaḥ — escaping their caretakers because of increased affection for the calves, although the way was very rough and hard; dvi-pāt — pairs of legs together; kakut-grīvaḥ — their humps moving with their necks; udāsya-pucchaḥ — raising their heads and tails; agāt — came; huṅkṛtaiḥ — lowing very loudly; āsru-payāḥ — with milk flowing from the nipples; javena — very forcibly.
+
+**Translation:**
+
+Translation
+When the cows saw their own calves from the top of Govardhana Hill, they forgot themselves and their caretakers because of increased affection, and although the path was very rough, they ran toward their calves with great anxiety, each running as if with one pair of legs. Their milk bags full and flowing with milk, their heads and tails raised, and their humps moving with their necks, they ran forcefully until they reached their calves to feed them.
+
+**Purport:**
+
+Purport
+Generally the calves and cows are pastured separately. The elderly men take care of the cows, and the small children see to the calves. This time, however, the cows immediately forgot their position as soon as they saw the calves below Govardhana Hill, and they ran with great force, their tails erect and their front and hind legs joined, until they reached their calves.
+

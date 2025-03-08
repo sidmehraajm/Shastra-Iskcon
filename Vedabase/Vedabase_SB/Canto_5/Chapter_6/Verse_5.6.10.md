@@ -1,0 +1,25 @@
+# ŚB 5.6.10
+
+**Sanskrit:**
+
+येन ह वाव कलौ मनुजापसदा देवमायामोहिता: स्वविधिनियोगशौचचारित्रविहीना देवहेलनान्यपव्रतानि निजनिजेच्छया गृह्णाना अस्‍नानानाचमनाशौचकेशोल्लुञ्चनादीनि कलिनाधर्मबहुलेनोपहतधियो ब्रह्मब्राह्मणयज्ञपुरुषलोकविदूषका: प्रायेण भविष्यन्ति ॥ १० ॥
+
+**Transliteration:**
+
+yena ha vāva kalau manujāpasadā deva-māyā-mohitāḥ sva-vidhi-niyoga-śauca-cāritra-vihīnā deva-helanāny apavratāni nija-nijecchayā gṛhṇānā asnānānācamanāśauca-keśolluñcanādīni kalinādharma-bahulenopahata-dhiyo brahma-brāhmaṇa-yajña-puruṣa-loka-vidūṣakāḥ prāyeṇa bhaviṣyanti.
+
+**Synonyms:**
+
+Synonyms
+yena — by which pseudo religious system; ha vāva — certainly; kalau — in this Age of Kali; manuja-apasadāḥ — the most condemned men; deva-māyā-mohitāḥ — bewildered by the external energy, or illusory energy, of the Supreme Personality of Godhead; sva-vidhi-niyoga-śauca-cāritra-vihīnāḥ — without character, cleanliness, and the rules and regulations given according to one’s own duty in life; deva-helanāni — negligent of the Supreme Personality of Godhead; apavratāni — impious vows; nija-nija-icchayā — by their own desires; gṛhṇānāḥ — accepting; asnāna-anācamana-aśauca-keśa-ulluñcana-ādīni — concocted religious principles such as no bathing, no washing of the mouth, being unclean and plucking out the hair; kalinā — by the Age of Kali; adharma-bahulena — with an abundance of irreligion; upahata-dhiyaḥ — whose pure consciousness is destroyed; brahma-brāhmaṇa-yajña-puruṣa-loka-vidūṣakāḥ — blasphemous toward the Vedas, the strict brāhmaṇas, ritualistic ceremonies such as sacrifice, and toward the Supreme Personality of Godhead and the devotees; prāyeṇa — almost entirely; bhaviṣyanti — will become.
+
+**Translation:**
+
+Translation
+People who are lowest among men and bewildered by the illusory energy of the Supreme Lord will give up the original varṇāśrama-dharma and its rules and regulations. They will abandon bathing three times daily and worshiping the Lord. Abandoning cleanliness and neglecting the Supreme Lord, they will accept nonsensical principles. Not regularly bathing or washing their mouths regularly, they will always remain unclean, and they will pluck out their hair. Following a concocted religion, they will flourish. During this Age of Kali, people are more inclined to irreligious systems. Consequently these people will naturally deride Vedic authority, the followers of Vedic authority, the brāhmaṇas, the Supreme Personality of Godhead and the devotees.
+
+**Purport:**
+
+Purport
+Presently the hippies in the Western countries fit this description. They are irresponsible and unregulated. They do not bathe, and they deride standard Vedic knowledge. They concoct new lifestyles and religions. There are many hippie groups at the present moment, but they all originated from King Arhat, who imitated the activities of Lord Ṛṣabhadeva, who was situated on the paramahaṁsa stage. King Arhat did not care for the fact that although Lord Ṛṣabhadeva acted like a madman His stool and urine were nonetheless aromatic, so much so that they nicely scented the countryside for miles around. The followers of King Arhat went under the name Jains, and they were later followed by many others, particularly by the hippies, who are more or less offshoots of Māyāvāda philosophy because they think themselves the Supreme Personality of Godhead. Such people do not respect the real followers of Vedic principles, the ideal brāhmaṇas. Nor do they have respect for the Supreme Personality of Godhead, the Supreme Brahman. Due to the influence of this Age of Kali, they are apt to concoct false religious systems.
+

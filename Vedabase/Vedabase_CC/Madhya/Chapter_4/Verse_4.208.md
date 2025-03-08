@@ -1,0 +1,22 @@
+# CC Madhya 4.208
+
+**Bengali:**
+
+গোপীনাথ-রূপে যদি করিয়াছেন ভোজন ।
+ভক্তি দেখাইতে কৈল প্রসাদ ভক্ষণ ॥ ২০৮ ॥
+
+**Transliteration:**
+
+gopīnātha-rūpe yadi kariyāchena bhojana
+bhakti dekhāite kaila prasāda bhakṣaṇa
+
+**Synonyms:**
+
+Synonyms
+gopīnātha-rūpe — in His arcā incarnation as Gopīnātha; yadi — although; kariyāchena — has done; bhojana — eating; bhakti — devotional service; dekhāite — to exhibit; kaila — did; prasāda bhakṣaṇa — eating.
+
+**Translation:**
+
+Translation
+Being identical with the Gopīnātha Deity, Śrī Caitanya Mahāprabhu had already tasted and eaten the pots of sweet rice. Yet just to manifest devotional service, He again ate the pots of sweet rice as a devotee.
+

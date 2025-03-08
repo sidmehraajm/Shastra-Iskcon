@@ -1,0 +1,22 @@
+# CC Ādi 4.212
+
+**Bengali:**
+
+গোপিকা জানেন কৃষ্ণের মনের বাঞ্ছিত ।
+প্রেমসেবা–পরিপাটী, ইষ্ট–সমীহিত ॥ ২১২ ॥
+
+**Transliteration:**
+
+gopikā jānena kṛṣṇera manera vāñchita
+prema-sevā-paripāṭī, iṣṭa-samīhita
+
+**Synonyms:**
+
+Synonyms
+gopikā — the gopīs; kṛṣṇera — of Lord Kṛṣṇa; manera — of the mind; vāñchita — the desired object; prema-sevā — of service in love; paripāṭī — perfection; iṣṭa-samīhita — achievement of the desired goal of life.
+
+**Translation:**
+
+Translation
+The gopīs know Kṛṣṇa’s desires, and they know how to render perfect loving service for His enjoyment. They perform their service expertly for the satisfaction of their beloved.
+

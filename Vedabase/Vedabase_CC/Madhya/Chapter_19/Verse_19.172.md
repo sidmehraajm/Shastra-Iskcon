@@ -1,0 +1,24 @@
+# CC Madhya 19.172
+
+**Bengali:**
+
+লক্ষণং ভক্তিযোগস্য নির্গুণস্য হ্যুদাহৃতম্ ।
+অহৈতুক্যব্যবহিতা যা ভক্তিঃ পুরুষোত্তমে ॥ ১৭২ ॥
+
+**Transliteration:**
+
+lakṣaṇaṁ bhakti-yogasya
+nirguṇasya hy udāhṛtam
+ahaituky avyavahitā
+yā bhaktiḥ puruṣottame
+
+**Synonyms:**
+
+Synonyms
+lakṣaṇam — the symptom; bhakti-yogasya — of devotional service; nirguṇasya — beyond the three modes of nature; hi — certainly; udāhṛtam — is cited; ahaitukī — causeless; avyavahitā — uninterrupted; yā — which; bhaktiḥ — devotional service; puruṣa-uttame — to the Supreme Personality of Godhead.
+
+**Translation:**
+
+Translation
+“ ‘These are the characteristics of transcendental loving service to Puruṣottama, the Supreme Personality of Godhead: it is causeless, and it cannot be obstructed in any way.
+

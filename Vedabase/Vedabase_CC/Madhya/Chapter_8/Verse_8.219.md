@@ -1,0 +1,31 @@
+# CC Madhya 8.219
+
+**Bengali:**
+
+যত্তে সুজাতচরণাম্বুরুহং স্তনেষু
+ভীতাঃ শনৈঃ প্রিয় দধীমহি কর্কশেষু ।
+তেনাটবীমটসি তদ্ব্যথতে ন কিংস্বিৎ
+কূর্পাদিভির্ভ্রমতি ধীর্ভবদায়ুষাং নঃ ॥ ২১৯ ॥
+
+**Transliteration:**
+
+yat te sujāta-caraṇāmburuhaṁ staneṣu
+bhītāḥ śanaiḥ priya dadhīmahi karkaśeṣu
+tenāṭavīm aṭasi tad vyathate na kiṁ svit
+kūrpādibhir bhramati dhīr bhavad-āyuṣāṁ naḥ
+
+**Synonyms:**
+
+Synonyms
+yat — because; te — Your; sujāta — delicate; caraṇa-ambu-ruham — lotus feet; staneṣu — on the breasts; bhītāḥ — being afraid of; śanaiḥ — very carefully; priya — O dear one; dadhīmahi — we place; karkaśeṣu — very rough and hard; tena — by such lotus feet; aṭavīm — the forest; aṭasi — You wander; tat vyathate — that are pained; na — not; kim svit — whether; kūrpa-ādibhiḥ — by the small particles of stone; bhramati — bewilders; dhīḥ — intelligence; bhavat-āyuṣām — of persons who consider You as the duration of life; naḥ — of us.
+
+**Translation:**
+
+Translation
+“[All the gopīs said:] ‘Dear Kṛṣṇa, we carefully hold Your delicate lotus feet upon our hard breasts. When You walk in the forest, Your soft lotus feet are pricked by small bits of stone. We fear that this is paining You. Since You are our life and soul, our minds are very much disturbed when Your lotus feet are pained.’
+
+**Purport:**
+
+Purport
+This is a quotation from Śrīmad-Bhāgavatam (10.31.19).
+

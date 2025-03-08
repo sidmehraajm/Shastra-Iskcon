@@ -1,0 +1,31 @@
+# CC Madhya 2.63
+
+**Bengali:**
+
+নানা-ভাবের প্রাবল্য,     হৈল্য সন্ধি-শাবল্য,
+ভাবে-ভাবে হৈল মহারণ ।
+ঔৎসুক্য, চাপল্য, দৈন্য,     রোষামর্ষ আদি সৈন্য,
+প্রেমোন্মাদ — সবার কারণ ॥ ৬৩ ॥
+
+**Transliteration:**
+
+nānā-bhāvera prābalya, haila sandhi-śābalya,
+bhāve-bhāve haila mahā-raṇa
+autsukya, cāpalya, dainya, roṣāmarṣa ādi sainya,
+premonmāda — sabāra kāraṇa
+
+**Synonyms:**
+
+Synonyms
+nānā — various; bhāvera — of ecstasies; prābalya — the force; haila — there was; sandhi — meeting; śābalya — contradiction; bhāve-bhāve — between ecstasies; haila — there was; mahā-raṇa — a great fight; autsukya — eagerness; cāpalya — impotence; dainya — humility; roṣa-amarṣa — anger and impatience; ādi — all these; sainya — soldiers; prema-unmāda — madness in love; sabāra — of all; kāraṇa — the cause.
+
+**Translation:**
+
+Translation
+Because of the various kinds of ecstasy, contradictory states of mind occurred, and this resulted in a great fight between different types of ecstasy. Anxiety, impotence, humility, anger and impatience were all like soldiers fighting, and the madness of love of Godhead was the cause.
+
+**Purport:**
+
+Purport
+In the Bhakti-rasāmṛta-sindhu it is stated that when similar ecstasies from separate causes meet, they are called svarūpa-sandhi. When opposing elements meet, whether they arise from a common cause or different causes, their conjunction is called bhinna-rūpasandhi, the meeting of contradictory ecstasies. The simultaneous joining of different ecstasies — fear and happiness, regret and happiness — is called meeting (sandhi). The word śābalya refers to different types of ecstatic symptoms combined together, like pride, despondency, humility, remembrance, doubt, impatience caused by insult, fear, disappointment, patience and eagerness. The friction that occurs when these combine is called śābalya. Similarly, when the desire to see the object is very prominent, or when one is unable to tolerate any delay in seeing the desired object, the incapability is called autsukya, or eagerness. If such eagerness is present, one’s mouth dries up and one becomes restless. One also becomes full of anxiety, and hard breathing and impatience are observed. Similarly, the lightness of heart caused by strong attachment and strong agitation of the mind is called impotence (cāpalya). Failure of judgment, misuse of words, and obstinate activities devoid of anxiety are observed. Similarly, when one becomes too angry at the other party, offensive and abominable speech occurs, and this anger is called roṣa. When one becomes impatient due to being scolded or insulted, the resultant state of mind is called amarṣa. In this state of mind, one perspires, acquires a headache, fades in bodily color and experiences anxiety and an urge to search out the remedy. The bearing of a grudge, aversion and chastisement are all visible symptoms.
+

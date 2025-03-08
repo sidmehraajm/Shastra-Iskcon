@@ -1,0 +1,25 @@
+# ŚB 5.20.13
+
+**Sanskrit:**
+
+एवं सुरोदाद्ब‍‌हिस्तद्‌‌द्विगुण: समानेनावृतो घृतोदेन यथापूर्व: कुशद्वीपो यस्मिन् कुशस्तम्बो देवकृतस्तद्‌द्वीपाख्याकरो ज्वलन इवापर: स्वशष्परोचिषा दिशो विराजयति ॥ १३ ॥
+
+**Transliteration:**
+
+evaṁ surodād bahis tad-dvi-guṇaḥ samānenāvṛto ghṛtodena yathā-pūrvaḥ kuśa-dvīpo yasmin kuśa-stambo deva-kṛtas tad-dvīpākhyākaro jvalana ivāparaḥ sva-śaṣpa-rociṣā diśo virājayati.
+
+**Synonyms:**
+
+Synonyms
+evam — thus; surodāt — from the ocean of liquor; bahiḥ — outside; tat-dvi-guṇaḥ — twice that; samānena — equal in width; āvṛtaḥ — surrounded; ghṛta-udena — an ocean of clarified butter; yathā-pūrvaḥ — as previously with Sālmalīdvīpa; kuśa-dvīpa — the island called Kuśadvīpa; yasmin — in which; kuśa-stambaḥ — kuśa grass; deva-kṛtaḥ — created by the supreme will of the Supreme Personality of Godhead; tat-dvīpa-ākhyā-karaḥ — giving the island its name; jvalanaḥ — fire; iva — like; aparaḥ — another; sva-śaṣpa-rociṣā — by the effulgence of the young sprouting grass; diśaḥ — all directions; virājayati — illuminates.
+
+**Translation:**
+
+Translation
+Outside the ocean of liquor is another island, known as Kuśadvīpa, which is 800,000 yojanas [6,400,000 miles] wide, twice as wide as the ocean of liquor. As Śālmalīdvīpa is surrounded by a liquor ocean, Kuśadvīpa is surrounded by an ocean of liquid ghee as broad as the island itself. On Kuśadvīpa there are clumps of kuśa grass, from which the island takes its name. This kuśa grass, which was created by the demigods by the will of the Supreme Lord, appears like a second form of fire, but with very mild and pleasing flames. Its young shoots illuminate all directions.
+
+**Purport:**
+
+Purport
+From the descriptions in this verse, we can make an educated guess about the nature of the flames on the moon. Like the sun, the moon must also be full of flames because without flames there cannot be illumination. The flames on the moon, however, unlike those on the sun, must be mild and pleasing. This is our conviction. The modern theory that the moon is full of dust is not accepted in the verses of Śrīmad-Bhāgavatam. In regard to this verse, Śrīla Viśvanātha Cakravartī Ṭhākura says, suśaṣpāṇi sukomala-śikhās teṣāṁ rociṣā: the kuśa grass illuminates all directions, but its flames are very mild and pleasing. This gives some idea of the flames existing on the moon.
+

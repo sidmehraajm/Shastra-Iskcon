@@ -1,0 +1,24 @@
+# ŚB 10.7.22
+
+**Sanskrit:**
+
+मुहूर्तमभवद् गोष्ठं रजसा तमसावृतम् ।
+सुतं यशोदा नापश्यत्तस्मिन् न्यस्तवती यत: ॥ २२ ॥
+
+**Transliteration:**
+
+muhūrtam abhavad goṣṭhaṁ
+rajasā tamasāvṛtam
+sutaṁ yaśodā nāpaśyat
+tasmin nyastavatī yataḥ
+
+**Synonyms:**
+
+Synonyms
+muhūrtam — for a moment; abhavat — there was; goṣṭham — throughout the whole pasturing ground; rajasā — by big particles of dust; tamasā āvṛtam — covered with darkness; sutam — her son; yaśodā — mother Yaśodā; na apaśyat — could not find; tasmin — in that very spot; nyastavatī — she had placed Him; yataḥ — where.
+
+**Translation:**
+
+Translation
+For a moment, the whole pasturing ground was overcast with dense darkness from the dust storm, and mother Yaśodā was unable to find her son where she had placed Him.
+

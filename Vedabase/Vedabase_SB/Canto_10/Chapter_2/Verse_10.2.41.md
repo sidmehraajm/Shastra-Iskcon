@@ -1,0 +1,31 @@
+# ŚB 10.2.41
+
+**Sanskrit:**
+
+दिष्टय‍ाम्ब ते कुक्षिगत: पर: पुमा-
+नंशेन साक्षाद् भगवान् भवाय न: ।
+माभूद् भयं भोजपतेर्मुमूर्षो-
+र्गोप्ता यदूनां भविता तवात्मज: ॥ ४१ ॥
+
+**Transliteration:**
+
+diṣṭyāmba te kukṣi-gataḥ paraḥ pumān
+aṁśena sākṣād bhagavān bhavāya naḥ
+mābhūd bhayaṁ bhoja-pater mumūrṣor
+goptā yadūnāṁ bhavitā tavātmajaḥ
+
+**Synonyms:**
+
+Synonyms
+diṣṭyā — by fortune; amba — O mother; te — your; kukṣi-gataḥ — in the womb; paraḥ — the Supreme; pumān — Personality of Godhead; aṁśena — with all His energies, His parts and parcels; sākṣāt — directly; bhagavān — the Supreme Personality of Godhead; bhavāya — for the auspiciousness; naḥ — of all of us; mā abhūt — never be; bhayam — fearful; bhoja-pateḥ — from Kaṁsa, King of the Bhoja dynasty; mumūrṣoḥ — who has decided to be killed by the Lord; goptā — the protector; yadūnām — of the Yadu dynasty; bhavitā — will become; tava ātmajaḥ — your son.
+
+**Translation:**
+
+Translation
+O mother Devakī, by your good fortune and ours, the Supreme Personality of Godhead Himself, with all His plenary portions, such as Baladeva, is now within your womb. Therefore you need not fear Kaṁsa, who has decided to be killed by the Lord. Your eternal son, Kṛṣṇa, will be the protector of the entire Yadu dynasty.
+
+**Purport:**
+
+Purport
+The words paraḥ pumān aṁśena signify that Kṛṣṇa is the original Supreme Personality of Godhead. This is the verdict of the śāstra (kṛṣṇas tu bhagavān svayam). Thus the demigods assured Devakī, “Your son is the Supreme Personality of Godhead, and He is appearing with Baladeva, His plenary portion. He will give you all protection and kill Kaṁsa, who has decided to continue his enmity toward the Lord and thus be killed by Him.”
+

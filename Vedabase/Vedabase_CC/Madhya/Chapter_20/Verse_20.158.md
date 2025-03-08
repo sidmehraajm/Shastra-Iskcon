@@ -1,0 +1,31 @@
+# CC Madhya 20.158
+
+**Bengali:**
+
+বদন্তি তত্তত্ত্ববিদস্তত্ত্বং যজ্‌ জ্ঞানমদ্বয়ম্‌ ।
+ব্রহ্মেতি পরমাত্মেতি ভগবানিতি শব্দ্যতে ॥ ১৫৮ ॥
+
+**Transliteration:**
+
+vadanti tat tattva-vidas
+tattvaṁ yaj jñānam advayam
+brahmeti paramātmeti
+bhagavān iti śabdyate
+
+**Synonyms:**
+
+Synonyms
+vadanti — they say; tat — that; tattva-vidaḥ — learned souls; tattvam — the Absolute Truth; yat — which; jñānam — knowledge; advayam — nondual; brahma — Brahman; iti — thus; paramātmā — Paramātmā; iti — thus; bhagavān — Bhagavān; iti — thus; śabdyate — is known.
+
+**Translation:**
+
+Translation
+“ ‘Learned transcendentalists who know the Absolute Truth call this nondual substance Brahman, Paramātmā or Bhagavān.’
+
+**Purport:**
+
+Purport
+This is a quotation from Śrīmad-Bhāgavatam (1.2.11).
+Those who are interested in the impersonal Brahman effulgence, which is not different from the Supreme Personality of Godhead, can attain that goal by speculative knowledge. Those who are interested in practicing mystic yoga can attain the localized aspect of Paramātmā. As stated in the Bhagavad-gītā (18.61), īśvaraḥ sarva-bhūtānāṁ hṛd-deśe ’rjuna tiṣṭhati: the Supreme Personality of Godhead is situated within the heart as Paramātmā. He witnesses the activities of the living entities and gives them permission to act.
+For a further explanation, see Ādi-līlā, chapter two, verse 11.
+

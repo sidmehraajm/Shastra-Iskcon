@@ -1,0 +1,35 @@
+# ŚB 10.50.7-8
+
+**Sanskrit:**
+
+हनिष्यामि बलं ह्येतद्भ‍ुवि भारं समाहितम् ।
+मागधेन समानीतं वश्यानां सर्वभूभुजाम् ॥ ७ ॥
+अक्षौहिणीभि: सङ्ख्यातं भटाश्वरथकुञ्जरै: ।
+मागधस्तु न हन्तव्यो भूय: कर्ता बलोद्यमम् ॥ ८ ॥
+
+**Transliteration:**
+
+haniṣyāmi balaṁ hy etad
+bhuvi bhāraṁ samāhitam
+māgadhena samānītaṁ
+vaśyānāṁ sarva-bhūbhujām
+akṣauhiṇībhiḥ saṅkhyātaṁ
+bhaṭāśva-ratha-kuñjaraiḥ
+māgadhas tu na hantavyo
+bhūyaḥ kartā balodyamam
+
+**Synonyms:**
+
+Synonyms
+haniṣyāmi — I will kill; balam — army; hi — certainly; etat — this; bhuvi — upon the earth; bhāram — a burden; samāhitam — collected; māgadhena — by the King of Magadha, Jarāsandha; samānītam — brought together; vaśyānām — subservient; sarva — all; bhū-bhujām — of the kings; akṣauhiṇībhiḥ — in akṣauhiṇīs; saṅkhyātam — counted; bhaṭa — (consisting) of foot soldiers; aśva — horses; ratha — chariots; kuñjaraiḥ — and elephants; māgadhaḥ — Jarāsandha; tu — however; na hantavyaḥ — should not be killed; bhūyaḥ — again; kartā — he will make; bala — (to collect) an army; udyamam — the endeavor.
+
+**Translation:**
+
+Translation
+[The Supreme Lord thought:] Since it is such a burden on the earth, I will destroy Jarāsandha’s army, consisting of akṣauhiṇīs of foot soldiers, horses, chariots and elephants, which the King of Magadha has assembled from all subservient kings and brought together here. But Jarāsandha himself should not be killed, since in the future he will certainly assemble another army.
+
+**Purport:**
+
+Purport
+After due consideration, Lord Kṛṣṇa decided that since He had descended to the earth to destroy the demons, and since Jarāsandha was so enthusiastic to bring all the demons to the Lord’s front door, it was definitely more efficient to keep Jarāsandha alive and busy.
+

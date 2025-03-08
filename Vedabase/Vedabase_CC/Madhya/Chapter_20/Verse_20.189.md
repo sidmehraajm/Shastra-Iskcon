@@ -1,0 +1,22 @@
+# CC Madhya 20.189
+
+**Bengali:**
+
+আদি-চতুর্ব্যূহ — ইঁহার কেহ নাহি সম ।
+অনন্ত চতুর্ব্যূহগণের প্রাকট্য-কারণ ॥ ১৮৯ ॥
+
+**Transliteration:**
+
+ādi-catur-vyūha — iṅhāra keha nāhi sama
+ananta catur-vyūha-gaṇera prākaṭya-kāraṇa
+
+**Synonyms:**
+
+Synonyms
+ādi-catur-vyūha — the original quadruple group; iṅhāra — of this; keha nāhi — no one; sama — equal; ananta — unlimited; catur-vyūha-gaṇera — of the quadruple expansions; prākaṭya — of manifestation; kāraṇa — the cause.
+
+**Translation:**
+
+Translation
+“The first expansion of the caturvyūha, quadruple forms, is unique. There is nothing to compare with Them. These quadruple forms are the source of unlimited quadruple forms.
+

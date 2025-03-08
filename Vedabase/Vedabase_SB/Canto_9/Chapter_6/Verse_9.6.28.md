@@ -1,0 +1,24 @@
+# ŚB 9.6.28
+
+**Sanskrit:**
+
+उत्थितास्ते निशम्याथ व्युदकं कलशं प्रभो ।
+पप्रच्छु: कस्य कर्मेदं पीतं पुंसवनं जलम् ॥ २८ ॥
+
+**Transliteration:**
+
+utthitās te niśamyātha
+vyudakaṁ kalaśaṁ prabho
+papracchuḥ kasya karmedaṁ
+pītaṁ puṁsavanaṁ jalam
+
+**Synonyms:**
+
+Synonyms
+utthitāḥ — after awakening; te — all of them; niśamya — seeing; atha — thereafter; vyudakam — empty; kalaśam — the waterpot; prabho — O King Parīkṣit; papracchuḥ — inquired; kasya — whose; karma — act; idam — this; pītam — drunk; puṁsavanam — which was to cause the birth of a child; jalam — water.
+
+**Translation:**
+
+Translation
+When the brāhmaṇas got up from bed and saw the waterpot empty, they inquired who had done this work of drinking the water meant for begetting a child.
+

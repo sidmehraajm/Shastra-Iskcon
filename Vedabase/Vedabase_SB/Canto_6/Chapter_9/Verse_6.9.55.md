@@ -1,0 +1,30 @@
+# ŚB 6.9.55
+
+**Sanskrit:**
+
+तस्मिन् विनिहते यूयं तेजोऽस्त्रायुधसम्पद: ।
+भूय: प्राप्स्यथ भद्रं वो न हिंसन्ति च मत्परान् ॥ ५५ ॥
+
+**Transliteration:**
+
+tasmin vinihate yūyaṁ
+tejo-’strāyudha-sampadaḥ
+bhūyaḥ prāpsyatha bhadraṁ vo
+na hiṁsanti ca mat-parān
+
+**Synonyms:**
+
+Synonyms
+tasmin — when he (Vṛtrāsura); vinihate — is killed; yūyam — all of you; tejaḥ — power; astra — arrows; āyudha — other weapons; sampadaḥ — and opulence; bhūyaḥ — again; prāpsyatha — will obtain; bhadram — all good fortune; vaḥ — unto you; na — not; hiṁsanti — hurt; ca — also; mat-parān — My devotees.
+
+**Translation:**
+
+Translation
+When Vṛtrāsura is killed because of My spiritual strength, you will regain your strength, weapons and wealth. Thus there will be all good fortune for all of you. Although Vṛtrāsura can destroy all the three worlds, do not fear that he will harm you. He is also a devotee and will never be envious of you.
+
+**Purport:**
+
+Purport
+A devotee of the Lord is never envious of anyone, what to speak of other devotees. As revealed later, Vṛtrāsura was also a devotee. Therefore he was not expected to be envious of the demigods. Indeed, of his own accord, he would try to benefit the demigods. A devotee does not hesitate to give up his own body for a better cause. Cāṇakya Paṇḍita said, san-nimitte varaṁ tyāgo vināśe niyate sati. After all, all one’s material possessions, including his body, will be destroyed in due course of time. Therefore if the body and other possessions can be utilized for a better cause, a devotee never hesitates to give up even his own body. Because Lord Viṣṇu wanted to save the demigods, Vṛtrāsura, even though able to swallow the three worlds, would agree to be killed by the demigods. For a devotee there is no difference between living and dying because in this life a devotee engages in devotional service, and after giving up his body, he engages in the same service in the spiritual world. His devotional service is never hindered.
+Thus end the Bhaktivedanta purports to the Sixth Canto, Ninth Chapter, of the Śrīmad-Bhāgavatam, entitled “Appearance of the Demon Vṛtrāsura.”
+

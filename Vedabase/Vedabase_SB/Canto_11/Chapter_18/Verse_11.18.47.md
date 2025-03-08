@@ -1,0 +1,29 @@
+# ŚB 11.18.47
+
+**Sanskrit:**
+
+वर्णाश्रमवतां धर्म एष आचारलक्षण: ।
+स एव मद्भ‍‍क्तियुतो नि:श्रेयसकर: पर: ॥ ४७ ॥
+
+**Transliteration:**
+
+varṇāśramavatāṁ dharma
+eṣa ācāra-lakṣaṇaḥ
+sa eva mad-bhakti-yuto
+niḥśreyasa-karaḥ paraḥ
+
+**Synonyms:**
+
+Synonyms
+varṇāśrama-vatām — of the followers of the varṇāśrama system; dharmaḥ — religious principle; eṣaḥ — this; ācāra — by proper behavior according to the authorized tradition; lakṣaṇaḥ — characterized; saḥ — this; eva — indeed; mat-bhakti — with devotional service to Me; yutaḥ — conjoined; niḥśreyasa — the highest perfection of life; karaḥ — giving; paraḥ — supreme.
+
+**Translation:**
+
+Translation
+Those who are followers of this varṇāśrama system accept religious principles according to authorized traditions of proper conduct. When such varṇāśrama duties are dedicated to Me in loving service, they award the supreme perfection of life.
+
+**Purport:**
+
+Purport
+According to the varṇāśrama system, the members of different orders and statuses of life have many traditional duties, such as worshiping the forefathers to save them from possible sinful reactions. All such Vedic rituals, sacrifices, austerities and so forth should be offered to the lotus feet of Lord Śrī Kṛṣṇa. They then become the transcendental means for going back home, back to Godhead. In other words, Kṛṣṇa consciousness, or loving service to Lord Śrī Kṛṣṇa, is the sum and substance of progressive human life.
+

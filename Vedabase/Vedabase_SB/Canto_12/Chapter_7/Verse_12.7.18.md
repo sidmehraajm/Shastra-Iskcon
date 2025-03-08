@@ -1,0 +1,30 @@
+# ŚB 12.7.18
+
+**Sanskrit:**
+
+हेतुर्जीवोऽस्य सर्गादेरविद्याकर्मकारक: ।
+यं चानुशायिनं प्राहुरव्याकृतमुतापरे ॥ १८ ॥
+
+**Transliteration:**
+
+hetur jīvo ’sya sargāder
+avidyā-karma-kārakaḥ
+yaṁ cānuśāyinaṁ prāhur
+avyākṛtam utāpare
+
+**Synonyms:**
+
+Synonyms
+hetuḥ — the cause; jīvaḥ — the living being; asya — of this universe; sarga-ādeḥ — of the creation, maintenance and destruction; avidyā — out of ignorance; karma-kārakaḥ — the performer of material activities; yam — whom; ca — and; anuśāyinam — the underlying personality; prāhuḥ — they call; avyākṛtam — the unmanifest; uta — indeed; apare — others.
+
+**Translation:**
+
+Translation
+Out of ignorance the living being performs material activities and thereby becomes in one sense the cause of the creation, maintenance and destruction of the universe. Some authorities call the living being the personality underlying the material creation, while others say he is the unmanifest self.
+
+**Purport:**
+
+Purport
+The Supreme Lord Himself creates, maintains and annihilates the cosmos. However, such activities are performed in response to the desires of conditioned souls, who are described herein as hetu, or the cause of cosmic activity. The Lord creates this world to facilitate the conditioned soul’s attempt to exploit nature and ultimately to facilitate his self-realization.
+Since conditioned souls cannot perceive their own constitutional identity, they are described here as avyākṛtam, or unmanifest. In other words, the living entity cannot perceive his real form unless he is completely Kṛṣṇa conscious.
+

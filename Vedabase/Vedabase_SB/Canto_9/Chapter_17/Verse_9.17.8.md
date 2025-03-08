@@ -1,0 +1,24 @@
+# ŚB 9.17.8
+
+**Sanskrit:**
+
+अलर्कात्सन्ततिस्तस्मात् सुनीथोऽथ निकेतन: ।
+धर्मकेतु: सुतस्तस्मात् सत्यकेतुरजायत ॥ ८ ॥
+
+**Transliteration:**
+
+alarkāt santatis tasmāt
+sunītho ’tha niketanaḥ
+dharmaketuḥ sutas tasmāt
+satyaketur ajāyata
+
+**Synonyms:**
+
+Synonyms
+alarkāt — from Alarka; santatiḥ — a son known as Santati; tasmāt — from him; sunīthaḥ — Sunītha; atha — from him; niketanaḥ — a son named Niketana; dharmaketuḥ — Dharmaketu; sutaḥ — a son; tasmāt — and from Dharmaketu; satyaketuḥ — Satyaketu; ajāyata — was born.
+
+**Translation:**
+
+Translation
+From Alarka came a son named Santati, and his son was Sunītha. The son of Sunītha was Niketana, the son of Niketana was Dharmaketu, and the son of Dharmaketu was Satyaketu.
+

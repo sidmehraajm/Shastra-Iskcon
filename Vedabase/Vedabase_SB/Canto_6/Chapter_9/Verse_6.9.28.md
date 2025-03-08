@@ -1,0 +1,26 @@
+# ŚB 6.9.28
+
+**Sanskrit:**
+
+श्रीशुक उवाच
+इति तेषां महाराज सुराणामुपतिष्ठताम् ।
+प्रतीच्यां दिश्यभूदावि: शङ्खचक्रगदाधर: ॥ २८ ॥
+
+**Transliteration:**
+
+śrī-śuka uvāca
+iti teṣāṁ mahārāja
+surāṇām upatiṣṭhatām
+pratīcyāṁ diśy abhūd āviḥ
+śaṅkha-cakra-gadā-dharaḥ
+
+**Synonyms:**
+
+Synonyms
+śrī-śukaḥ uvāca — Śrī Śukadeva Gosvāmī said; iti — thus; teṣām — of them; mahārāja — O King; surāṇām — of the demigods; upatiṣṭhatām — praying; pratīcyām — inside; diśi — in the direction; abhūt — became; āviḥ — visible; śaṅkha-cakra-gadā-dharaḥ — bearing the transcendental weapons: the conchshell, disc and club.
+
+**Translation:**
+
+Translation
+Śrī Śukadeva Gosvāmī said: My dear King, when all the demigods offered Him their prayers, the Supreme Personality of Godhead, Lord Hari, carrying His weapons, the conchshell, disc and club, appeared first within their hearts and then before them.
+

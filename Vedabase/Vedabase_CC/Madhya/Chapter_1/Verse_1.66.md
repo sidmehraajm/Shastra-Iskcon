@@ -1,0 +1,22 @@
+# CC Madhya 1.66
+
+**Bengali:**
+
+দৈবে আসি’ প্রভু যবে ঊর্ধ্বেতে চাহিলা ।
+চালে গোঁজা তালপত্রে সেই শ্লোক পাইলা ॥ ৬৬ ॥
+
+**Transliteration:**
+
+daive āsi’ prabhu yabe ūrdhvete cāhilā
+cāle goṅjā tāla-patre sei śloka pāilā
+
+**Synonyms:**
+
+Synonyms
+daive — accidentally; āsi’ — coming there; prabhu — the Lord; yabe — when; ūrdhvete — on the roof; cāhilā — He looked; cāle — in the roof; goṅjā — pushed; tāla-patre — the palm leaf; sei — that; śloka — verse; pāilā — got.
+
+**Translation:**
+
+Translation
+When Śrī Caitanya Mahāprabhu went to the residence of Śrīla Rūpa Gosvāmī, He accidentally saw the palm leaf on the roof, and thus He read the verse composed by him.
+

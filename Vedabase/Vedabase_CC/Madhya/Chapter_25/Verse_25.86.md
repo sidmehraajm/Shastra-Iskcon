@@ -1,0 +1,22 @@
+# CC Madhya 25.86
+
+**Bengali:**
+
+এবে তোমার পাদাব্জে উপজিবে ভক্তি ।
+তথি লাগি’ করি তোমার চরণে প্রণতি ॥” ৮৬ ॥
+
+**Transliteration:**
+
+ebe tomāra pādābje upajibe bhakti
+tathi lāgi’ kari tomāra caraṇe praṇati”
+
+**Synonyms:**
+
+Synonyms
+ebe — now; tomāra — Your; pāda-abje — to the lotus feet; upajibe — will grow; bhakti — devotional service; tathi lāgi’ — for that reason; kari — I do; tomāra caraṇe praṇati — humble obeisances at Your lotus feet.
+
+**Translation:**
+
+Translation
+“Henceforward I shall certainly develop devotional service unto Your lotus feet. For this reason I have come to You and have fallen down at Your lotus feet.”
+

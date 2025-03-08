@@ -1,0 +1,26 @@
+# ŚB 3.10.1
+
+**Sanskrit:**
+
+विदुर उवाच
+अन्तर्हिते भगवति ब्रह्मा लोकपितामह: ।
+प्रजा: ससर्ज कतिधा दैहिकीर्मानसीर्विभु: ॥ १ ॥
+
+**Transliteration:**
+
+vidura uvāca
+antarhite bhagavati
+brahmā loka-pitāmahaḥ
+prajāḥ sasarja katidhā
+daihikīr mānasīr vibhuḥ
+
+**Synonyms:**
+
+Synonyms
+viduraḥ uvāca — Śrī Vidura said; antarhite — after the disappearance; bhagavati — of the Personality of Godhead; brahmā — the first created living being; loka-pitāmahaḥ — the grandfather of all planetary inhabitants; prajāḥ — generations; sasarja — created; katidhāḥ — how many; daihikīḥ — from his body; mānasīḥ — from his mind; vibhuḥ — the great.
+
+**Translation:**
+
+Translation
+Śrī Vidura said: O great sage, please let me know how Brahmā, the grandfather of the planetary inhabitants, created the bodies of the living entities from his own body and mind after the disappearance of the Supreme Personality of Godhead.
+

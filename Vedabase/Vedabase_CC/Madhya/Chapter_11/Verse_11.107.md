@@ -1,0 +1,22 @@
+# CC Madhya 11.107
+
+**Bengali:**
+
+আগে তাঁরে মিলি’ সবে তাঁরে সঙ্গে লঞা ।
+তাঁর সঙ্গে জগন্নাথ দেখিবেন গিয়া ॥ ১০৭ ॥
+
+**Transliteration:**
+
+āge tāṅre mili’ sabe tāṅre saṅge lañā
+tāṅra saṅge jagannātha dekhibena giyā
+
+**Synonyms:**
+
+Synonyms
+āge — first; tāṅre — Śrī Caitanya Mahāprabhu; mili’ — meeting; sabe — all the devotees; tāṅre — Him; saṅge — with them; lañā — taking; tāṅra saṅge — with Him; jagannātha — Lord Jagannātha; dekhibena — they will see; giyā — going.
+
+**Translation:**
+
+Translation
+“First the devotees will meet Śrī Caitanya Mahāprabhu and then take Him with them to the temple to see Lord Jagannātha.”
+

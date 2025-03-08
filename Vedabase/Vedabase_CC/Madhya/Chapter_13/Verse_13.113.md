@@ -1,0 +1,27 @@
+# CC Madhya 13.113
+
+**Bengali:**
+
+“সেই ত পরাণ-নাথ পাইনু ।
+যাহা লাগি’ মদন-দহনে ঝুরি’ গেনু ॥” ১১৩ ॥ ধ্রু ॥
+
+**Transliteration:**
+
+“ ‘sei ta parāṇa-nātha pāinu
+yāhā lāgi’ madana-dahane jhuri’ genu’ ”
+
+**Synonyms:**
+
+Synonyms
+sei ta — that indeed; parāṇa-nātha — the master of My life; pāinu — I have gotten; yāhā lāgi’ — for whom; madana-dahane — being burned by Cupid; jhuri’ genu — I became dried up.
+
+**Translation:**
+
+Translation
+“ ‘Now I have gained the Lord of My life, in the absence of whom I was being burned by Cupid and was withering away.’ ”
+
+**Purport:**
+
+Purport
+This song refers to Śrīmatī Rādhārāṇī’s meeting with Kṛṣṇa at the holy place of Kurukṣetra, where Lord Śrī Kṛṣṇa and His brother and sister came to visit when there was a solar eclipse. It is a song of separation from Kṛṣṇa. When Rādhārāṇī met Kṛṣṇa at Kurukṣetra, She remembered His intimate association in Vṛndāvana, and She thought, “Now I have gained the Lord of My life. In His absence I was being burned by the arrow of Cupid, and thus I was withering away. Now I have My life again.”
+

@@ -1,0 +1,22 @@
+# CC Madhya 24.118
+
+**Bengali:**
+
+নব-যোগীশ্বর জন্ম হৈতে ‘সাধক’ জ্ঞানী ।
+বিধি-শিব-নারদ-মুখে কৃষ্ণগুণ শুনি’ ॥ ১১৮ ॥
+
+**Transliteration:**
+
+nava-yogīśvara janma haite ‘sādhaka’ jñānī
+vidhi-śiva-nārada-mukhe kṛṣṇa-guṇa śuni’
+
+**Synonyms:**
+
+Synonyms
+nava — nine; yogī-īśvara — great saintly yogīs; sādhaka — practicers; jñānī — well versed in transcendental knowledge; vidhi — Lord Brahmā; śiva — Lord Śiva; nārada — the great sage Nārada; mukhe — in their mouths; kṛṣṇa-guṇa śuni’ — hearing the transcendental qualities of Kṛṣṇa.
+
+**Translation:**
+
+Translation
+“From their very births, the nine great mystic yogīs [Yogendras] were impersonal philosophers of the Absolute Truth. But because they heard about Lord Kṛṣṇa’s qualities from Lord Brahmā, Lord Śiva and the great sage Nārada, they also became Kṛṣṇa’s devotees.
+

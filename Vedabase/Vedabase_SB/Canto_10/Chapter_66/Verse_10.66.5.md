@@ -1,0 +1,30 @@
+# ŚB 10.66.5
+
+**Sanskrit:**
+
+वासुदेवोऽवतीर्णोऽहमेक एव न चापर: ।
+भूतानामनुकम्पार्थं त्वं तु मिथ्याभिधां
+त्यज ॥ ५ ॥
+
+**Transliteration:**
+
+vāsudevo ’vatīrno ’ham
+eka eva na cāparaḥ
+bhūtānām anukampārthaṁ
+tvaṁ tu mithyābhidhāṁ tyaja
+
+**Synonyms:**
+
+Synonyms
+vāsudevaḥ — Lord Vāsudeva; avatīrṇaḥ — descended to this world; aham — I; ekaḥ eva — the only one; na — not; ca — and; aparaḥ — anyone else; bhūtānām — to the living beings; anukampā — of showing mercy; artham — for the purpose; tvam — You; tu — however; mithyā — false; abhidhām — designation; tyaja — give up.
+
+**Translation:**
+
+Translation
+[On Pauṇḍraka’s behalf, the messenger said:] I am the one and only Lord Vāsudeva, and there is no other. It is I who have descended to this world to show mercy to the living beings. Therefore give up Your false name.
+
+**Purport:**
+
+Purport
+Inspired by Goddess Sarasvatī, Śrīla Viśvanātha Cakravartī gives the real import of these two verses: “I am not Vāsudeva incarnate, but rather You alone, and no one else, are Vāsudeva. Since You have descended to show mercy to the living beings, please make me give up my false designation, which is like that of an oyster claiming to be silver.” The Supreme Lord will certainly comply with this request.
+

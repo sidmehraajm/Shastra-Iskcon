@@ -1,0 +1,21 @@
+# CC Antya 6.286
+
+**Bengali:**
+
+chatre yāi yathā-lābha udara-bharaṇa
+anya kathā nāhi, sukhe kṛṣṇa-saṅkīrtana”
+
+**Transliteration:**
+
+chatre yāi — going to the booth for free food distribution; yathā-lābha — with whatever is obtained; udara-bharaṇa — filling the belly; anya — other; kathā — talk; nāhi — there is not; sukhe — happily; kṛṣṇa-saṅkīrtana — chanting the Hare Kṛṣṇa mahā-mantra..
+
+**Synonyms:**
+
+Synonyms
+chatre yāi — going to the booth for free food distribution; yathā-lābha — with whatever is obtained; udara-bharaṇa — filling the belly; anya — other; kathā — talk; nāhi — there is not; sukhe — happily; kṛṣṇa-saṅkīrtana — chanting the Hare Kṛṣṇa mahā-mantra..
+
+**Translation:**
+
+Translation
+“If one goes to the booth where free food is distributed and fills his belly with whatever he obtains, there is no chance of further unwanted talk, and one can very peacefully chant the Hare Kṛṣṇa mahā-mantra.”
+

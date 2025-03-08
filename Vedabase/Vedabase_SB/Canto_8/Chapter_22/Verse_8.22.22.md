@@ -1,0 +1,24 @@
+# ŚB 8.22.22
+
+**Sanskrit:**
+
+कृत्‍स्‍ना तेऽनेन दत्ता भूर्लोका: कर्मार्जिताश्च ये ।
+निवेदितं च सर्वस्वमात्माविक्लवया धिया ॥ २२ ॥
+
+**Transliteration:**
+
+kṛtsnā te ’nena dattā bhūr
+lokāḥ karmārjitāś ca ye
+niveditaṁ ca sarvasvam
+ātmāviklavayā dhiyā
+
+**Synonyms:**
+
+Synonyms
+kṛtsnāḥ — all; te — unto You; anena — by Bali Mahārāja; dattāḥ — have been given or returned; bhūḥ lokāḥ — all land and all planets; karma-arjitāḥ ca — whatever he achieved by his pious activities; ye — all of which; niveditam ca — have been offered to You; sarvasvam — everything he possessed; ātmā — even his body; aviklavayā — without hesitation; dhiyā — by such intelligence.
+
+**Translation:**
+
+Translation
+Bali Mahārāja had already offered everything to Your Lordship. Without hesitation, he has offered his land, the planets and whatever else he earned by his pious activities, including even his own body.
+

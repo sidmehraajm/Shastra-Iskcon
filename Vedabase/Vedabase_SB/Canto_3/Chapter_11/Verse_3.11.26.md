@@ -1,0 +1,24 @@
+# ŚB 3.11.26
+
+**Sanskrit:**
+
+एष दैनन्दिन: सर्गो ब्राह्मस्त्रैलोक्यवर्तन: ।
+तिर्यङ्‌नृपितृदेवानां सम्भवो यत्र कर्मभि: ॥ २६ ॥
+
+**Transliteration:**
+
+eṣa dainan-dinaḥ sargo
+brāhmas trailokya-vartanaḥ
+tiryaṅ-nṛ-pitṛ-devānāṁ
+sambhavo yatra karmabhiḥ
+
+**Synonyms:**
+
+Synonyms
+eṣaḥ — all these creations; dainam-dinaḥ — daily; sargaḥ — creation; brāhmaḥ — in terms of the days of Brahmā; trailokya-vartanaḥ — revolution of the three worlds; tiryak — animals lower than the human beings; nṛ — human beings; pitṛ — of the Pitā planets; devānām — of the demigods; sambhavaḥ — appearance; yatra — wherein; karmabhiḥ — in the cycle of fruitive activities.
+
+**Translation:**
+
+Translation
+In the creation, during Brahmā’s day, the three planetary systems — Svarga, Martya and Pātāla — revolve, and the inhabitants, including the lower animals, human beings, demigods and Pitās, appear and disappear in terms of their fruitive activities.
+

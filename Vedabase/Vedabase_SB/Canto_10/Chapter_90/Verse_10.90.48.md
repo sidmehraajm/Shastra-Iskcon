@@ -1,0 +1,36 @@
+# ŚB 10.90.48
+
+**Sanskrit:**
+
+जयति जननिवासो देवकीजन्मवादो
+यदुवरपरिषत्स्वैर्दोर्भिरस्यन्नधर्मम् ।
+स्थिरचरवृजिनघ्न: सुस्मितश्रीमुखेन
+व्रजपुरवनितानां वर्धयन् कामदेवम् ॥ ४८ ॥
+
+**Transliteration:**
+
+jayati jana-nivāso devakī-janma-vādo
+yadu-vara-pariṣat svair dorbhir asyann adharmam
+sthira-cara-vṛjina-ghnaḥ su-smita-śrī-mukhena
+vraja-pura-vanitānāṁ vardhayan kāma-devam
+
+**Synonyms:**
+
+Synonyms
+jayati — eternally lives gloriously; jana-nivāsaḥ — He who lives among human beings like the members of the Yadu dynasty and is the ultimate resort of all living entities; devakī-janma-vādaḥ — known as the son of Devakī (No one can actually become the father or mother of the Supreme Personality of Godhead. Therefore devakī-janma-vada means that He is known as the son of Devakī. Similarly, He is also known as the son of mother Yaśodā, Vasudeva and Nanda Mahārāja.); yadu-vara-pariṣat — served by the members of the Yadu dynasty or the cowherd men of Vṛndāvana (all of whom are constant associates of the Supreme Lord and are the Lord’s eternal servants); svaiḥ dorbhiḥ — by His own arms, or by His devotees like Arjuna who are just like His own arms; asyan — killing; adharmam — demons or the impious; sthira-cara-vṛjina-ghnaḥ — the destroyer of all the ill fortune of all living entities, moving and not moving; su-smita — always smiling; śrī-mukhena — by His beautiful face; vraja-pura-vanitānām — of the damsels of Vṛndāvana; vardhayan — increasing; kāma-devam — the lusty desires.
+
+**Translation:**
+
+Translation
+Lord Śrī Kṛṣṇa is He who is known as jana-nivāsa, the ultimate resort of all living entities, and who is also known as Devakīnandana or Yaśodā-nandana, the son of Devakī and Yaśodā. He is the guide of the Yadu dynasty, and with His mighty arms He kills everything inauspicious, as well as every man who is impious. By His presence He destroys all things inauspicious for all living entities, moving and inert. His blissful smiling face always increases the lusty desires of the gopīs of Vṛndāvana. May He be all glorious and happy!
+
+**Purport:**
+
+Purport
+The translation and word meanings for this verse are taken from Śrīla Prabhupāda’s English rendering of Śrī Caitanya-caritāmṛta (Madhya 13.79). According to Śrīla Viśvanātha Cakravartī, Śrīla Śukadeva Gosvāmī has composed this beautiful verse to console those who lament the fact that Lord Kṛṣṇa did not continue to manifest His intimate pastimes down to the present time. Here Śrī Śukadeva reminds his listeners that the Lord is eternally present in this world — in His holy abode, His name and the recitation of His glories. This idea is expressed by the word jayati (“He is victorious”), which is in the present tense rather than the past.
+Śrīla Prabhupāda explains this verse as follows in Kṛṣṇa: “Śrīla Śukadeva Gosvāmī thus concludes his description of the superexalted position of Lord Kṛṣṇa by glorifying Him in the following way: ‘O Lord Kṛṣṇa, all glories unto You. You are present in everyone’s heart as Paramātmā. Therefore You are known as Jananivāsa, one who lives in everyone’s heart.’ As confirmed in the Bhagavad-gītā, īśvaraḥ sarva-bhūtānāṁ hṛd-deśe ’rjuna tiṣṭhati: ‘The Supreme Lord in His Paramātmā feature lives in everyone’s heart.’ This does not mean, however, that Kṛṣṇa has no separate existence as the Supreme Personality of Godhead. The Māyāvādī philosophers accept the all-pervading feature of Parabrahman, but when Parabrahman, or the Supreme Lord, appears, they think that He appears under the control of material nature. Because Lord Kṛṣṇa appeared as the son of Devakī, the Māyāvādī philosophers accept Kṛṣṇa to be an ordinary living entity who takes birth within this material world. Therefore Śukadeva Gosvāmī warns them: devakī-janma-vādaḥ, which means that although Kṛṣṇa is famous as the son of Devakī, actually He is the Supersoul, or the all-pervading Supreme Personality of Godhead.
+“The devotees, however, take this word devakī-janma-vāda in a different way. The devotees understand that actually Kṛṣṇa was the son of mother Yaśodā. Although Kṛṣṇa first of all appeared as the son of Devakī, He immediately transferred Himself to the lap of mother Yaśodā, and His childhood pastimes were blissfully enjoyed by mother Yaśodā and Nanda Mahārāja. This fact was also admitted by Vasudeva himself when he met Nanda Mahārāja and Yaśodā at Kurukṣetra. He admitted that Kṛṣṇa and Balarāma were actually the sons of mother Yaśodā and Nanda Mahārāja. Vasudeva and Devakī were only Their official father and mother. Their actual father and mother were Nanda and Yaśodā. Therefore Śukadeva Gosvāmī describes Lord Kṛṣṇa as devakī-janma-vāda.
+“Śukadeva Gosvāmī then glorifies the Lord as one who is honored by the yadu-vara-pariṣat, the assembly house of the Yadu dynasty, and as the killer of different kinds of demons. Kṛṣṇa, the Supreme Personality of Godhead, could have killed all the demons by employing His different material energies, but He wanted to kill them personally in order to give them salvation. There was no need of Kṛṣṇa’s coming to this material world to kill the demons. Simply by His willing, many hundreds and thousands of demons could have been killed without His personal endeavor. But actually He descended for His pure devotees, to play as a child with mother Yaśodā and Nanda Mahārāja and to give pleasure to the inhabitants of Dvārakā. By killing the demons and by giving protection to the devotees, Lord Kṛṣṇa established the real religious principle, which is simply love of God. By following the factual religious principles of love of God, even the living entities known as sthira-cara were also delivered from all material contamination and were transferred to the spiritual kingdom. Sthira means the trees and plants, which cannot move, and cara means the moving animals, especially the cows. When Kṛṣṇa was present, He delivered all the trees, monkeys and other plants and animals who happened to see Him and serve Him both in Vṛndāvana and Dvārakā.
+“Lord Kṛṣṇa is especially glorified for giving pleasure to the gopīs and the queens of Dvārakā. Śukadeva Gosvāmī glorifies Lord Kṛṣṇa for His enchanting smile, by which He enchanted not only the gopīs of Vṛndāvana but also the queens at Dvārakā. The exact words used in this connection are vardhayan kāmadevam. In Vṛndāvana, as the boyfriend of many gopīs, and in Dvārakā, as the husband of many queens, Kṛṣṇa increased their lusty desires to enjoy with Him. For God realization or self-realization, one generally has to undergo severe austerities and penances for many, many thousands of years, and then it may be possible to realize God. But the gopīs and the queens of Dvārakā, simply by enhancing their lusty desires to enjoy Kṛṣṇa as their boyfriend or husband, received the highest type of salvation.”
+In this way Śrīla Prabhupāda wonderfully illuminates the meaning of this verse by Śukadeva Gosvāmī, which summarizes Lord Kṛṣṇa’s pastimes.
+

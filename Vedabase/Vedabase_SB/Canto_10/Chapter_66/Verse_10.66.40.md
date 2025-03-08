@@ -1,0 +1,31 @@
+# ŚB 10.66.40
+
+**Sanskrit:**
+
+कृत्यानल: प्रतिहत: स रथाङ्गपाणे-
+रस्त्रौजसा स नृप भग्नमुखो निवृत्त: ।
+वाराणसीं परिसमेत्य सुदक्षिणं तं
+सर्त्विग्जनं समदहत् स्वकृतोऽभिचार: ॥ ४० ॥
+
+**Transliteration:**
+
+kṛtyānalaḥ pratihataḥ sa rathānga-pāṇer
+astraujasā sa nṛpa bhagna-mukho nivṛttaḥ
+vārāṇasīṁ parisametya sudakṣiṇaṁ taṁ
+sartvig-janaṁ samadahat sva-kṛto ’bhicāraḥ
+
+**Synonyms:**
+
+Synonyms
+kṛtyā — produced by mystic power; analaḥ — the fire; pratihataḥ — frustrated; saḥ — he; ratha-aṅga-pāṇeḥ — of Lord Kṛṣṇa, Who holds the Sudarśana disc in His hand; astra — of the weapon; ojasā — by the power; saḥ — he; nṛpa — O King; bhagna-mukhaḥ — turning away; nivṛttaḥ — having desisted; vārānasīm — the city of Vārāṇasī; parisametya — approaching on all sides; sudakṣiṇam — Sudakṣiṇa; tam — him; sa — together with; ṛtvik-janam — his priests; samadahat — burned to death; sva — by himself (Sudakṣiṇa); kṛtaḥ — created; abhicāraḥ — meant for doing violence.
+
+**Translation:**
+
+Translation
+Frustrated by the power of Lord Kṛṣṇa’s weapon, O King, the fiery creature produced by black magic turned his face away and retreated. Created for violence, the demon then returned to Vārāṇasī, where he surrounded the city and then burned Sudakṣiṇa and his priests to death, even though Sudakṣiṇa was his creator.
+
+**Purport:**
+
+Purport
+Śrīla Prabhupāda comments as follows: “Having failed to set fire to Dvārakā, the fiery demon went back to Vārāṇasī, the kingdom of Kāśirāja. As a result of his return, all the priests who had helped instruct the black art of mantras, along with their employer, Sudakṣiṇa, were burned into ashes by the glaring effulgence of the fiery demon. According to the methods of black-art mantras instructed in the tantra, if the mantra fails to kill the enemy, then, because it must kill someone, it kills the original creator. Sudakṣiṇa was the originator, and the priests assisted him; therefore all of them were burned to ashes. This is the way of the demons: the demons create something to kill God, but by the same weapon the demons themselves are killed.”
+

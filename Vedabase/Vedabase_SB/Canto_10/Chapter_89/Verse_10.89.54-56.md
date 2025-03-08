@@ -1,0 +1,47 @@
+# ŚB 10.89.54-56
+
+**Sanskrit:**
+
+ददर्श तद्भ‍ोगसुखासनं विभुं
+महानुभावं पुरुषोत्तमोत्तमम् ।
+सान्द्राम्बुदाभं सुपिशङ्गवाससं
+प्रसन्नवक्त्रं रुचिरायतेक्षणम् ॥ ५४ ॥
+महामणिव्रातकिरीटकुण्डल-
+प्रभापरिक्षिप्तसहस्रकुन्तलम् ।
+प्रलम्बचार्वष्टभुजं सकौस्तुभं
+श्रीवत्सलक्ष्मं वनमालया वृतम् ॥ ५५ ॥
+सुनन्दनन्दप्रमुखै: स्वपार्षदै-
+श्चक्रादिभिर्मूर्तिधरैर्निजायुधै: ।
+पुष्‍ट्या श्रिया कीर्त्यजयाखिलर्धिभि-
+र्निषेव्यमानं परमेष्ठिनां पतिम् ॥ ५६ ॥
+
+**Transliteration:**
+
+dadarśa tad-bhoga-sukhāsanaṁ vibhuṁ
+mahānubhāvaṁ puruṣottamottamam
+sāndrāmbudābhaṁ su-piśaṅga-vāsasaṁ
+prasanna-vaktraṁ rucirāyatekṣaṇam
+mahā-maṇi-vrāta-kirīṭa-kuṇḍala
+prabhā-parikṣipta-sahasra-kuntalam
+pralamba-cārv-aṣṭa-bhujaṁ sa-kaustubhaṁ
+śrīvatsa-lakṣmaṁ vana-mālayāvṛtam
+sunanda-nanda-pramukhaiḥ sva-pārṣadaiś
+cakrādibhir mūrti-dharair nijāyudhaiḥ
+puṣṭyā śrīyā kīrty-ajayākhilardhibhir
+niṣevyamānaṁ parameṣṭhināṁ patim
+
+**Synonyms:**
+
+Synonyms
+dadarśa — (Arjuna) saw; tat — that; bhoga — serpent; sukha — comfortable; āsanam — whose seat; vibhum — all-pervasive; mahā-anubhāvam — almighty; puruṣa-uttama — of Personalities of Godhead; uttamam — the supreme; sāndra — dense; ambuda — a cloud; ābham — resembling (with His blue complexion); su — beautiful; piśaṅga — yellow; vāsasam — whose dress; prasanna — pleasing; vaktram — whose face; rucira — attractive; āyata — broad; īkṣaṇam — whose eyes; mahā — great; maṇi — of jewels; vrāta — with clusters; kirīṭa — of His crown; kuṇḍala — and earrings; prabhā — with the reflected brilliance; parikṣipta — scattered about; sahasra — thousands; kuntalam — whose locks of hair; pralamba — long; cāru — handsome; aṣṭa — eight; bhujam — whose arms; sa — having; kaustubham — the Kaustubha gem; śrīvatsa-lakṣmam — and displaying the special mark known as Śrīvatsa; vana — of forest flowers; mālayā — by a garland; āvṛtam — embraced; sunanda-nanda-pramukhaiḥ — headed by Sunanda and Nanda; sva-pārṣadaiḥ — by His personal associates; cakra-ādibhiḥ — the disc and so on; mūrti — personal forms; dharaiḥ — manifesting; nija — His own; āyudhaiḥ — by the weapons; puṣṭyā śriyā kīrti-ajayā — by His energies Puṣṭi, Śrī, Kīrti and Ajā; akhila — all; ṛdhibhiḥ — by His mystic powers; niṣevyamānam — being served; parameṣṭhinam — of universal rulers; patim — the chief.
+
+**Translation:**
+
+Translation
+Arjuna then saw the omnipresent and omnipotent Supreme Personality of Godhead, Mahā-Viṣṇu, sitting at ease on the serpent bed. His bluish complexion was the color of a dense rain cloud, He wore a beautiful yellow garment, His face looked charming, His broad eyes were most attractive, and He had eight long, handsome arms. His profuse locks of hair were bathed on all sides in the brilliance reflected from the clusters of precious jewels decorating His crown and earrings. He wore the Kaustubha gem, the mark of Śrīvatsa and a garland of forest flowers. Serving that topmost of all Lords were His personal attendants, headed by Sunanda and Nanda; His cakra and other weapons in their personified forms; His consort potencies Puṣṭi, Śrī, Kīrti and Ajā; and all His various mystic powers.
+
+**Purport:**
+
+Purport
+Śrīla Prabhupāda mentions that “the Lord has innumerable energies, and they were also standing there personified. The most important among them were as follows: Puṣṭi, the energy for nourishment; Śrī, the energy of beauty; Kīrti, the energy of reputation; and Ajā, the energy of material creation. All these energies are invested in the administrators of the material world, namely Lord Brahmā, Lord Śiva and Lord Viṣṇu, and in the kings of the heavenly planets, Indra, Candra, Varuṇa and the sungod. In other words, all these demigods, being empowered by the Lord with certain energies, engage in the transcendental loving service of the Supreme Personality of Godhead.”
+

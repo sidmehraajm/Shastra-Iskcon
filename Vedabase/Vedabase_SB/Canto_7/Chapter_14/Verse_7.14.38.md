@@ -1,0 +1,39 @@
+# ŚB 7.14.38
+
+**Sanskrit:**
+
+तेष्वेव भगवान् राजंस्तारतम्येन वर्तते ।
+तस्मात्पात्रं हि पुरुषो यावानात्मा यथेयते ॥ ३८ ॥
+
+**Transliteration:**
+
+teṣv eva bhagavān rājaṁs
+tāratamyena vartate
+tasmāt pātraṁ hi puruṣo
+yāvān ātmā yatheyate
+
+**Synonyms:**
+
+Synonyms
+teṣu — among the different types of bodies (demigod, human, animal, bird, etc.); eva — indeed; bhagavān — the Supreme Personality of Godhead in His Paramātmā feature; rājan — O King; tāratamyena — comparatively, more or less; vartate — is situated; tasmāt — therefore; pātram — the Supreme Person; hi — indeed; puruṣaḥ — Paramātmā; yāvān — as far as; ātmā — the degree of understanding; yathā — development of austerity and penance; īyate — is manifest.
+
+**Translation:**
+
+Translation
+O King Yudhiṣṭhira, the Supersoul in every body gives intelligence to the individual soul according to his capacity for understanding. Therefore the Supersoul is the chief within the body. The Supersoul is manifested to the individual soul according to the individual’s comparative development of knowledge, austerity, penance and so on.
+
+**Purport:**
+
+Purport
+In Bhagavad-gītā (15.15) it is said, mattaḥ smṛtir jñānam apohanaṁ ca: the Supreme Personality of Godhead in His localized aspect gives intelligence to the individual soul as far as he is able to grasp it. Therefore we find the individual soul in different high and low positions. A living entity with the body of a bird or beast cannot take instructions from the Supreme Soul as adequately as an advanced human being. Thus there are gradations of bodily forms. In human society, the perfect brāhmaṇa is supposed to be the most advanced in spiritual consciousness, and further advanced than the brāhmaṇa is the Vaiṣṇava. Therefore the best persons are the Vaiṣṇavas and Viṣṇu. When charity is to be given, one should take instruction from Bhagavad-gītā (17.20):
+dātavyam iti yad dānaṁ
+dīyate ’nupakāriṇe
+deśe kāle ca pātre ca
+tad dānaṁ sāttvikaṁ smṛtam
+“That gift which is given out of duty, at the proper time and place, to a worthy person, and without expectation of return, is considered to be charity in the mode of goodness.” One should give charity to the brāhmaṇas and Vaiṣṇavas, for thus the Supreme Personality of Godhead will be worshiped. In this connection, Śrīla Madhvācārya comments:
+brahmādi-sthāvarānteṣu
+na viśeṣo hareḥ kvacit
+vyakti-mātra-viśeṣeṇa
+tāratamyaṁ vadanti ca
+Beginning from Brahmā down to the ant, everyone is conducted by the Supersoul (īśvaraḥ sarva-bhūtānāṁ hṛd-deśe ’rjuna tiṣṭhati). But because of a particular person’s advancement in spiritual consciousness, he is considered to be important. Therefore, the brāhmaṇa Vaiṣṇava is important, and, above all, the Supersoul, the Personality of Godhead, is the most important personality.
+

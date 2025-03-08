@@ -1,0 +1,29 @@
+# ŚB 10.10.15
+
+**Sanskrit:**
+
+दरिद्रो निरहंस्तम्भो मुक्त: सर्वमदैरिह ।
+कृच्छ्रं यद‍ृच्छयाप्नोति तद्धि तस्य परं तप: ॥ १५ ॥
+
+**Transliteration:**
+
+daridro nirahaṁ-stambho
+muktaḥ sarva-madair iha
+kṛcchraṁ yadṛcchayāpnoti
+tad dhi tasya paraṁ tapaḥ
+
+**Synonyms:**
+
+Synonyms
+daridraḥ — a poverty-stricken person; nir-aham-stambhaḥ — is automatically freed from all false prestige; muktaḥ — liberated; sarva — all; madaiḥ — from false ego; iha — in this world; kṛcchram — with great difficulty; yadṛcchayā āpnoti — what he gains by chance from providence; tat — that; hi — indeed; tasya — his; param — perfect; tapaḥ — austerity.
+
+**Translation:**
+
+Translation
+A poverty-stricken man must automatically undergo austerities and penances because he does not have the wealth to possess anything. Thus his false prestige is vanquished. Always in need of food, shelter and clothing, he must be satisfied with what is obtained by the mercy of providence. Undergoing such compulsory austerities is good for him because this purifies him and completely frees him from false ego.
+
+**Purport:**
+
+Purport
+A saintly person voluntarily accepts a state of poverty just to become free from material false prestige. Many great kings left their princely standard of living and went to the forest to practice austerity according to Vedic culture, just to become purified. But if one who cannot voluntarily accept such austerity is put into a situation of poverty, he automatically must practice austerity. Austerity is good for everyone because it frees one from material conditions. Therefore, if one is very much proud of his material position, putting him into poverty is the best way to rectify his foolishness. Dāridrya-doṣo guṇa-rāśi-nāśi: when a person is poverty-stricken, naturally his false pride in aristocracy, wealth, education and beauty is smashed. Thus corrected, he is in the right position for liberation.
+

@@ -1,0 +1,20 @@
+# ŚB 5.21.4
+
+**Sanskrit:**
+
+यदा मेषतुलयोर्वर्तते तदाहोरात्राणि समानानि भवन्ति यदा वृषभादिषु पञ्चसु च राशिषु चरति तदाहान्येव वर्धन्ते ह्रसति च मासि मास्येकैका घटिका रात्रिषु ॥ ४ ॥
+
+**Transliteration:**
+
+yadā meṣa-tulayor vartate tadāho-rātrāṇi samānāni bhavanti yadā vṛṣabhādiṣu pañcasu ca rāśiṣu carati tadāhāny eva vardhante hrasati ca māsi māsy ekaikā ghaṭikā rātriṣu.
+
+**Synonyms:**
+
+Synonyms
+yadā — when; meṣa-tulayoḥ — in Meṣa (Aries) and Tulā (Libra); vartate — the sun exists; tadā — at that time; ahaḥ-rātrāṇi — the days and nights; samānāni — equal in duration; bhavanti — are; yadā — when; vṛṣabha-ādiṣu — headed by Vṛṣabha (Taurus) and Mithuna (Gemini); pañcasu — in the five; ca — also; rāśiṣu — signs; carati — moves; tadā — at that time; ahāni — the days; eva — certainly; vardhante — increase; hrasati — is diminished; ca — and; māsi māsi — in every month; eka-ekā — one; ghaṭikā — half hour; rātriṣu — in the nights.
+
+**Translation:**
+
+Translation
+When the sun passes through Meṣa [Aries] and Tulā [Libra], the durations of day and night are equal. When it passes through the five signs headed by Vṛṣabha [Taurus], the duration of the days increases [until Cancer], and then it gradually decreases by half an hour each month, until day and night again become equal [in Libra].
+

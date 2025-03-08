@@ -1,0 +1,31 @@
+# ŚB 10.16.30
+
+**Sanskrit:**
+
+तच्चित्रताण्डवविरुग्नफणासहस्रो
+रक्तं मुखैरुरु वमन्नृप भग्नगात्र: ।
+स्मृत्वा चराचरगुरुं पुरुषं पुराणं
+नारायणं तमरणं मनसा जगाम ॥ ३० ॥
+
+**Transliteration:**
+
+tac-citra-tāṇḍava-virugna-phaṇā-sahasro
+raktaṁ mukhair uru vaman nṛpa bhagna-gātraḥ
+smṛtvā carācara-guruṁ puruṣaṁ purāṇaṁ
+nārāyaṇaṁ tam araṇaṁ manasā jagāma
+
+**Synonyms:**
+
+Synonyms
+tat — of Him; citra — amazing; tāṇḍava — by the powerful dancing; virugna — broken; phaṇā-sahasraḥ — his one thousand hoods; raktam — blood; mukhaiḥ — from his mouths; uru — profusely; vaman — vomiting; nṛpa — O King Parīkṣit; bhagna-gātraḥ — his limbs crushed; smṛtvā — remembering; cara-acara — of all moving and nonmoving beings; gurum — the spiritual master; puruṣam — the Personality of Godhead; purāṇam — ancient; nārāyaṇam — Lord Nārāyaṇa; tam — to Him; araṇam — for shelter; manasā — within his mind; jagāma — he approached.
+
+**Translation:**
+
+Translation
+My dear King Parīkṣit, Lord Kṛṣṇa’s wonderful, powerful dancing trampled and broke all of Kāliya’s one thousand hoods. Then the serpent, profusely vomiting blood from his mouths, finally recognized Śrī Kṛṣṇa to be the eternal Personality of Godhead, the supreme master of all moving and nonmoving beings, Śrī Nārāyaṇa. Thus within his mind Kāliya took shelter of the Lord.
+
+**Purport:**
+
+Purport
+In Chapter Sixteen of Kṛṣṇa, the Supreme Personality of Godhead, Śrīla Prabhupāda points out that whereas previously Kāliya was vomiting poison, now his poison was exhausted and he began to vomit blood. Thus he had been cleansed of the vile contamination within his heart that had manifested as serpent’s venom. The word smṛtvā, “remembering,” is very significant here. The wives of Kāliya were actually serious devotees of Lord Kṛṣṇa, and according to the ācāryas they had often tried to convince their husband to surrender to Him. Finally, finding himself in unbearable agony, Kāliya remembered his wives’ advice and took shelter of the Lord. Śrīla Viśvanātha Cakravartī Ṭhākura explains that Kāliya’s archrival had traditionally been Garuḍa, the carrier of Viṣṇu. But now Kāliya realized that he was fighting an opponent who was thousands of times stronger than Garuḍa and who therefore could be only the Supreme Personality of Godhead. Thus Kāliya took shelter of Lord Kṛṣṇa.
+

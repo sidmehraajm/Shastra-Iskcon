@@ -1,0 +1,24 @@
+# ŚB 4.19.31
+
+**Sanskrit:**
+
+तदिदं पश्यत महद्धर्मव्यतिकरं द्विजा: ।
+इन्द्रेणानुष्ठितं राज्ञ: कर्मैतद्विजिघांसता ॥ ३१ ॥
+
+**Transliteration:**
+
+tad idaṁ paśyata mahad-
+dharma-vyatikaraṁ dvijāḥ
+indreṇānuṣṭhitaṁ rājñaḥ
+karmaitad vijighāṁsatā
+
+**Synonyms:**
+
+Synonyms
+tat — then; idam — this; paśyata — just see; mahat — great; dharma — of religious life; vyatikaram — violation; dvijāḥ — O great brāhmaṇas; indreṇa — by Indra; anuṣṭhitam — performed; rājñaḥ — of the King; karma — activity; etat — this sacrifice; vijighāṁsatā — desiring to impede.
+
+**Translation:**
+
+Translation
+In order to make trouble and impede the performance of King Pṛthu’s great sacrifice, King Indra has adopted some means that in the future will destroy the clear path of religious life. I draw your attention to this fact. If you oppose him any further, he will further misuse his power and introduce many other irreligious systems.
+

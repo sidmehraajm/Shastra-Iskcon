@@ -1,0 +1,22 @@
+# CC Madhya 16.84
+
+**Bengali:**
+
+এইমত মহাপ্রভুর চারি বৎসর গেল ।
+দক্ষিণ যাঞা আসিতে দুই বৎসর লাগিল ॥ ৮৪ ॥
+
+**Transliteration:**
+
+ei-mata mahāprabhura cāri vatsara gela
+dakṣiṇa yāñā āsite dui vatsara lāgila
+
+**Synonyms:**
+
+Synonyms
+ei-mata — in this way; mahāprabhura — of Śrī Caitanya Mahāprabhu; cāri — four; vatsara — years; gela — passed; dakṣiṇa yāñā — after touring southern India; āsite — to come back; dui vatsara lāgila — He took two years.
+
+**Translation:**
+
+Translation
+Thus Śrī Caitanya Mahāprabhu passed four years. He spent the first two years on His tour in South India.
+

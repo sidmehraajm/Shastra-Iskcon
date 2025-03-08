@@ -1,0 +1,29 @@
+# ŚB 3.26.56
+
+**Sanskrit:**
+
+निर्बिभेद विराजस्त्वग्रोमश्मश्रवादयस्तत: ।
+तत ओषधयश्चासन् शिश्नं निर्बिभिदे तत: ॥ ५६ ॥
+
+**Transliteration:**
+
+nirbibheda virājas tvag-
+roma-śmaśrv-ādayas tataḥ
+tata oṣadhayaś cāsan
+śiśnaṁ nirbibhide tataḥ
+
+**Synonyms:**
+
+Synonyms
+nirbibheda — appeared; virājaḥ — of the universal form; tvak — skin; roma — hair; śmaśru — beard, mustache; ādayaḥ — and so on; tataḥ — then; tataḥ — thereupon; oṣadhayaḥ — the herbs and drugs; ca — and; āsan — appeared; śiśnam — genitals; nirbibhide — appeared; tataḥ — after this.
+
+**Translation:**
+
+Translation
+Then the universal form of the Lord, the virāṭ-puruṣa, manifested His skin, and thereupon the hair, mustache and beard appeared. After this all the herbs and drugs became manifested, and then His genitals also appeared.
+
+**Purport:**
+
+Purport
+The skin is the site of the touch sensation. The demigods who control the production of herbs and medicinal drugs are the deities presiding over the tactile sense.
+

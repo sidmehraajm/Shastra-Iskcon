@@ -1,0 +1,24 @@
+# ŚB 7.2.54
+
+**Sanskrit:**
+
+कामं नयतु मां देव: किमर्धेनात्मनो हि मे ।
+दीनेन जीवता दु:खमनेन विधुरायुषा ॥ ५४ ॥
+
+**Transliteration:**
+
+kāmaṁ nayatu māṁ devaḥ
+kim ardhenātmano hi me
+dīnena jīvatā duḥkham
+anena vidhurāyuṣā
+
+**Synonyms:**
+
+Synonyms
+kāmam — as He likes; nayatu — let Him take away; mām — me; devaḥ — the Supreme Lord; kim — what use; ardhena — with half; ātmanaḥ — of the body; hi — indeed; me — my; dīnena — poor; jīvatā — living; duḥkham — in suffering; anena — this; vidhura-āyuṣā — having a lifetime full of affliction.
+
+**Translation:**
+
+Translation
+If unkind Providence takes away my wife, who is half my body, why should He not take me also? What is the use of my living with half of my body, bereaved by loss of my wife? What shall I gain in this way?
+

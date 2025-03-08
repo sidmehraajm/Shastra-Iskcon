@@ -1,0 +1,22 @@
+# CC Ādi 12.11
+
+**Bengali:**
+
+অসারের নামে ইহাঁ নাহি প্রয়োজন ।
+ভেদ জানিবারে করি একত্র গণন ॥ ১১ ॥
+
+**Transliteration:**
+
+asārera nāme ihāṅ nāhi prayojana
+bheda jānibāre kari ekatra gaṇana
+
+**Synonyms:**
+
+Synonyms
+asārera — of the useless persons; nāme — in their name; ihāṅ — in this connection; nāhi — there is no; prayojana — use; bheda — differences; jānibāre — to know; kari — I do; ekatra — in one list; gaṇana — counting.
+
+**Translation:**
+
+Translation
+There is no need to name those who are useless. I have mentioned them only to distinguish them from the useful devotees.
+

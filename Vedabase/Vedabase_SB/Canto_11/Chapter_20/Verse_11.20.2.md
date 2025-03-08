@@ -1,0 +1,29 @@
+# ŚB 11.20.2
+
+**Sanskrit:**
+
+वर्णाश्रमविकल्पं च प्रतिलोमानुलोमजम् ।
+द्रव्यदेशवय:कालान् स्वर्गं नरकमेव च ॥ २ ॥
+
+**Transliteration:**
+
+varṇāśrama-vikalpaṁ ca
+pratilomānulomajam
+dravya-deśa-vayaḥ-kālān
+svargaṁ narakam eva ca
+
+**Synonyms:**
+
+Synonyms
+varṇa-āśrama — of the varṇāśrama system; vikalpam — the variety of superior and inferior positions created by piety and sin; ca — and; pratiloma — birth in a mixed family wherein the father is inferior in social status to the mother; anuloma-jam — birth in a mixed family in which the father is superior in social status to the mother; dravya — material objects or possessions; deśa — the place; vayaḥ — one’s age; kālān — the time; svargam — heaven; narakam — hell; eva — indeed; ca — also.
+
+**Translation:**
+
+Translation
+According to Vedic literature, the superior and inferior varieties found in the human social system, varṇāśrama, are due to pious and sinful modes of family planning. Thus piety and sin are constant points of reference in the Vedic analysis of the components of a given situation — namely the material ingredients, place, age and time. Indeed, the Vedas reveal the existence of material heaven and hell, which are certainly based on piety and sin.
+
+**Purport:**
+
+Purport
+Pratiloma indicates the combination of a superior woman with an inferior man. For example, the vaidehaka community consists of those born of a śūdra father and brāhmaṇa mother, whereas the sūtas are those born from a kṣatriya father and a brāhmaṇa mother or from a śūdra father and kṣatriya mother. Anuloma indicates those born from a superior father and inferior mother. The mūrdhāvasikta are those born of a brāhmaṇa father and kṣatriya mother. Ambaṣṭhas are those born from a brāhmaṇa father and vaiśya mother, and they often become medical men. Karaṇa indicates those born of a vaiśya father and śūdra mother or of a kṣatriya father and vaiśya mother. That such mixing of castes is not very much appreciated in the Vedic culture is demonstrated in the First Chapter of Bhagavad-gītā. Arjuna was very worried that the death of so many kṣatriyas on the battlefield would lead to the mixing of superior women with inferior men, and on those grounds he objected to fighting. In any case, the entire Vedic social system is based on distinguishing between piety and sin, and Śrī Uddhava is encouraging the Lord to explain more elaborately His statement that one should transcend both piety and sin.
+

@@ -1,0 +1,27 @@
+# CC Ādi 11.47
+
+**Bengali:**
+
+হোড় কৃষ্ণদাস—নিত্যানন্দপ্রভু–প্রাণ ।
+নিত্যানন্দ–পদ বিনু নাহি জানে আন ॥ ৪৭ ॥
+
+**Transliteration:**
+
+hoḍa kṛṣṇadāsa — nityānanda-prabhu-prāṇa
+nityānanda-pada vinu nāhi jāne āna
+
+**Synonyms:**
+
+Synonyms
+hoḍa kṛṣṇadāsa — Hoḍa Kṛṣṇadāsa; nityānanda-prabhu — of Lord Nityānanda; prāṇa — life and soul; nityānanda-pada — the lotus feet of Lord Nityānanda; vinu — except; nāhi — does not; jāne — know; āna — anything else.
+
+**Translation:**
+
+Translation
+The thirty-sixth devotee of Lord Nityānanda was Hoḍa Kṛṣṇadāsa, whose life and soul was Nityānanda Prabhu. He was always dedicated to the lotus feet of Nityānanda, and he knew no one else but Him.
+
+**Purport:**
+
+Purport
+The residence of Kṛṣṇadāsa Hoḍa was Baḍagāchi, which is now in Bangladesh.
+

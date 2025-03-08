@@ -1,0 +1,28 @@
+# ŚB 10.1.47
+
+**Sanskrit:**
+
+निर्बन्धं तस्य तं ज्ञात्वा विचिन्त्यानकदुन्दुभि: । प्राप्तं कालं प्रतिव्योढुमिदं तत्रान्वपद्यत ॥ ४७ ॥
+
+**Transliteration:**
+
+nirbandhaṁ tasya taṁ jñātvā
+vicintyānakadundubhiḥ
+prāptaṁ kālaṁ prativyoḍhum
+idaṁ tatrānvapadyata
+
+**Synonyms:**
+
+Synonyms
+nirbandham — determination to do something; tasya — of him (Kaṁsa); tam — that (determination); jñātvā — understanding; vicintya — thinking deeply; ānakadundubhiḥ — Vasudeva; prāptam — had arrived; kālam — imminent danger of death; prativyoḍhum — to stop him from such activities; idam — this; tatra — thereupon; anvapadyata — thought of other ways.
+
+**Translation:**
+
+Translation
+When Vasudeva saw that Kaṁsa was determined to kill his sister Devakī, he thought to himself very deeply. Considering the imminent danger of death, he thought of another plan to stop Kaṁsa.
+
+**Purport:**
+
+Purport
+Although Vasudeva saw the imminent danger that his wife Devakī would be killed, he was convinced of his welfare because at his birth the demigods had played drums and kettledrums. He therefore attempted another way to save Devakī.
+

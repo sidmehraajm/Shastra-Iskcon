@@ -1,0 +1,22 @@
+# CC Madhya 5.125
+
+**Bengali:**
+
+তাঁহার মহিষী আইলা গোপাল-দর্শনে ।
+ভক্তি করি’ বহু অলঙ্কার কৈল সমর্পণে ॥ ১২৫ ॥
+
+**Transliteration:**
+
+tāṅhāra mahiṣī āilā gopāla-darśane
+bhakti kari’ bahu alaṅkāra kaila samarpaṇe
+
+**Synonyms:**
+
+Synonyms
+tāṅhāra mahiṣī — his Queen; āilā — came; gopāla-darśane — to see the Gopāla Deity; bhakti kari’ — in great devotion; bahu — various; alaṅkāra — of ornaments; kaila — made; samarpaṇe — presentation.
+
+**Translation:**
+
+Translation
+When the Gopāla Deity was installed at Kaṭaka, the Queen of Puruṣottama-deva went to see Him and, with great devotion, presented various kinds of ornaments.
+

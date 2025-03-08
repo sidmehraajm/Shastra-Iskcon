@@ -1,0 +1,22 @@
+# CC Madhya 6.129
+
+**Bengali:**
+
+তুমি শুনি’ শুনি’ রহ মৌন মাত্র ধরি’ ।
+হৃদয়ে কি আছে তোমার, বুঝিতে না পারি ॥ ১২৯ ॥
+
+**Transliteration:**
+
+tumi śuni’ śuni’ raha mauna mātra dhari’
+hṛdaye ki āche tomāra, bujhite nā pāri
+
+**Synonyms:**
+
+Synonyms
+tumi — You; śuni’ — hearing; śuni’ — hearing; raha — keep; mauna — silence; mātra — only; dhari’ — holding; hṛdaye — in the heart; ki — what; āche — there is; tomāra — Your; bujhite — to understand; nā — not; pāri — am able.
+
+**Translation:**
+
+Translation
+“You are hearing again and again, yet You keep silent. I cannot understand what is actually within Your mind.”
+

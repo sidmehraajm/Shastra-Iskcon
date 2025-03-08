@@ -1,0 +1,26 @@
+# ŚB 10.12.32
+
+**Sanskrit:**
+
+तेनैव सर्वेषु बहिर्गतेषु
+प्राणेषु वत्सान् सुहृद: परेतान् ।
+द‍ृष्टय‍ा स्वयोत्थाप्य तदन्वित: पुन-
+र्वक्त्रान्मुकुन्दो भगवान् विनिर्ययौ ॥ ३२ ॥
+
+**Transliteration:**
+
+tenaiva sarveṣu bahir gateṣu
+prāṇeṣu vatsān suhṛdaḥ paretān
+dṛṣṭyā svayotthāpya tad-anvitaḥ punar
+vaktrān mukundo bhagavān viniryayau
+
+**Synonyms:**
+
+Synonyms
+tena eva — through that brahma-randhra, or the hole in the top of the head; sarveṣu — all the air within the body; bahiḥ gateṣu — having gone out; prāṇeṣu — the life airs, along with the vital force; vatsān — the calves; suhṛdaḥ — the cowherd boyfriends; paretān — who were all dead within; dṛṣṭyā svayā — by Kṛṣṇa’s glancing over; utthāpya — brought them back to life; tat-anvitaḥ — thus accompanied by them; punaḥ — again; vaktrāt — from the mouth; mukundaḥ — the Supreme Personality of Godhead; bhagavān — Kṛṣṇa; viniryayau — came out.
+
+**Translation:**
+
+Translation
+When all the demon’s life air had passed away through that hole in the top of his head, Kṛṣṇa glanced over the dead calves and cowherd boys and brought them back to life. Then Mukunda, who can give one liberation, came out from the demon’s mouth with His friends and the calves.
+

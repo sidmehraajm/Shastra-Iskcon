@@ -1,0 +1,24 @@
+# ŚB 6.14.11
+
+**Sanskrit:**
+
+तस्य भार्यासहस्राणां सहस्राणि दशाभवन् ।
+सान्तानिकश्चापि नृपो न लेभे तासु सन्ततिम् ॥ ११ ॥
+
+**Transliteration:**
+
+tasya bhāryā-sahasrāṇāṁ
+sahasrāṇi daśābhavan
+sāntānikaś cāpi nṛpo
+na lebhe tāsu santatim
+
+**Synonyms:**
+
+Synonyms
+tasya — of him (King Citraketu); bhāryā — of wives; sahasrāṇām — of thousands; sahasrāṇi — thousands; daśa — ten; abhavan — there were; sāntānikaḥ — quite capable of begetting sons; ca — and; api — although; nṛpaḥ — the King; na — not; lebhe — obtained; tāsu — in them; santatim — a son.
+
+**Translation:**
+
+Translation
+This Citraketu had ten million wives, but although he was capable of producing children, he did not receive a child from any of them. By chance, all the wives were barren.
+

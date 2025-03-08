@@ -1,0 +1,29 @@
+# ŚB 10.7.12
+
+**Sanskrit:**
+
+पूर्ववत् स्थापितं गोपैर्बलिभि: सपरिच्छदम् ।
+विप्रा हुत्वार्चयांचक्रुर्दध्यक्षतकुशाम्बुभि: ॥ १२ ॥
+
+**Transliteration:**
+
+pūrvavat sthāpitaṁ gopair
+balibhiḥ sa-paricchadam
+viprā hutvārcayāṁ cakrur
+dadhy-akṣata-kuśāmbubhiḥ
+
+**Synonyms:**
+
+Synonyms
+pūrva-vat — as the handcart had been situated before; sthāpitam — again assembled with the pots situated properly; gopaiḥ — by the cowherd men; balibhiḥ — all of whom were very strong and stout and who could therefore assemble the parts without difficulty; sa-paricchadam — with all the paraphernalia kept on it; viprāḥ — the brāhmaṇas; hutvā — after performing a fire ceremony; arcayām cakruḥ — performed ritualistic ceremonies; dadhi — with curd; akṣata — grains of rice; kuśa — and kuśa grass; ambubhiḥ — with water.
+
+**Translation:**
+
+Translation
+After the strong, stout cowherd men assembled the pots and paraphernalia on the handcart and set it up as before, the brāhmaṇas performed a ritualistic ceremony with a fire sacrifice to appease the bad planet, and then, with rice grains, kuśa, water and curd, they worshiped the Supreme Lord.
+
+**Purport:**
+
+Purport
+The handcart was loaded with heavy utensils and other paraphernalia. To set the cart back in its original position required much strength, but this was easily done by the cowherd men. Then, according to the system of the gopa-jāti, various Vedic ceremonies were performed to appease the calamitous situation.
+

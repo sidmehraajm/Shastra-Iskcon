@@ -1,0 +1,22 @@
+# CC Ādi 8.23
+
+**Bengali:**
+
+‘নিত্যানন্দ’ বলিতে হয় কৃষ্ণ–প্রেমোদয় ।
+আউলায় সকল অঙ্গ, অশ্রু–গঙ্গা বয় ॥ ২৩ ॥
+
+**Transliteration:**
+
+‘nityānanda’ balite haya kṛṣṇa-premodaya
+āulāya sakala aṅga, aśru-gaṅgā vaya
+
+**Synonyms:**
+
+Synonyms
+nityānanda balite — while talking of Nityānanda Prabhu; haya — it so becomes; kṛṣṇa-prema-udaya — awakening of love of Kṛṣṇa; āulāya — agitated; sakala — all; aṅga — limbs of the body; aśru-gaṅgā — tears like the Ganges waters; vaya — flow down.
+
+**Translation:**
+
+Translation
+Simply by talking of Nityānanda Prabhu one awakens his love for Kṛṣṇa. Thus all his bodily limbs are agitated by ecstasy, and tears flow from his eyes like the waters of the Ganges.
+

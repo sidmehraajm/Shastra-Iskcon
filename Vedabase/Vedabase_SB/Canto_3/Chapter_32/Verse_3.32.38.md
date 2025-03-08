@@ -1,0 +1,29 @@
+# ŚB 3.32.38
+
+**Sanskrit:**
+
+जीवस्य संसृतीर्बह्वीरविद्याकर्मनिर्मिता: ।
+यास्वङ्ग प्रविशन्नात्मा न वेद गतिमात्मन: ॥ ३८ ॥
+
+**Transliteration:**
+
+jīvasya saṁsṛtīr bahvīr
+avidyā-karma-nirmitāḥ
+yāsv aṅga praviśann ātmā
+na veda gatim ātmanaḥ
+
+**Synonyms:**
+
+Synonyms
+jīvasya — of the living entity; saṁsṛtīḥ — courses of material existence; bahvīḥ — many; avidyā — in ignorance; karma — by work; nirmitāḥ — produced; yāsu — into which; aṅga — My dear mother; praviśan — entering; ātmā — the living entity; na — not; veda — understands; gatim — the movement; ātmanaḥ — of himself.
+
+**Translation:**
+
+Translation
+There are varieties of material existence for the living entity according to the work he performs in ignorance or forgetfulness of his real identity. My dear mother, if anyone enters into that forgetfulness, he is unable to understand where his movements will end.
+
+**Purport:**
+
+Purport
+Once one enters into the continuation of material existence, it is very difficult to get out. Therefore the Supreme Personality of Godhead comes Himself or sends His bona fide representative, and He leaves behind scriptures like Bhagavad-gītā and Śrīmad-Bhāgavatam, so that the living entities hovering in the darkness of nescience may take advantage of the instructions, the saintly persons and the spiritual masters and thus be freed. Unless the living entity receives the mercy of the saintly persons, the spiritual master or Kṛṣṇa, it is not possible for him to get out of the darkness of material existence; by his own endeavor it is not possible.
+

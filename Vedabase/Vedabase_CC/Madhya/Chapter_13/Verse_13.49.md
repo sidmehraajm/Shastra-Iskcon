@@ -1,0 +1,22 @@
+# CC Madhya 13.49
+
+**Bengali:**
+
+বৈষ্ণবের মেঘ-ঘটায় হইল বাদল ।
+কীর্তনানন্দে সব বর্ষে নেত্র-জল ॥ ৪৯ ॥
+
+**Transliteration:**
+
+vaiṣṇavera megha-ghaṭāya ha-ila bādala
+kīrtanānande saba varṣe netra-jala
+
+**Synonyms:**
+
+Synonyms
+vaiṣṇavera — of the devotees; megha-ghaṭāya — by the assembly of clouds; ha-ila — there was; bādala — rainfall; kīrtana-ānande — in the blissful situation of chanting; saba — all of them; varṣe — rain; netra-jala — tears from the eyes.
+
+**Translation:**
+
+Translation
+All the Vaiṣṇavas came together like an assembly of clouds. As the devotees chanted the holy names in great ecstasy, tears fell from their eyes like rain.
+

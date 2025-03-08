@@ -1,0 +1,24 @@
+# ŚB 10.4.8
+
+**Sanskrit:**
+
+तां गृहीत्वा चरणयोर्जातमात्रां स्वसु: सुताम् ।
+अपोथयच्छिलापृष्ठे स्वार्थोन्मूलितसौहृद: ॥ ८ ॥
+
+**Transliteration:**
+
+tāṁ gṛhītvā caraṇayor
+jāta-mātrāṁ svasuḥ sutām
+apothayac chilā-pṛṣṭhe
+svārthonmūlita-sauhṛdaḥ
+
+**Synonyms:**
+
+Synonyms
+tām — the child; gṛhītvā — taking by force; caraṇayoḥ — by the two legs; jāta-mātrām — the newborn child; svasuḥ — of his sister; sutām — the daughter; apothayat — smashed; śilā-pṛṣṭhe — on the surface of a stone; sva-artha-unmūlita — uprooted because of intense selfishness; sauhṛdaḥ — all friendship or family relationships.
+
+**Translation:**
+
+Translation
+Having uprooted all relationships with his sister because of intense selfishness, Kaṁsa, who was sitting on his knees, grasped the newborn child by the legs and tried to dash her against the surface of a stone.
+

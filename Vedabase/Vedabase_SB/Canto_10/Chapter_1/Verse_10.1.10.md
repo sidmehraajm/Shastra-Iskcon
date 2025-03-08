@@ -1,0 +1,28 @@
+# ŚB 10.1.10
+
+**Sanskrit:**
+
+व्रजे वसन् किमकरोन्मधुपुर्यां च केशव: । भ्रातरं चावधीत् कंसं मातुरद्धातदर्हणम् ॥ १० ॥
+
+**Transliteration:**
+
+vraje vasan kim akaron
+madhupuryāṁ ca keśavaḥ
+bhrātaraṁ cāvadhīt kaṁsaṁ
+mātur addhātad-arhaṇam
+
+**Synonyms:**
+
+Synonyms
+vraje — at Vṛndāvana; vasan — while residing; kim akarot — what did He do; madhupuryām — in Mathurā; ca — and; keśavaḥ — Kṛṣṇa, the killer of Keśī; bhrātaram — the brother; ca — and; avadhīt — killed; kaṁsam — Kaṁsa; mātuḥ — of His mother; addhā — directly; a-tat-arhaṇam — which was not at all sanctioned by the śāstras..
+
+**Translation:**
+
+Translation
+Lord Kṛṣṇa lived both in Vṛndāvana and in Mathurā. What did He do there? Why did He kill Kaṁsa, His mother’s brother? Such killing is not at all sanctioned in the śāstras.
+
+**Purport:**
+
+Purport
+One’s maternal uncle, the brother of one’s mother, is on the level of one’s father. When a maternal uncle has no son, his nephew legally inherits his property. Therefore, why did Kṛṣṇa directly kill Kaṁsa, the brother of His mother? Mahārāja Parīkṣit was very much inquisitive about the facts in this regard.
+

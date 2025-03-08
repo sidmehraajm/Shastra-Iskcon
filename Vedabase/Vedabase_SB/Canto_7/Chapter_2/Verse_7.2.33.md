@@ -1,0 +1,26 @@
+# ŚB 7.2.33
+
+**Sanskrit:**
+
+अहो विधात्राकरुणेन न: प्रभो
+भवान् प्रणीतो द‍ृगगोचरां दशाम् ।
+उशीनराणामसि वृत्तिद: पुरा
+कृतोऽधुना येन शुचां विवर्धन: ॥ ३३ ॥
+
+**Transliteration:**
+
+aho vidhātrākaruṇena naḥ prabho
+bhavān praṇīto dṛg-agocarāṁ daśām
+uśīnarāṇām asi vṛttidaḥ purā
+kṛto ’dhunā yena śucāṁ vivardhanaḥ
+
+**Synonyms:**
+
+Synonyms
+aho — alas; vidhātrā — by providence; akaruṇena — who is merciless; naḥ — our; prabho — O lord; bhavān — Your Lordship; praṇītaḥ — taken away; dṛk — of sight; agocarām — beyond the range; daśām — to a state; uśīnarāṇām — to the inhabitants of the state of Uśīnara; asi — you were; vṛtti-daḥ — giving livelihood; purā — formerly; kṛtaḥ — finished; adhunā — now; yena — by whom; śucām — of lamentation; vivardhanaḥ — increasing.
+
+**Translation:**
+
+Translation
+O lord, you have now been removed by cruel providence to a state beyond our sight. You had previously sustained the livelihood of the inhabitants of Uśīnara, and thus they were happy, but your condition now is the cause of their unhappiness.
+

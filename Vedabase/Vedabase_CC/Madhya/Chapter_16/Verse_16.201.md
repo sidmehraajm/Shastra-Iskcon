@@ -1,0 +1,22 @@
+# CC Madhya 16.201
+
+**Bengali:**
+
+অলৌকিক লীলা করে শ্রীকৃষ্ণচৈতন্য ।
+যেই ইহা শুনে তাঁর জন্ম, দেহ ধন্য ॥ ২০১ ॥
+
+**Transliteration:**
+
+alaukika līlā kare śrī-kṛṣṇa-caitanya
+yei ihā śune tāṅra janma, deha dhanya
+
+**Synonyms:**
+
+Synonyms
+alaukika — uncommon; līlā — pastimes; kare — performs; śrī-kṛṣṇa-caitanya — Śrī Caitanya Mahāprabhu; yei — anyone who; ihā — this; śune — hears; tāṅra — his; janma — birth; deha — body; dhanya — glorified.
+
+**Translation:**
+
+Translation
+Lord Śrī Caitanya Mahāprabhu’s pastimes are all uncommon. Whoever listens to His activities becomes glorious, and his life becomes perfect.
+

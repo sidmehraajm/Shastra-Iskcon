@@ -1,0 +1,35 @@
+# ŚB 10.33.38
+
+**Sanskrit:**
+
+ब्रह्मरात्र उपावृत्ते वासुदेवानुमोदिता: ।
+अनिच्छन्त्यो ययुर्गोप्य: स्वगृहान्भगवत्प्रिया: ॥ ३८ ॥
+
+**Transliteration:**
+
+brahma-rātra upāvṛtte
+vāsudevānumoditāḥ
+anicchantyo yayur gopyaḥ
+sva-gṛhān bhagavat-priyāḥ
+
+**Synonyms:**
+
+Synonyms
+brahma-rātre — the nighttime of Brahmā; upāvṛtte — being completed; vāsudeva — by Lord Kṛṣṇa; anumoditāḥ — advised; anicchantyaḥ — unwilling; yayuḥ — went; gopyaḥ — the gopīs; sva-gṛhān — to their homes; bhagavat — of the Supreme Lord; priyāḥ — the dear consorts.
+
+**Translation:**
+
+Translation
+After an entire night of Brahmā had passed, Lord Kṛṣṇa advised the gopīs to return to their homes. Although they did not wish to do so, the Lord’s beloved consorts complied with His command.
+
+**Purport:**
+
+Purport
+In the Bhagavad-gītā (8.17) Lord Kṛṣṇa explains, “By human calculation, a thousand ages taken together is the duration of Brahmā’s one day. And such also is the duration of his night.” Thus one thousand ages entered within a single twelve-hour night when Lord Kṛṣṇa performed His rāsa dance. Śrīla Viśvanātha Cakravartī compares this inconceivable impression of time to the fact that many universes fit neatly within the forty-mile range of earthly Vṛndāvana. Or one may consider that mother Yaśodā could not encircle the small abdomen of child Kṛṣṇa with numerous ropes, and that at another time He manifested many universes within His mouth. The transcendence of spiritual reality above and beyond mundane physics is concisely explained in Śrīla Rūpa Gosvāmī’s Laghu-bhagavatāmṛta:
+evaṁ prabhoḥ priyāṇāṁ ca
+dhāmnaś ca samayasya ca
+avicintya-prabhāvatvād
+atra kiñcin na durghaṭam
+“Nothing is impossible for the Lord, His dear devotees, His transcendental abode or the time of His pastimes, for all these entities are inconceivably powerful.”
+Śrīla Viśvanātha Cakravartī further explains that the word vāsudevānumoditāḥ indicates that Lord Kṛṣṇa advised the gopīs, “To assure the success of these pastimes, you and I should keep them secret.” The word vāsudeva, a name of Kṛṣṇa, also indicates Lord Kṛṣṇa’s plenary expansion who acts as the presiding Deity of consciousness. When the word vāsudeva is understood in this context, the word vāsudevānumoditāḥ indicates that the presiding Deity of consciousness, Vāsudeva, manifested embarrassment and fear of their elders within the gopīs’ hearts, and therefore it was only with great reluctance that the young girls returned home.
+

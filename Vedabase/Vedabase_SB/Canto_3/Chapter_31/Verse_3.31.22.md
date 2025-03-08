@@ -1,0 +1,26 @@
+# ŚB 3.31.22
+
+**Sanskrit:**
+
+कपिल उवाच
+एवं कृतमतिर्गर्भे दशमास्य: स्तुवन्नृषि: ।
+सद्य: क्षिपत्यवाचीनं प्रसूत्यै सूतिमारुत: ॥ २२ ॥
+
+**Transliteration:**
+
+kapila uvāca
+evaṁ kṛta-matir garbhe
+daśa-māsyaḥ stuvann ṛṣiḥ
+sadyaḥ kṣipaty avācīnaṁ
+prasūtyai sūti-mārutaḥ
+
+**Synonyms:**
+
+Synonyms
+kapilaḥ uvāca — Lord Kapila said; evam — thus; kṛta-matiḥ — desiring; garbhe — in the womb; daśa-māsyaḥ — ten-month-old; stuvan — extolling; ṛṣiḥ — the living entity; sadyaḥ — at that very time; kṣipati — propels; avācīnam — turned downward; prasūtyai — for birth; sūti-mārutaḥ — the wind for childbirth.
+
+**Translation:**
+
+Translation
+Lord Kapila continued: The ten-month-old living entity has these desires even while in the womb. But while he thus extols the Lord, the wind that helps parturition propels him forth with his face turned downward so that he may be born.
+

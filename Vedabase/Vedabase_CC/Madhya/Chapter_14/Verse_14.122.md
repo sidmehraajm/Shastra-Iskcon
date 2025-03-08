@@ -1,0 +1,22 @@
+# CC Madhya 14.122
+
+**Bengali:**
+
+স্বরূপ কহে, — শুন, প্রভু, কারণ ইহার ।
+বৃন্দাবন-ক্রীড়াতে লক্ষ্মীর নাহি অধিকার ॥ ১২২ ॥
+
+**Transliteration:**
+
+svarūpa kahe, — śuna, prabhu, kāraṇa ihāra
+vṛndāvana-krīḍāte lakṣmīra nāhi adhikāra
+
+**Synonyms:**
+
+Synonyms
+svarūpa kahe — Svarūpa replied; śuna — please hear; prabhu — O my Lord; kāraṇa ihāra — the reason for this; vṛndāvana-krīḍāte — in the pastimes of Vṛndāvana; lakṣmīra — of the goddess of fortune; nāhi — there is not; adhikāra — admission.
+
+**Translation:**
+
+Translation
+Svarūpa Dāmodara replied, “My dear Lord, please hear the reason for this. Lakṣmīdevī, the goddess of fortune, cannot be admitted to the pastimes of Vṛndāvana.
+

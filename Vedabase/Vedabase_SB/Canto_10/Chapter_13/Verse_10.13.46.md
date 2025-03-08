@@ -1,0 +1,29 @@
+# ŚB 10.13.46
+
+**Sanskrit:**
+
+तावत् सर्वे वत्सपाला: पश्यतोऽजस्य तत्क्षणात् ।
+व्यद‍ृश्यन्त घनश्यामा: पीतकौशेयवासस: ॥ ४६ ॥
+
+**Transliteration:**
+
+tāvat sarve vatsa-pālāḥ
+paśyato ’jasya tat-kṣaṇāt
+vyadṛśyanta ghana-śyāmāḥ
+pīta-kauśeya-vāsasaḥ
+
+**Synonyms:**
+
+Synonyms
+tāvat — so long; sarve — all; vatsa-pālāḥ — both the calves and the boys tending them; paśyataḥ — while he was watching; ajasya — of Lord Brahmā; tat-kṣaṇāt — immediately; vyadṛśyanta — were seen; ghana-śyāmāḥ — as having a complexion resembling bluish rainclouds; pīta-kauśeya-vāsasaḥ — and dressed in yellow silk garments.
+
+**Translation:**
+
+Translation
+Then, while Lord Brahmā looked on, all the calves and the boys tending them immediately appeared to have complexions the color of bluish rainclouds and to be dressed in yellow silken garments.
+
+**Purport:**
+
+Purport
+While Brahmā was contemplating, all the calves and cowherd boys immediately transformed into viṣṇu-mūrtis, having bluish complexions and wearing yellow garments. Brahmā was contemplating his own power and the immense, unlimited power of Kṛṣṇa, but before he could come to a conclusion, he saw this immediate transformation.
+

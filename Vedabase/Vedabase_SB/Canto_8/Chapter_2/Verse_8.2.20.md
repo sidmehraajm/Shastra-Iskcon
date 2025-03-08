@@ -1,0 +1,26 @@
+# ŚB 8.2.20
+
+**Sanskrit:**
+
+तत्रैकदा तद्‌गिरिकाननाश्रय:
+करेणुभिर्वारणयूथपश्चरन् ।
+सकण्टकं कीचकवेणुवेत्रवद्
+विशालगुल्मं प्ररुजन्वनस्पतीन् ॥ २० ॥
+
+**Transliteration:**
+
+tatraikadā tad-giri-kānanāśrayaḥ
+kareṇubhir vāraṇa-yūtha-paś caran
+sakaṇṭakaṁ kīcaka-veṇu-vetravad
+viśāla-gulmaṁ prarujan vanaspatīn
+
+**Synonyms:**
+
+Synonyms
+tatra — therein; ekadā — once upon a time; tat-giri — of that mountain (Trikūṭa); kānana-āśrayaḥ — who lives in the forest; kareṇubhiḥ — accompanied by female elephants; vāraṇa-yūtha-paḥ — the leader of the elephants; caran — while wandering (toward the lake); sa-kaṇṭakam — a place full of thorns; kīcaka-veṇu-vetra-vat — with plants and creepers of different names; viśāla-gulmam — many thickets; prarujan — breaking; vanaḥ-patīn — trees and plants.
+
+**Translation:**
+
+Translation
+The leader of the elephants who lived in the forest of the mountain Trikūṭa once wandered toward the lake with his female elephants. He broke many plants, creepers, thickets and trees, not caring for their piercing thorns.
+

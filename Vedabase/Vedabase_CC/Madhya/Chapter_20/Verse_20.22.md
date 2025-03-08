@@ -1,0 +1,22 @@
+# CC Madhya 20.22
+
+**Bengali:**
+
+দুই উপবাসে কৈলা রন্ধন-ভোজনে ।
+রাজমন্ত্রী সনাতন বিচারিলা মনে ॥ ২২ ॥
+
+**Transliteration:**
+
+dui upavāse kailā randhana-bhojane
+rāja-mantrī sanātana vicārilā mane
+
+**Synonyms:**
+
+Synonyms
+dui upavāse — fasting for two days; kailā — performed; randhana-bhojane — cooking and eating; rāja-mantrī — the former minister of the Nawab; sanātana — Sanātana; vicārilā — considered; mane — in the mind.
+
+**Translation:**
+
+Translation
+Because Sanātana had been fasting for two days, he cooked the food and ate it. However, having formerly been a minister of the Nawab, he began to contemplate the situation.
+

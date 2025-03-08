@@ -1,0 +1,30 @@
+# ŚB 10.2.7
+
+**Sanskrit:**
+
+गच्छ देवि व्रजं भद्रे गोपगोभिरलङ्कृतम् । रोहिणी वसुदेवस्य भार्यास्ते नन्दगोकुले । अन्याश्च कंससंविग्ना विवरेषु वसन्ति हि ॥ ७ ॥
+
+**Transliteration:**
+
+gaccha devi vrajaṁ bhadre
+gopa-gobhir alaṅkṛtam
+rohiṇī vasudevasya
+bhāryāste nanda-gokule
+anyāś ca kaṁsa-saṁvignā
+vivareṣu vasanti hi
+
+**Synonyms:**
+
+Synonyms
+gaccha — now go; devi — O you who are worshipable for the whole world; vrajam — to the land of Vraja; bhadre — O you who are auspicious for all living entities; gopa-gobhiḥ — with cowherds and cows; alaṅkṛtam — decorated; rohiṇī — by the name Rohiṇī; vasudevasya — of Vasudeva, Kṛṣṇa’s father; bhāryā — one of the wives; āste — is living; nanda-gokule — in the estate of Nanda Mahārāja known as Gokula, where hundreds and thousands of cows are maintained; anyāḥ ca — and other wives; kaṁsa-saṁvignāḥ — being afraid of Kaṁsa; vivareṣu — in secluded places; vasanti — are living; hi — indeed.
+
+**Translation:**
+
+Translation
+The Lord ordered Yoga-māyā: O My potency, who are worshipable for the entire world and whose nature is to bestow good fortune upon all living entities, go to Vraja, where there live many cowherd men and their wives. In that very beautiful land, where many cows reside, Rohiṇī, the wife of Vasudeva, is living at the home of Nanda Mahārāja. Other wives of Vasudeva are also living there incognito because of fear of Kaṁsa. Please go there.
+
+**Purport:**
+
+Purport
+Nanda-gokula, the residence of King Nanda, was itself very beautiful, and when Yoga-māyā was ordered to go there and encourage the devotees with fearlessness, it became even more beautiful and safe. Because Yoga-māyā had the ability to create such an atmosphere, the Lord ordered her to go to Nanda-gokula.
+

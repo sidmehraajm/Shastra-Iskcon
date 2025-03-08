@@ -1,0 +1,30 @@
+# ŚB 11.3.47
+
+**Sanskrit:**
+
+य आशु हृदयग्रन्थिं निर्जिहीर्षु: परात्मन: ।
+विधिनोपचरेद् देवं तन्त्रोक्तेन च केशवम् ॥ ४७ ॥
+
+**Transliteration:**
+
+ya āśu hṛdaya-granthiṁ
+nirjihīrṣuḥ parātmanaḥ
+vidhinopacared devaṁ
+tantroktena ca keśavam
+
+**Synonyms:**
+
+Synonyms
+yaḥ — one who; āśu — quickly; hṛdaya-granthim — the knot of the heart (false identification with the material body); nirjihīrṣuḥ — desirous of cutting; parātmanaḥ — of the transcendental soul; vidhinā — with the regulations; upacaret — he should worship; devam — the Supreme Personality of Godhead; tantra-uktena — which are described by the tantras (the supplementary Vedic literatures that give detailed instructions for spiritual practice); ca — as well (in addition to those regulations which are directly vedoktam); keśavam — Lord Keśava.
+
+**Translation:**
+
+Translation
+One who desires to quickly cut the knot of false ego, which binds the spirit soul, should worship the Supreme Lord, Keśava, by the regulations found in Vedic literatures such as the tantras.
+
+**Purport:**
+
+Purport
+The Vedic literatures contain mysterious descriptions of the Absolute Truth that stimulate philosophical speculation. The Vedas also offer heavenly rewards for the performance of ritualistic ceremonies. But as stated in verse 44 of this chapter such jñāna-kāṇḍa and karma-kāṇḍa sections of the Vedas are bālānām anuśāsanam; that is, because less intelligent or childish persons are addicted to mental speculation and fruitive activity, these sections of the Vedas are meant to attract such persons to take shelter of the Vedic injunctions for gradual promotion to the perfect stage of Kṛṣṇa consciousness.
+Now that the path for those who are materialistic has been described in several verses, this verse describes the process for those who are vijñaḥ, or learned transcendentalists. Such learned transcendentalists are advised to follow the regulated worship described in such Vaiṣṇava tantras as Śrī Nārada-pañcarātra for pleasing the Supreme Lord directly. The words upacared devaṁ tantroktena ca keśavam indicate that one should directly worship Keśava, the Supreme Personality of Godhead, who appears in many different incarnations to please His devotees. Śrīla Jayadeva Gosvāmī has described the pastimes of the Lord in his song describing ten prominent incarnations of the Personality of Godhead, Keśava: Lord Fish, Lord Tortoise, Lord Boar, Lord Nṛsiṁhadeva, Lord Vāmana, Lord Paraśurāma, Lord Rāmacandra, Lord Balarāma, Lord Buddha and Lord Kalki. The words upacared devam indicate devotional service to the Personality of Godhead. And therefore the word tantroktena, or “injunctions of the tantras,” should be understood to indicate vaiṣṇava-tantras such as Śrī Nārada-pañcarātra, which give explicit and detailed instructions for worshiping Keśava. The Vedas are referred to by the term nigama. And the elaborate explanation of these nigamas is called āgama, or tantra. When the transcendental living entity becomes perturbed by the obnoxious harassment of material bodily dualities, he becomes eager to hear from the Vedas about his transcendental situation. The word āśu in this verse indicates that those who are eager to put a quick end to material existence and situate themselves in the eternal blissful life of perfect knowledge should directly worship Lord Kṛṣṇa, bypassing the preliminary Vedic rituals described in the previous verses.
+

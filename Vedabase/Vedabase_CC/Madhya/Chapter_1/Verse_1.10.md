@@ -1,0 +1,22 @@
+# CC Madhya 1.10
+
+**Bengali:**
+
+এবে কহি শেষলীলার মুখ্য সূত্রগণ ।
+প্রভুর অশেষ লীলা না যায় বর্ণন ॥ ১০ ॥
+
+**Transliteration:**
+
+ebe kahi śeṣa-līlāra mukhya sūtra-gaṇa
+prabhura aśeṣa līlā nā yāya varṇana
+
+**Synonyms:**
+
+Synonyms
+ebe — now; kahi — I describe; śeṣa-līlāra — of the pastimes at the end; mukhya — chief; sūtra-gaṇa — synopsis; prabhura — of Lord Caitanya Mahāprabhu; aśeṣa — unlimited; līlā — pastimes; nā yāya varṇana — it is not possible to describe.
+
+**Translation:**
+
+Translation
+To describe the unlimited pastimes of Śrī Caitanya Mahāprabhu is not possible, but I now wish to relate the chief incidents and give a synopsis of those pastimes occurring at the end.
+

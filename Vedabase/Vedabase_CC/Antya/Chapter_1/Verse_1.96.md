@@ -1,0 +1,21 @@
+# CC Antya 1.96
+
+**Bengali:**
+
+‘kyā puṅthi likha?’ bali’ eka-patra nilā
+akṣara dekhiyā prabhu mane sukhī hailā
+
+**Transliteration:**
+
+kyā — what; puṅthi — book; likha — you are writing; bali’ — saying this; eka-patra nilā — took one page written on a palm leaf; akṣara — the good handwriting; dekhiyā — seeing; prabhu — Śrī Caitanya Mahāprabhu; mane — in the mind; sukhī hailā — became very happy.
+
+**Synonyms:**
+
+Synonyms
+kyā — what; puṅthi — book; likha — you are writing; bali’ — saying this; eka-patra nilā — took one page written on a palm leaf; akṣara — the good handwriting; dekhiyā — seeing; prabhu — Śrī Caitanya Mahāprabhu; mane — in the mind; sukhī hailā — became very happy.
+
+**Translation:**
+
+Translation
+The Lord inquired, “What kind of book are you writing?” He held up a palm leaf that was a page of the manuscript, and when He saw the fine handwriting, His mind was very pleased.
+

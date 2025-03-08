@@ -1,0 +1,24 @@
+# ŚB 10.4.24
+
+**Sanskrit:**
+
+मोचयामास निगडाद् विश्रब्ध: कन्यकागिरा ।
+देवकीं वसुदेवं च दर्शयन्नात्मसौहृदम् ॥ २४ ॥
+
+**Transliteration:**
+
+mocayām āsa nigaḍād
+viśrabdhaḥ kanyakā-girā
+devakīṁ vasudevaṁ ca
+darśayann ātma-sauhṛdam
+
+**Synonyms:**
+
+Synonyms
+mocayām āsa — Kaṁsa released them; nigaḍāt — from their iron shackles; viśrabdhaḥ — with full confidence; kanyakā-girā — in the words of the goddess Durgā; devakīm — toward his sister Devakī; vasudevam ca — and his brother-in-law Vasudeva; darśayan — fully exhibiting; ātma-sauhṛdam — his family relationship.
+
+**Translation:**
+
+Translation
+Fully believing in the words of the goddess Durgā, Kaṁsa exhibited his familial affection for Devakī and Vasudeva by immediately releasing them from their iron shackles.
+

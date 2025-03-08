@@ -1,0 +1,24 @@
+# ŚB 9.18.17
+
+**Sanskrit:**
+
+एवंविधै: सुपरुषै: क्षिप्‍त्वाचार्यसुतां सतीम् ।
+शर्मिष्ठा प्राक्षिपत् कूपे वासश्चादाय मन्युना ॥ १७ ॥
+
+**Transliteration:**
+
+evaṁ-vidhaiḥ suparuṣaiḥ
+kṣiptvācārya-sutāṁ satīm
+śarmiṣṭhā prākṣipat kūpe
+vāsaś cādāya manyunā
+
+**Synonyms:**
+
+Synonyms
+evam-vidhaiḥ — such; su-paruṣaiḥ — by unkind words; kṣiptvā — after chastising; ācārya-sutām — the daughter of Śukrācārya; satīm — Devayānī; śarmiṣṭhā — Śarmiṣṭhā; prākṣipat — threw (her); kūpe — into a well; vāsaḥ — the garments; ca — and; ādāya — taking away; manyunā — because of anger.
+
+**Translation:**
+
+Translation
+Using such unkind words, Śarmiṣṭhā rebuked Devayānī, the daughter of Śukrācārya. In anger, she took away Devayānī’s garments and threw Devayānī into a well.
+

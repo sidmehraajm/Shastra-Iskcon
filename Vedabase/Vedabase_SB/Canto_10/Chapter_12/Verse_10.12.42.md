@@ -1,0 +1,29 @@
+# ŚB 10.12.42
+
+**Sanskrit:**
+
+तद् ब्रूहि मे महायोगिन्परं कौतूहलं गुरो ।
+नूनमेतद्धरेरेव माया भवति नान्यथा ॥ ४२ ॥
+
+**Transliteration:**
+
+tad brūhi me mahā-yogin
+paraṁ kautūhalaṁ guro
+nūnam etad dharer eva
+māyā bhavati nānyathā
+
+**Synonyms:**
+
+Synonyms
+tat brūhi — therefore please explain that; me — unto me; mahā-yogin — O great yogī; param — very much; kautūhalam — curiosity; guro — O my lord, my spiritual master; nūnam — otherwise; etat — this incident; hareḥ — of the Supreme Personality of Godhead; eva — indeed; māyā — the illusion; bhavati — becomes; na anyathā — nothing more.
+
+**Translation:**
+
+Translation
+O greatest yogī, my spiritual master, kindly describe why this happened. I am very much curious to know about it. I think that it was nothing but another illusion due to Kṛṣṇa.
+
+**Purport:**
+
+Purport
+Kṛṣṇa has many potencies: parāsya śaktir vividhaiva śrūyate (Śvetāśvatara Upaniṣad 6.8). The description of Aghāsura was disclosed after one year. Some act of Kṛṣṇa’s potency must have been involved. Therefore Mahārāja Parīkṣit was very curious to know about this, and he requested Śukadeva Gosvāmī to explain it.
+

@@ -1,0 +1,22 @@
+# CC Madhya 22.29
+
+**Bengali:**
+
+জ্ঞানী জীবন্মুক্তদশা পাইনু করি’ মানে ।
+বস্তুতঃ বুদ্ধি ‘শুদ্ধ’ নহে কৃষ্ণভক্তি বিনে ॥ ২৯ ॥
+
+**Transliteration:**
+
+jñānī jīvan-mukta-daśā pāinu kari’ māne
+vastutaḥ buddhi ‘śuddha’ nahe kṛṣṇa-bhakti vine
+
+**Synonyms:**
+
+Synonyms
+jñānī — the speculative philosophers; jīvan-mukta-daśā — the stage of liberation even while in this body; pāinu — I have gotten; kari’ — taking; māne — considers; vastutaḥ — factually; buddhi — intelligence; śuddha — purified; nahe — not; kṛṣṇa-bhakti vine — without devotional service to Kṛṣṇa.
+
+**Translation:**
+
+Translation
+“There are many philosophical speculators [jñānīs] belonging to the Māyāvāda school who consider themselves liberated and call themselves Nārāyaṇa. But their intelligence is not purified unless they engage in Kṛṣṇa’s devotional service.
+

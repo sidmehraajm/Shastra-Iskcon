@@ -1,0 +1,22 @@
+# CC Madhya 12.211
+
+**Bengali:**
+
+তৃষার্ত প্ৰভুর নেত্র — ভ্রমর-যুগল ।
+গাঢ় তৃষ্ণায় পিয়ে কৃষ্ণের বদন-কমল ॥ ২১১ ॥
+
+**Transliteration:**
+
+tṛṣārta prabhura netra — bhramara-yugala
+gāḍha tṛṣṇāya piye kṛṣṇera vadana-kamala
+
+**Synonyms:**
+
+Synonyms
+tṛṣā-ārta — thirsty; prabhura — of Lord Śrī Caitanya Mahāprabhu; netra — eyes; bhramara-yugala — like two bumblebees; gāḍha — deep; tṛṣṇāya — in thirst; piye — drinks; kṛṣṇera — of Lord Kṛṣṇa; vadana-kamala — the lotuslike face.
+
+**Translation:**
+
+Translation
+Śrī Caitanya Mahāprabhu was very thirsty to see the Lord, and His eyes became like two bumblebees drinking the honey from the lotuslike eyes of Lord Jagannātha, who is Kṛṣṇa Himself.
+

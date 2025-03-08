@@ -1,0 +1,38 @@
+# ŚB 11.6.15
+
+**Sanskrit:**
+
+अस्यासि हेतुरुदयस्थितिसंयमाना-
+मव्यक्तजीवमहतामपि कालमाहु: ।
+सोऽयं त्रिणाभिरखिलापचये प्रवृत्त:
+कालो गभीररय उत्तमपूरुषस्त्वम् ॥ १५ ॥
+
+**Transliteration:**
+
+asyāsi hetur udaya-sthiti-saṁyamānām
+avyakta-jīva-mahatām api kālam āhuḥ
+so ’yaṁ tri-ṇābhir akhilāpacaye pravṛttaḥ
+kālo gabhīra-raya uttama-pūruṣas tvam
+
+**Synonyms:**
+
+Synonyms
+asya — of this (universe); asi — You are; hetuḥ — the cause; udaya — of the creation; sthiti — maintenance; saṁyamānām — and annihilation; avyakta — of the unmanifest material nature; jīva — the individual living beings; mahatām — and of the mahat-tattva, with the manifest elements evolved from it; api — also; kālam — the controlling time factor; āhuḥ — You are said to be; saḥ ayam — this same personality; tri-ṇābhiḥ — appearing as a wheel with circumference divided into three parts (the year divided into four-month seasons); akhila — of everything; apacaye — in effecting the diminution; pravṛttaḥ — engaged; kālaḥ — the time factor; gabhīra — imperceptible; rayaḥ — the movement of which; uttama-pūruṣaḥ — the Supreme Personality of Godhead; tvam — You are.
+
+**Translation:**
+
+Translation
+You are the cause of the creation, maintenance and destruction of this universe. As time, You regulate the subtle and manifest states of material nature and control every living being. As the threefold wheel of time You diminish all things by Your imperceptible actions, and thus You are the Supreme Personality of Godhead.
+
+**Purport:**
+
+Purport
+The word gabhīra-rayaḥ, or “imperceptible speed and power,” is significant. We observe that by the laws of nature all material things, including our own bodies, gradually disintegrate. Although we can perceive the long-term results of this aging process, we cannot experience the process itself. For example, no one can feel how his hair or fingernails are growing. We perceive the cumulative result of their growth, but from moment to moment we cannot experience it. Similarly, a house gradually decays until it is demolished. From moment to moment we cannot perceive exactly how this is happening, but in the course of longer intervals of time we can actually see the deterioration of the house. In other words, we can experience the results or manifestations of aging and deterioration, but as it is taking place the process itself is imperceptible. This is the wonderful potency of the Supreme Personality of Godhead in His form of time.
+The word tri-ṇābhiḥ indicates that according to astrological calculation of the sun’s movements, the year can be divided into three sections: those represented by Aries, Taurus, Gemini and Cancer; Leo, Virgo, Libra and Scorpio; and Sagittarius, Capricorn, Aquarius and Pisces.
+The word uttama-pūruṣa, or puruṣottama, is explained in Bhagavad-gītā (15.18):
+yasmāt kṣaram atīto ’ham
+akṣarād api cottamaḥ
+ato ’smi loke vede ca
+prathitaḥ puruṣottamaḥ
+“Because I am transcendental, beyond both the fallible and the infallible, and because I am the greatest, I am celebrated both in the world and in the Vedas as that Supreme Person.”
+

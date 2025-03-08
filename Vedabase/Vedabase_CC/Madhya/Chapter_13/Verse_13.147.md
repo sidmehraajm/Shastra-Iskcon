@@ -1,0 +1,31 @@
+# CC Madhya 13.147
+
+**Bengali:**
+
+তুমি — ব্রজের জীবন,     ব্রজরাজের প্রাণধন,
+তুমি ব্রজের সকল সম্পদ্ ।
+কৃপার্দ্র তোমার মন,     আসি’ জীয়াও ব্রজজন,
+ব্রজে উদয় করাও নিজ-পদ ॥ ১৪৭ ॥
+
+**Transliteration:**
+
+tumi — vrajera jīvana, vraja-rājera prāṇa-dhana,
+tumi vrajera sakala sampad
+kṛpārdra tomāra mana, āsi’ jīyāo vraja-jana,
+vraje udaya karāo nija-pada
+
+**Synonyms:**
+
+Synonyms
+tumi — You; vrajera jīvana — the life and soul of Vṛndāvana; vraja-rājera — and of the King of Vraja, Nanda Mahārāja; prāṇa-dhana — the only life; tumi — You; vrajera — of Vṛndāvana; sakala sampad — all opulence; kṛpā-ardra — melting with kindness; tomāra mana — Your mind; āsi’ — coming; jīyāo — give life; vraja-jana — to all the inhabitants of Vṛndāvana; vraje — in Vṛndāvana; udaya karāo — cause to appear; nija-pada — Your lotus feet.
+
+**Translation:**
+
+Translation
+“My dear Kṛṣṇa, You are the life and soul of Vṛndāvana-dhāma. You are especially the life of Nanda Mahārāja. You are the only opulence in the land of Vṛndāvana, and You are very merciful. Please come and let all the residents of Vṛndāvana live. Kindly keep Your lotus feet again in Vṛndāvana.”
+
+**Purport:**
+
+Purport
+Śrīmatī Rādhārāṇī did not express Her personal unhappiness at being separated from Kṛṣṇa. She wanted to evoke Kṛṣṇa’s feelings for the condition of all the others in Vṛndāvana-dhāma — mother Yaśodā, Mahārāja Nanda, the cowherd boys, the gopīs, the birds and bees on the banks of the Yamunā, the water of the Yamunā, the trees, the forests and all the other paraphernalia associated with Kṛṣṇa before He left Vṛndāvana for Mathurā. These feelings of Śrīmatī Rādhārāṇī were manifested by Śrī Caitanya Mahāprabhu, and therefore He invited Lord Jagannātha, Kṛṣṇa, to return to Vṛndāvana. That is the purport of the Ratha-yātrā car’s going from Jagannātha Purī to the Guṇḍicā temple.
+

@@ -1,0 +1,22 @@
+# CC Madhya 20.128
+
+**Bengali:**
+
+‘তুমি কেনে দুঃখী, তোমার আছে পিতৃধন ।
+তোমারে না কহিল, অন্যত্র ছাড়িল জীবন ॥” ১২৮ ॥
+
+**Transliteration:**
+
+‘tumi kene duḥkhī, tomāra āche pitṛ-dhana
+tomāre nā kahila, anyatra chāḍila jīvana”
+
+**Synonyms:**
+
+Synonyms
+tumi — you; kene — why; duḥkhī — distressed; tomāra — your; āche — there is; pitṛ-dhana — the riches of your father; tomāre — unto you; nā kahila — he did not disclose; anyatra — somewhere else; chāḍila — gave up; jīvana — his life.
+
+**Translation:**
+
+Translation
+“The astrologer asked, ‘Why are you unhappy? Your father was very wealthy, but he did not disclose his wealth to you because he died elsewhere.’
+

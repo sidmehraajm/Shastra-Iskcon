@@ -1,0 +1,29 @@
+# ŚB 11.15.11
+
+**Sanskrit:**
+
+महत्तत्त्वात्मनि मयि यथासंस्थं मनो दधत् ।
+महिमानमवाप्नोति भूतानां च पृथक् पृथक् ॥ ११ ॥
+
+**Transliteration:**
+
+mahat-tattvātmani mayi
+yathā-saṁsthaṁ mano dadhat
+mahimānam avāpnoti
+bhūtānāṁ ca pṛthak pṛthak
+
+**Synonyms:**
+
+Synonyms
+mahat-tattva — of the total material energy; ātmani — in the Soul; mayi — in Me; yathā — according to; saṁstham — the particular situation; manaḥ — the mind; dadhat — fixing; mahimānam — the mystic perfection called mahimā; bhūtānām — of the material elements; ca — also; pṛthak pṛthak — each one individually.
+
+**Translation:**
+
+Translation
+One who absorbs his mind in the particular form of the mahat-tattva and thus meditates upon Me as the Supreme Soul of the total material existence achieves the mystic perfection called mahimā. By further absorbing the mind in the situation of each individual element such as the sky, air, fire, and so on, one progressively acquires the greatness of each material element.
+
+**Purport:**
+
+Purport
+There are innumerable verses in Vedic literatures explaining that the Supreme Personality of Godhead is qualitatively not different from His creation and thus a yogī may meditate upon the total material existence as a manifestation of the external potency of the Lord. Once the yogī has established his realization that the material creation is not different from the Lord, he obtains the perfection called mahimā-siddhi. By realizing the Lord’s presence in each individual element the yogī also acquires the greatness of each element. However, the pure devotees are not very interested in such perfections because they are surrendered to the Personality of Godhead, who exhibits such perfections to the infinite degree. Being always protected by the Lord, the pure devotees save their precious time to chant Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare. Thus they achieve for themselves and others saṁsiddhi, or the supreme perfection, pure love of Godhead, Kṛṣṇa consciousness, by which one expands one’s existence beyond the total material creation to the spiritual planets called Vaikuṇṭha.
+

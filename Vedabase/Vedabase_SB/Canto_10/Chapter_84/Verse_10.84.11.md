@@ -1,0 +1,35 @@
+# ŚB 10.84.11
+
+**Sanskrit:**
+
+न ह्यम्मयानि तीर्थानि न देवा मृच्छिलामया: ।
+ते पुनन्त्युरुकालेन दर्शनादेव साधव: ॥ ११ ॥
+
+**Transliteration:**
+
+na hy am-mayāni tīrthāni
+na devā mṛc-chilā-mayāḥ
+te punanty uru-kālena
+darśanād eva sādhavaḥ
+
+**Synonyms:**
+
+Synonyms
+na — not; hi — indeed; ap — of water; mayāni — composed; tīrthāni — holy places; na — not; devāḥ — deities; mṛt — of earth; śilā — and stone; mayāḥ — composed; te — they; punanti — purify; uru-kālena — after a long time; darśanāt — by being seen; eva — only; sādhavaḥ — saints.
+
+**Translation:**
+
+Translation
+Mere bodies of water are not the real sacred places of pilgrimage, nor are mere images of earth and stone the true worshipable deities. These purify one only after a long time, but saintly sages purify one immediately upon being seen.
+
+**Purport:**
+
+Purport
+Because the Personality of Godhead is absolute — the Supreme Spirit — any representation of Him, whether manifested in stone, paint, sound or any other authorized medium, is nondifferent from His original form in the topmost spiritual planet, Goloka Vṛndāvana. But ordinary demigods are not absolute, being infinitesimal spirit souls, and thus representations of the demigods are not identical with them. Worship of demigods or ritual bathing in a sanctified place gives only limited benefit to those who lack transcendental faith in the Supreme Lord.
+On the other hand, great Vaiṣṇava saints like Vyāsadeva, Nārada and the four Kumāras are always absorbed in Kṛṣṇa consciousness, and thus they are veritable moving tīrthas, places of pilgrimage. Even a moment’s association with them, especially by hearing their glorification of the Lord, can deliver one from all material entanglement. As King Yudhiṣṭhira said to Vidura,
+bhavad-vidhā bhāgavatās
+tīṛtha-bhūtāḥ svayaṁ vibho
+tīrthī-kurvanti tīrthāni
+svāntaḥ-sthena gadābhṛtā
+“My Lord, devotees like your good self are verily holy places personified. Because you carry the Personality of Godhead within your heart, you turn all places into places of pilgrimage.” (Bhāg. 1.13.10)
+

@@ -1,0 +1,24 @@
+# ŚB 9.23.24
+
+**Sanskrit:**
+
+अर्जुन: कृतवीर्यस्य सप्तद्वीपेश्वरोऽभवत् ।
+दत्तात्रेयाद्धरेरंशात् प्राप्तयोगमहागुण: ॥ २४ ॥
+
+**Transliteration:**
+
+arjunaḥ kṛtavīryasya
+sapta-dvīpeśvaro ’bhavat
+dattātreyād dharer aṁśāt
+prāpta-yoga-mahāguṇaḥ
+
+**Synonyms:**
+
+Synonyms
+arjunaḥ — Arjuna; kṛtavīryasya — of Kṛtavīrya; sapta-dvīpa — of the seven islands (the whole world); īśvaraḥ abhavat — became the emperor; dattātreyāt — from Dattātreya; hareḥ aṁśāt — from he who was the incarnation of the Supreme Personality of Godhead; prāpta — obtained; yoga-mahāguṇaḥ — the quality of mystic power.
+
+**Translation:**
+
+Translation
+The son of Kṛtavīrya was Arjuna. He [Kārtavīryārjuna] became the emperor of the entire world, consisting of seven islands, and received mystic power from Dattātreya, the incarnation of the Supreme Personality of Godhead. Thus he obtained the mystic perfections known as aṣṭa-siddhi.
+

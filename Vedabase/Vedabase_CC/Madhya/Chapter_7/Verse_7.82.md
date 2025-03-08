@@ -1,0 +1,27 @@
+# CC Madhya 7.82
+
+**Bengali:**
+
+দেখি’ নিত্যানন্দ প্রভু কহে ভক্তগণে ।
+এইরূপে নৃত্য আগে হবে গ্রামে-গ্রামে ॥ ৮২ ॥
+
+**Transliteration:**
+
+dekhi’ nityānanda prabhu kahe bhakta-gaṇe
+ei-rūpe nṛtya āge habe grāme-grāme
+
+**Synonyms:**
+
+Synonyms
+dekhi’ — seeing this; nityānanda — Lord Nityānanda Prabhu; prabhu — the Lord; kahe — says; bhakta-gaṇe — unto the devotees; ei-rūpe — in this way; nṛtya — dancing; āge — ahead; habe — there will be; grāme-grāme — in every village.
+
+**Translation:**
+
+Translation
+Upon seeing the chanting and dancing of Lord Śrī Caitanya Mahāprabhu, Lord Nityānanda predicted that later there would be dancing and chanting in every village.
+
+**Purport:**
+
+Purport
+This prediction of Śrī Nityānanda Prabhu’s is applicable not only in India but also all over the world. That is now happening by His grace. The members of the International Society for Krishna Consciousness are now traveling from one village to another in the Western countries and are even carrying the Deity with them. These devotees distribute various literatures all over the world. We hope that these devotees who are preaching the message of Śrī Caitanya Mahāprabhu will very seriously follow strictly in His footsteps. If they follow the rules and regulations and chant sixteen rounds daily, their endeavor to preach the cult of Śrī Caitanya Mahāprabhu will certainly be successful.
+

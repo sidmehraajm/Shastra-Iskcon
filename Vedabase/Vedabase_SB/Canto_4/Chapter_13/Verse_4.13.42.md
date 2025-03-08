@@ -1,0 +1,24 @@
+# ŚB 4.13.42
+
+**Sanskrit:**
+
+तं विचक्ष्य खलं पुत्रं शासनैर्विविधैर्नृप: ।
+यदा न शासितुं कल्पो भृशमासीत्सुदुर्मना: ॥ ४२ ॥
+
+**Transliteration:**
+
+taṁ vicakṣya khalaṁ putraṁ
+śāsanair vividhair nṛpaḥ
+yadā na śāsituṁ kalpo
+bhṛśam āsīt sudurmanāḥ
+
+**Synonyms:**
+
+Synonyms
+tam — him; vicakṣya — observing; khalam — cruel; putram — son; śāsanaiḥ — by punishments; vividhaiḥ — different kinds of; nṛpaḥ — the King; yadā — when; na — not; śāsitum — to bring under control; kalpaḥ — was able; bhṛśam — greatly; āsīt — became; su-durmanāḥ — aggrieved.
+
+**Translation:**
+
+Translation
+After seeing the cruel and merciless behavior of his son, Vena, King Aṅga punished him in different ways to reform him, but was unable to bring him to the path of gentleness. He thus became greatly aggrieved.
+

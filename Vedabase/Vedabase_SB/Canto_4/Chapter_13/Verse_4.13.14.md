@@ -1,0 +1,24 @@
+# ŚB 4.13.14
+
+**Sanskrit:**
+
+प्रदोषो निशिथो व्युष्ट इति दोषासुतास्त्रय: ।
+व्युष्ट: सुतं पुष्करिण्यां सर्वतेजसमादधे ॥ १४ ॥
+
+**Transliteration:**
+
+pradoṣo niśitho vyuṣṭa
+iti doṣā-sutās trayaḥ
+vyuṣṭaḥ sutaṁ puṣkariṇyāṁ
+sarvatejasam ādadhe
+
+**Synonyms:**
+
+Synonyms
+pradoṣaḥ — Pradoṣa; niśithaḥ — Niśitha; vyuṣṭaḥ — Vyuṣṭa; iti — thus; doṣā — of Doṣā; sutāḥ — sons; trayaḥ — three; vyuṣṭaḥ — Vyuṣṭa; sutam — son; puṣkariṇyām — in Puṣkariṇī; sarva-tejasam — named Sarvatejā (all-powerful); ādadhe — begot.
+
+**Translation:**
+
+Translation
+Doṣā had three sons — Pradoṣa, Niśitha and Vyuṣṭa. Vyuṣṭa’s wife was named Puṣkariṇī, and she gave birth to a very powerful son named Sarvatejā.
+

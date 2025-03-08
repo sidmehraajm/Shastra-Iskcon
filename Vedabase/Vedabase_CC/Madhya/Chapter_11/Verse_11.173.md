@@ -1,0 +1,22 @@
+# CC Madhya 11.173
+
+**Bengali:**
+
+প্রভু কহে, — গোপীনাথ, যাহ’ বৈষ্ণব লঞা ।
+যাহাঁ যাহাঁ কহে বাসা, তাহাঁ দেহ’ লঞা ॥ ১৭৩ ॥
+
+**Transliteration:**
+
+prabhu kahe, — gopīnātha, yāha’ vaiṣṇava lañā
+yāhāṅ yāhāṅ kahe vāsā, tāhāṅ deha’ lañā
+
+**Synonyms:**
+
+Synonyms
+prabhu kahe — the Lord Caitanya Mahāprabhu said; gopīnātha — My dear Gopīnātha; yāha’ — please go; vaiṣṇava lañā — taking all the Vaiṣṇavas; yāhāṅ yāhāṅ — wherever; kahe — they say; vāsā — staying place; tāhāṅ — there; deha’ — give; lañā — accepting.
+
+**Translation:**
+
+Translation
+Śrī Caitanya Mahāprabhu immediately told Gopīnātha Ācārya, “Please go with the Vaiṣṇavas and accommodate them in whatever residences Kāśī Miśra and the temple superintendent offer.”
+

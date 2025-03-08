@@ -1,0 +1,22 @@
+# CC Madhya 3.158
+
+**Bengali:**
+
+সবাকারে বাসা দিল — ভক্ষ্য, অন্নপান ।
+বহুদিন আচার্য-গোসাঞি কৈল সমাধান ॥ ১৫৮ ॥
+
+**Transliteration:**
+
+sabākāre vāsā dila — bhakṣya, anna-pāna
+bahu-dina ācārya-gosāñi kaila samādhāna
+
+**Synonyms:**
+
+Synonyms
+sabākāre — to all of them; vāsā dila — gave residential quarters; bhakṣya — eatables; anna-pāna — food and drink; bahu-dina — for many days; ācārya-gosāñi — Advaita Ācārya; kaila — did; samādhāna — adjustment.
+
+**Translation:**
+
+Translation
+To everyone who came to see the Lord from villages nearby, especially from Navadvīpa, Advaita Ācārya gave residential quarters, as well as all kinds of eatables, for many days. Indeed, He properly adjusted everything.
+

@@ -1,0 +1,27 @@
+# CC Madhya 9.116
+
+**Bengali:**
+
+তার স্পর্শে নাহি যায় পতিব্রতা-ধর্ম ।
+কৌতুকে লক্ষ্মী চাহেন কৃষ্ণের সঙ্গম ॥ ১১৬ ॥
+
+**Transliteration:**
+
+tāra sparśe nāhi yāya pativratā-dharma
+kautuke lakṣmī cāhena kṛṣṇera saṅgama
+
+**Synonyms:**
+
+Synonyms
+tāra sparśe — by the touching of Kṛṣṇa by Lakṣmī; nāhi — does not; yāya — disappear; pati-vratā-dharma — the vow of chastity; kautuke — in great fun; lakṣmī — the goddess of fortune; cāhena — wants; kṛṣṇera — of Lord Kṛṣṇa; saṅgama — association.
+
+**Translation:**
+
+Translation
+“Since Kṛṣṇa and Nārāyaṇa are the same personality, Lakṣmī’s association with Kṛṣṇa does not break her vow of chastity. Rather, it was in great fun that the goddess of fortune wanted to associate with Lord Kṛṣṇa.”
+
+**Purport:**
+
+Purport
+This is the answer to Lord Śrī Caitanya Mahāprabhu’s question, and from this we can understand that Veṅkaṭa Bhaṭṭa knew the truth. He told Śrī Caitanya Mahāprabhu that Nārāyaṇa is a form of Kṛṣṇa associated with transcendental opulence. Although Kṛṣṇa is two-armed and Nārāyaṇa four-armed, there is no difference in the person. They are one and the same. Nārāyaṇa is as beautiful as Kṛṣṇa, but Kṛṣṇa’s pastimes are more sportive. It is not that the sportive pastimes of Kṛṣṇa make Him different from Nārāyaṇa. Lakṣmī’s desiring to associate with Kṛṣṇa was perfectly natural. In other words, it is understandable that a chaste woman wants to associate with her husband in all his different dresses. Therefore one should not criticize Lakṣmī for wanting to associate with Kṛṣṇa.
+

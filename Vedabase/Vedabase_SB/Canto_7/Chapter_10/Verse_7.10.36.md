@@ -1,0 +1,24 @@
+# ŚB 7.10.36
+
+**Sanskrit:**
+
+पुनश्च विप्रशापेन राक्षसौ तौ बभूवतु: ।
+कुम्भकर्णदशग्रीवौ हतौ तौ रामविक्रमै: ॥ ३६ ॥
+
+**Transliteration:**
+
+punaś ca vipra-śāpena
+rākṣasau tau babhūvatuḥ
+kumbhakarṇa-daśa-grīvau
+hatau tau rāma-vikramaiḥ
+
+**Synonyms:**
+
+Synonyms
+punaḥ — again; ca — also; vipra-śāpena — being cursed by the brāhmaṇas; rākṣasau — the two Rākṣasas; tau — both of them; babhūvatuḥ — incarnated as; kumbhakarṇa-daśa-grīvau — known as Kumbhakarṇa and the ten-headed Rāvaṇa (in their next birth); hatau — they also were killed; tau — both of them; rāma-vikramaiḥ — by the extraordinary strength of Lord Rāmacandra.
+
+**Translation:**
+
+Translation
+Being cursed by the brāhmaṇas, the same two associates took birth again as Kumbhakarṇa and the ten-headed Rāvaṇa. These two Rākṣasas were killed by Lord Rāmacandra’s extraordinary power.
+

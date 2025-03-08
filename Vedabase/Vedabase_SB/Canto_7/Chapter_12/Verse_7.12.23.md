@@ -1,0 +1,24 @@
+# ŚB 7.12.23
+
+**Sanskrit:**
+
+यदाकल्प: स्वक्रियायां व्याधिभिर्जरयाथवा ।
+आन्वीक्षिक्यां वा विद्यायां कुर्यादनशनादिकम् ॥ २३ ॥
+
+**Transliteration:**
+
+yadākalpaḥ sva-kriyāyāṁ
+vyādhibhir jarayāthavā
+ānvīkṣikyāṁ vā vidyāyāṁ
+kuryād anaśanādikam
+
+**Synonyms:**
+
+Synonyms
+yadā — when; akalpaḥ — unable to act; sva-kriyāyām — in one’s own prescribed duties; vyādhibhiḥ — because of disease; jarayā — or because of old age; athavā — either; ānvīkṣikyām — in spiritual advancement; vā — or; vidyāyām — in the advancement of knowledge; kuryāt — one must do; anaśana-ādikam — not take sufficient food.
+
+**Translation:**
+
+Translation
+When because of disease or old age one is unable to perform his prescribed duties for advancement in spiritual consciousness or study of the Vedas, he should practice fasting, not taking any food.
+

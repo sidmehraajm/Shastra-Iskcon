@@ -1,0 +1,22 @@
+# CC Madhya 17.220
+
+**Bengali:**
+
+আস্তে-ব্যস্তে মহাপ্রভুর লঞা বহিৰ্বাস ।
+জলসেক করে অঙ্গে, বস্ত্রের বাতাস ॥ ২২০ ॥
+
+**Transliteration:**
+
+āste-vyaste mahāprabhura lañā bahirvāsa
+jala-seka kare aṅge, vastrera vātāsa
+
+**Synonyms:**
+
+Synonyms
+āste-vyaste — with great haste; mahāprabhura — of Śrī Caitanya Mahāprabhu; lañā — taking; bahirvāsa — covering cloth; jala-seka kare — sprinkle water; aṅge — on the body; vastrera vātāsa — fanning with the cloth.
+
+**Translation:**
+
+Translation
+They hastily sprinkled water over the Lord’s body. Then they took up His outer cloth and began to fan Him with it.
+

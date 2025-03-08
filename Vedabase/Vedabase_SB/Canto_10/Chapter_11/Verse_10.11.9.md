@@ -1,0 +1,29 @@
+# ŚB 10.11.9
+
+**Sanskrit:**
+
+दर्शयंस्तद्विदां लोक आत्मनो भृत्यवश्यताम् ।
+व्रजस्योवाह वै हर्षं भगवान् बालचेष्टितै: ॥ ९ ॥
+
+**Transliteration:**
+
+darśayaṁs tad-vidāṁ loka
+ātmano bhṛtya-vaśyatām
+vrajasyovāha vai harṣaṁ
+bhagavān bāla-ceṣṭitaiḥ
+
+**Synonyms:**
+
+Synonyms
+darśayan — exhibiting; tat-vidām — unto persons who can understand Kṛṣṇa’s activities; loke — throughout the whole world; ātmanaḥ — of Himself; bhṛtya-vaśyatām — how He is agreeable to carrying out the orders of His servants, His devotees; vrajasya — of Vrajabhūmi; uvāha — executed; vai — indeed; harṣam — pleasure; bhagavān — the Supreme Personality of Godhead; bāla-ceṣṭitaiḥ — by His activities like those of a child trying to do so many things.
+
+**Translation:**
+
+Translation
+To pure devotees throughout the world who could understand His activities, the Supreme Personality of Godhead, Kṛṣṇa, exhibited how much He can be subdued by His devotees, His servants. In this way He increased the pleasure of the Vrajavāsīs by His childhood activities.
+
+**Purport:**
+
+Purport
+That Kṛṣṇa performed childhood activities to increase the pleasure of His devotees was another transcendental humor. He exhibited these activities not only to the inhabitants of Vrajabhūmi, but also to others, who were captivated by His external potency and opulence. Both the internal devotees, who were simply absorbed in love of Kṛṣṇa, and the external devotees, who were captivated by His unlimited potency, were informed of Kṛṣṇa’s desire to be submissive to His servants.
+

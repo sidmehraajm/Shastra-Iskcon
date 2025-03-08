@@ -1,0 +1,29 @@
+# ŚB 11.21.37
+
+**Sanskrit:**
+
+मयोपबृंहितं भूम्ना ब्रह्मणानन्तशक्तिना ।
+भूतेषु घोषरूपेण बिसेषूर्णेव लक्ष्यते ॥ ३७ ॥
+
+**Transliteration:**
+
+mayopabṛṁhitaṁ bhūmnā
+brahmaṇānanta-śaktinā
+bhūteṣu ghoṣa-rūpeṇa
+viseṣūrṇeva lakṣyate
+
+**Synonyms:**
+
+Synonyms
+mayā — by Me; upabṛṁhitam — established; bhūmnā — by the unlimited; brahmaṇā — the changeless Absolute; ananta-śaktinā — whose potencies have no end; bhūteṣu — within the living beings; ghoṣa-rūpeṇa — in the form of subtle sound, the oṁkāra; ūrṇā — one thread; iva — as; lakṣyate — appears.
+
+**Translation:**
+
+Translation
+As the unlimited, unchanging and omnipotent Personality of Godhead dwelling within all living beings, I personally establish the Vedic sound vibration in the form of oṁkāra within all living entities. It is thus perceived subtly, just like a single strand of fiber on a lotus stalk.
+
+**Purport:**
+
+Purport
+The Supreme Personality of Godhead personally resides within the heart of every living entity, and from this verse we can understand that the seed of all Vedic knowledge is also situated within all living beings. In this way, the process of awakening Vedic knowledge, and thereby awakening one’s eternal relationship with God, is natural and necessary for everyone. All perfection is found within the heart of the living being; as soon as the heart is purified by chanting the holy names of God, that perfection, Kṛṣṇa consciousness, immediately awakens.
+

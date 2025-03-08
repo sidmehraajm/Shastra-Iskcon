@@ -1,0 +1,24 @@
+# ŚB 9.16.14
+
+**Sanskrit:**
+
+तदुपश्रुत्य दूरस्था हा रामेत्यार्तवत्स्वनम् ।
+त्वरयाश्रममासाद्य दद‍ृशु: पितरं हतम् ॥ १४ ॥
+
+**Transliteration:**
+
+tad upaśrutya dūrasthā
+hā rāmety ārtavat svanam
+tvarayāśramam āsādya
+dadṛśuḥ pitaraṁ hatam
+
+**Synonyms:**
+
+Synonyms
+tat — that crying of Reṇukā; upaśrutya — upon hearing; dūra-sthāḥ — although staying a long distance away; hā rāma — O Rāma, O Rāma; iti — thus; ārta-vat — very aggrieved; svanam — the sound; tvarayā — very hastily; āśramam — to the residence of Jamadagni; āsādya — coming; dadṛśuḥ — saw; pitaram — the father; hatam — killed.
+
+**Translation:**
+
+Translation
+Although the sons of Jamadagni, including Lord Paraśurāma, were a long distance from home, as soon as they heard Reṇukā loudly calling “O Rāma, O my son,” they hastily returned to the āśrama, where they saw their father already killed.
+

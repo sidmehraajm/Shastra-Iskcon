@@ -1,0 +1,22 @@
+# CC Madhya 18.23
+
+**Bengali:**
+
+‘গোবর্ধন-উপরে আমি কভু না চড়িব ।
+গোপাল-রায়ের দরশন কেমনে পাইব ?’ ২৩ ॥
+
+**Transliteration:**
+
+‘govardhana-upare āmi kabhu nā caḍiba
+gopāla-rāyera daraśana kemane pāiba?’
+
+**Synonyms:**
+
+Synonyms
+govardhana-upare — upon the hill known as Govardhana; āmi — I; kabhu — at any time; nā — not; caḍiba — shall climb; gopāla-rāyera — of Lord Gopāla; daraśana — visit; kemane — how; pāiba — I shall get.
+
+**Translation:**
+
+Translation
+Śrī Caitanya Mahāprabhu thought, “Since I shall not at any time climb Govardhana Hill, how shall I be able to see Gopāla Rāya?”
+

@@ -1,0 +1,26 @@
+# CC Madhya 2.34
+
+**Bengali:**
+
+কৃষ্ণ-কর-পদতল,     কোটিচন্দ্র-সুশীতল,
+তার স্পর্শ যেন স্পর্শমণি ।
+তার স্পর্শ নাহি যার,     সে যাউক্ ছারখার,
+সেই বপু লৌহ-সম জানি ॥ ৩৪ ॥
+
+**Transliteration:**
+
+kṛṣṇa-kara-pada-tala, koṭi-candra-suśītala,
+tāra sparśa yena sparśa-maṇi
+tāra sparśa nāhi yāra, se yāuk chārakhāra,
+sei vapu lauha-sama jāni
+
+**Synonyms:**
+
+Synonyms
+kṛṣṇa — of Lord Kṛṣṇa; kara — the palms; pada-tala — the soles of His feet; koṭi-candra — like the light of millions of moons; su-śītala — cool and pleasing; tāra — of them; sparśa — the touch; yena — like; sparśa-maṇi — touchstone; tāra — his; sparśa — touch; nāhi — not; yāra — of whom; se — that person; yāuk — let him go; chārakhāra — to ruin; sei vapu — that body; lauha-sama — like iron; jāni — I know.
+
+**Translation:**
+
+Translation
+“The palms of Kṛṣṇa’s hands and the soles of His feet are so cool and pleasant that they can be compared only to the light of millions of moons. One who has touched such hands and feet has indeed tasted the effects of touchstone. If one has not touched them, his life is spoiled, and his body is like iron.”
+

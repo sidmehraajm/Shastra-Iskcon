@@ -1,0 +1,24 @@
+# ŚB 4.7.12
+
+**Sanskrit:**
+
+कृच्छ्रात्संस्तभ्य च मन: प्रेमविह्वलित: सुधी: ।
+शशंस निर्व्यलीकेन भावेनेशं प्रजापति: ॥ १२ ॥
+
+**Transliteration:**
+
+kṛcchrāt saṁstabhya ca manaḥ
+prema-vihvalitaḥ sudhīḥ
+śaśaṁsa nirvyalīkena
+bhāveneśaṁ prajāpatiḥ
+
+**Synonyms:**
+
+Synonyms
+kṛcchrāt — with great endeavor; saṁstabhya — pacifying; ca — also; manaḥ — mind; prema-vihvalitaḥ — bewildered by love and affection; su-dhīḥ — one who has come to his real senses; śaśaṁsa — praised; nirvyalīkena — without duplicity, or with great love; bhāvena — in feeling; īśam — to Lord Śiva; prajāpatiḥ — King Dakṣa.
+
+**Translation:**
+
+Translation
+At this time, King Dakṣa, afflicted by love and affection, was very much awakened to his real senses. With great endeavor, he pacified his mind, checked his feelings, and with pure consciousness began to offer prayers to Lord Śiva.
+

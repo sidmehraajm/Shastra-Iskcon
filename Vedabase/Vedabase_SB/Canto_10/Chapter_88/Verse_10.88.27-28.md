@@ -1,0 +1,35 @@
+# ŚB 10.88.27-28
+
+**Sanskrit:**
+
+तं तथाव्यसनं द‍ृष्ट्वा भगवान् वृजिनार्दन: ।
+दूरात् प्रत्युदियाद् भूत्वा बटुको योगमायया ॥ २७ ॥
+मेखलाजिनदण्डाक्षैस्तेजसाग्निरिव ज्वलन् ।
+अभिवादयामास च तं कुशपाणिर्विनीतवत् ॥ २८ ॥
+
+**Transliteration:**
+
+taṁ tathā vyasanaṁ dṛṣṭvā
+bhagavān vṛjinārdanaḥ
+dūrāt pratyudiyād bhūtvā
+baṭuko yoga-māyayā
+mekhalājina-daṇḍākṣais
+tejasāgnir iva jvalan
+abhivādayām āsa ca taṁ
+kuśa-pāṇir vinīta-vat
+
+**Synonyms:**
+
+Synonyms
+tam — that; tathā — thus; vyasanam — danger; dṛṣṭvā — seeing; bhagavān — the Supreme Lord; vṛjina — of distress; ardanaḥ — the eradicator; dūrāt — from a distance; pratyudiyāt — he came before (Vṛkāsura); bhūtvā — becoming; baṭukaḥ — a young brāhmaṇa student; yoga-māyayā — by the mystic power of His internal energy; mekhala — with a student’s belt; ajina — deerskin; daṇḍa — rod; akṣaiḥ — and prayer beads; tejasā — by His effulgence; agniḥ iva — like fire; jvalan — glowing; abhivādayām āsa — He respectfully greeted; ca — and; tam — him; kuśa-pāṇiḥ — with kuśa grass in His hands; vinīta-vat — in a humble manner.
+
+**Translation:**
+
+Translation
+The Supreme Lord, who relieves His devotees’ distress, had seen from afar that Lord Śiva was in danger. Thus by His mystic Yoga-māyā potency He assumed the form of a brahmacārī student, with the appropriate belt, deerskin, rod and prayer beads, and came before Vṛkāsura. The Lord’s effulgence glowed brilliantly like fire. Holding kuśa grass in His hand, He humbly greeted the demon.
+
+**Purport:**
+
+Purport
+Śrīla Viśvanātha Cakravartī quotes the disguised Lord Nārāyaṇa as saying, “For Us seers of the Absolute Truth, all created beings are worthy of respect. And since you are the son of Śakuni, a wise man and performer of great austerities, you certainly deserve the respectful greeting of a young brahmacārī like Myself.”
+

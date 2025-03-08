@@ -1,0 +1,27 @@
+# CC Madhya 6.130
+
+**Bengali:**
+
+প্রভু কহে, — “সূত্রের অর্থ বুঝিয়ে নির্মল ।
+তোমার ব্যাখ্যা শুনি’ মন হয় ত’ বিকল ॥ ১৩০ ॥
+
+**Transliteration:**
+
+prabhu kahe, — “sūtrera artha bujhiye nirmala
+tomāra vyākhyā śuni’ mana haya ta’ vikala
+
+**Synonyms:**
+
+Synonyms
+prabhu kahe — the Lord replied; sūtrera artha — the meaning of the sūtras; nirmala — very clearly; tomāra — your; vyākhyā — explanation; śuni’ — hearing; mana — mind; haya — becomes; ta’ — indeed; vikala — disturbed.
+
+**Translation:**
+
+Translation
+Śrī Caitanya Mahāprabhu then revealed His mind, saying, “I can understand the meaning of each sūtra very clearly, but your explanations have simply agitated My mind.
+
+**Purport:**
+
+Purport
+The factual meaning of the aphorisms of the Vedānta-sūtra is as clear as sunshine. The Māyāvādī philosophers simply try to cover the sunshine with the clouds of interpretations imagined by Śaṅkarācārya and his followers.
+

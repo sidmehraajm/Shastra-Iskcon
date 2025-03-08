@@ -1,0 +1,31 @@
+# CC Madhya 21.138
+
+**Bengali:**
+
+কৃষ্ণাঙ্গ — লাবণ্যপূর,     মধুর হৈতে সুমধুর,
+তাতে যেই মুখ সুধাকর ।
+মধুর হৈতে সুমধুর,     তাহা হইতে সুমধুর,
+তার যেই স্মিত জ্যোৎস্না-ভর ॥ ১৩৮ ॥
+
+**Transliteration:**
+
+kṛṣṇāṅga — lāvaṇya-pūra, madhura haite sumadhura,
+tāte yei mukha sudhākara
+madhura haite sumadhura, tāhā ha-ite sumadhura,
+tāra yei smita jyotsnā-bhara
+
+**Synonyms:**
+
+Synonyms
+kṛṣṇa-aṅga — the bodily features of Kṛṣṇa; lāvaṇya-pūra — the city of attractive beauty; madhura — sweetness; haite — than; su-madhura — still more sweet; tāte — in that body; yei — that; mukha — face; sudhākara — like the moon; madhura haite su-madhura — sweeter than sweetness; tāhā ha-ite — than that; su-madhura — still more sweet; tāra — of which; yei — that; smita — smiling; jyotsnā-bhara — like the moonshine.
+
+**Translation:**
+
+Translation
+“Kṛṣṇa’s body is a city of attractive features, and it is sweeter than sweet. His face, which is like the moon, is sweeter still. And the supremely sweet gentle smile on that moonlike face is like rays of moonshine.
+
+**Purport:**
+
+Purport
+The smile on Kṛṣṇa’s face, which is just like the smiling of the moon, generates greater and greater happiness for the gopīs.
+

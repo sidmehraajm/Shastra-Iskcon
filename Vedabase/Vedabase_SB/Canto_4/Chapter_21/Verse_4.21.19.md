@@ -1,0 +1,24 @@
+# ŚB 4.21.19
+
+**Sanskrit:**
+
+शिशिरस्‍निग्धताराक्ष: समैक्षत समन्तत: ।
+ऊचिवानिदमुर्वीश: सद: संहर्षयन्निव ॥ १९ ॥
+
+**Transliteration:**
+
+śiśira-snigdha-tārākṣaḥ
+samaikṣata samantataḥ
+ūcivān idam urvīśaḥ
+sadaḥ saṁharṣayann iva
+
+**Synonyms:**
+
+Synonyms
+śiśira — dew; snigdha — wet; tārā — stars; akṣaḥ — eyes; samaikṣata — glanced over; samantataḥ — all around; ūcivān — began to speak; idam — this; urvīśaḥ — highly elevated; sadaḥ — amongst the members of the assembly; saṁharṣayan — enhancing their pleasure; iva — like.
+
+**Translation:**
+
+Translation
+Just to encourage the members of the assembly and to enhance their pleasure, King Pṛthu glanced over them with eyes that seemed like stars in a sky wet with dew. He then spoke to them in a great voice.
+

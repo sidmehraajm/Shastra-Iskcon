@@ -1,0 +1,22 @@
+# CC Antya 15.65
+
+**Bengali:**
+
+kaha, sakhi, ki kari upāya?
+kṛṣṇādbhuta balāhaka, mora netra-cātaka,
+nā dekhi’ piyāse mari’ yāya
+
+**Transliteration:**
+
+kaha — please tell; sakhi — My dear friend; ki kari upāya — what shall I do; kṛṣṇa — Kṛṣṇa; adbhuta — wonderful; balāhaka — cloud; mora — My; netra — eyes; cātaka — like cātaka birds; nā dekhi’ — without seeing; piyāse — from thirst; mari’ yāya — are dying.
+
+**Synonyms:**
+
+Synonyms
+kaha — please tell; sakhi — My dear friend; ki kari upāya — what shall I do; kṛṣṇa — Kṛṣṇa; adbhuta — wonderful; balāhaka — cloud; mora — My; netra — eyes; cātaka — like cātaka birds; nā dekhi’ — without seeing; piyāse — from thirst; mari’ yāya — are dying.
+
+**Translation:**
+
+Translation
+“My dear friend, please tell Me what I should do. Kṛṣṇa is as attractive as a wonderful cloud, and My eyes are just like cātaka birds, which are dying of thirst because they do not see such a cloud.
+

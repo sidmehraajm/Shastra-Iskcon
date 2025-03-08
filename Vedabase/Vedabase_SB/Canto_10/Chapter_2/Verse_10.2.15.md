@@ -1,0 +1,34 @@
+# ŚB 10.2.15
+
+**Sanskrit:**
+
+गर्भे प्रणीते देवक्या रोहिणीं योगनिद्रया । अहो विस्रंसितो गर्भ इति पौरा विचुक्रुशु: ॥ १५ ॥
+
+**Transliteration:**
+
+garbhe praṇīte devakyā
+rohiṇīṁ yoga-nidrayā
+aho visraṁsito garbha
+iti paurā vicukruśuḥ
+
+**Synonyms:**
+
+Synonyms
+garbhe — when the embryo; praṇīte — was carried from the womb; devakyāḥ — of Devakī; rohiṇīm — to the womb of Rohiṇī; yoga-nidrayā — by the spiritual energy called Yoga-māyā; aho — alas; visraṁsitaḥ — is lost; garbhaḥ — the embryo; iti — thus; paurāḥ — all the inhabitants of the house; vicukruśuḥ — lamented.
+
+**Translation:**
+
+Translation
+When the child of Devakī was attracted and transferred into the womb of Rohiṇī by Yoga-māyā, Devakī seemed to have a miscarriage. Thus all the inhabitants of the palace loudly lamented, “Alas, Devakī has lost her child!”
+
+**Purport:**
+
+Purport
+“All the inhabitants of the palace” includes Kaṁsa. When everyone lamented, Kaṁsa joined in compassion, thinking that perhaps because of drugs or some other external means, Devakī had undergone this abortion. The real story of what happened after Yoga-māyā attracted the child of Devakī into the womb of Rohiṇī in the seventh month of Rohiṇī’s pregnancy is described as follows in the Hari-vaṁśa. At midnight, while Rohiṇī was deeply sleeping, she experienced, as if in a dream, that she had undergone a miscarriage. After some time, when she awoke, she saw that this had indeed happened, and she was in great anxiety. But Yoga-māyā then informed her, “O auspicious lady, your child is now being replaced. I am attracting a child from the womb of Devakī, and therefore your child will be known as Saṅkarṣaṇa.”
+The word yoga-nidrā is significant. When one is spiritually reconnected through self-realization, one regards his material life as having been like a dream. As stated in Bhagavad-gītā (2.69):
+yā niśā sarva-bhūtānāṁ
+tasyāṁ jāgarti saṁyamī
+yasyāṁ jāgrati bhūtāni
+sā niśā paśyato muneḥ
+“What is night for all beings is the time of awakening for the self-controlled; and the time of awakening for all beings is night for the introspective sage.” The stage of self-realization is called yoga-nidrā. All material activities appear to be a dream when one is spiritually awakened. Thus yoga-nidrā may be explained to be Yoga-māyā.
+

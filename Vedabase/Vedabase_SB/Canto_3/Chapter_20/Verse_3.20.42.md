@@ -1,0 +1,29 @@
+# ŚB 3.20.42
+
+**Sanskrit:**
+
+ऊर्जस्वन्तं मन्यमान आत्मानं भगवानज: ।
+साध्यान् गणान् पितृगणान् परोक्षेणासृजत्प्रभु: ॥ ४२ ॥
+
+**Transliteration:**
+
+ūrjasvantaṁ manyamāna
+ātmānaṁ bhagavān ajaḥ
+sādhyān gaṇān pitṛ-gaṇān
+parokṣeṇāsṛjat prabhuḥ
+
+**Synonyms:**
+
+Synonyms
+ūrjaḥ-vantam — full of energy; manyamānaḥ — recognizing; ātmānam — himself; bhagavān — the most worshipful; ajaḥ — Brahmā; sādhyān — the demigods; gaṇān — hosts; pitṛ-gaṇān — and the Pitās; parokṣeṇa — from his invisible form; asṛjat — created; prabhuḥ — the lord of beings.
+
+**Translation:**
+
+Translation
+Recognizing himself to be full of desire and energy, the worshipful Brahmā, the creator of the living entities, evolved from his own invisible form, from his navel, the hosts of Sādhyas and Pitās.
+
+**Purport:**
+
+Purport
+The Sādhyas and Pitās are invisible forms of departed souls, and they are also created by Brahmā.
+

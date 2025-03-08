@@ -1,0 +1,24 @@
+# ŚB 10.12.6
+
+**Sanskrit:**
+
+यदि दूरं गत: कृष्णो वनशोभेक्षणाय तम् ।
+अहं पूर्वमहं पूर्वमिति संस्पृश्य रेमिरे ॥ ६ ॥
+
+**Transliteration:**
+
+yadi dūraṁ gataḥ kṛṣṇo
+vana-śobhekṣaṇāya tam
+ahaṁ pūrvam ahaṁ pūrvam
+iti saṁspṛśya remire
+
+**Synonyms:**
+
+Synonyms
+yadi — if; dūram — to a distant place; gataḥ — went; kṛṣṇaḥ — the Supreme Personality of Godhead; vana-śobha — the beauty of the forest; īkṣaṇāya — for visiting and enjoying; tam — unto Kṛṣṇa; aham — I; pūrvam — first; aham — I; pūrvam — first; iti — in this way; saṁspṛśya — by touching Him; remire — they enjoyed life.
+
+**Translation:**
+
+Translation
+Sometimes Kṛṣṇa would go to a somewhat distant place to see the beauty of the forest. Then all the other boys would run to accompany Him, each one saying, “I shall be the first to run and touch Kṛṣṇa! I shall touch Kṛṣṇa first!” In this way they enjoyed life by repeatedly touching Kṛṣṇa.
+

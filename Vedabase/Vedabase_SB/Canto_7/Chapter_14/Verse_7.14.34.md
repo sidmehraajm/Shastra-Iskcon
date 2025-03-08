@@ -1,0 +1,40 @@
+# ŚB 7.14.34
+
+**Sanskrit:**
+
+पात्रं त्वत्र निरुक्तं वै कविभि: पात्रवित्तमै: ।
+हरिरेवैक उर्वीश यन्मयं वै चराचरम् ॥ ३४ ॥
+
+**Transliteration:**
+
+pātraṁ tv atra niruktaṁ vai
+kavibhiḥ pātra-vittamaiḥ
+harir evaika urvīśa
+yan-mayaṁ vai carācaram
+
+**Synonyms:**
+
+Synonyms
+pātram — the true person to whom charity must be given; tu — but; atra — in the world; niruktam — decided; vai — indeed; kavibhiḥ — by learned scholars; pātra-vittamaiḥ — who are expert in finding the actual person to whom charity must be given; hariḥ — the Supreme Personality of Godhead; eva — indeed; ekaḥ — only one; urvī-īśa — O King of the earth; yat-mayam — in whom everything is resting; vai — from whom everything is coming; cara-acaram — all that is moving or nonmoving within this universe.
+
+**Translation:**
+
+Translation
+O King of the earth, it has been decided by expert, learned scholars that only the Supreme Personality of Godhead, Kṛṣṇa, in whom all that is moving or nonmoving within this universe is resting and from whom everything is coming, is the best person to whom everything must be given.
+
+**Purport:**
+
+Purport
+Whenever we perform some religious act in terms of dharma, artha, kāma and mokṣa, we must perform it according to the time, place and person (kāla, deśa, pātra). Nārada Muni has already described the deśa (place) and kāla (time). The kāla has been described in verses twenty through twenty-four, beginning with the words ayane viṣuve kuryād vyatīpāte dina-kṣaye. And the places for giving charity or performing ritualistic ceremonies have been described in verses thirty through thirty-three, beginning with sarāṁsi puṣkarādīni kṣetrāṇy arhāśritāny uta. Now, to whom everything must be given is decided in this verse. Harir evaika urvīśa yan-mayaṁ vai carācaram. The Supreme Personality of Godhead, Kṛṣṇa, is the root of everything, and therefore He is the best pātra, or person, to whom everything must be given. In Bhagavad-gītā (5.29) it is said:
+bhoktāraṁ yajña-tapasāṁ
+sarva-loka-maheśvaram
+suhṛdaṁ sarva-bhūtānāṁ
+jñātvā māṁ śāntim ṛcchati
+If one wants to enjoy real peace and prosperity, he should give everything to Kṛṣṇa, who is the real enjoyer, real friend and real proprietor. It is therefore said:
+yathā taror mūla-niṣecanena
+tṛpyanti tat-skandha-bhujopaśākhāḥ
+prāṇopahārāc ca yathendriyāṇāṁ
+tathaiva sarvārhaṇam acyutejyā
+(Bhāg. 4.31.14)
+By worshiping or satisfying Acyuta, the Supreme Personality of Godhead, Kṛṣṇa, one can satisfy everyone, just as one can water the branches, leaves and flowers of a tree simply by watering its root or as one satisfies all the senses of the body by giving food to the stomach. Therefore, a devotee simply offers everything to the Supreme Personality of Godhead to receive the best results of charity, religious performances, sense gratification and even liberation (dharma, artha, kāma, mokṣa).
+

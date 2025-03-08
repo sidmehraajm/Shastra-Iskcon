@@ -1,0 +1,29 @@
+# ŚB 10.15.38
+
+**Sanskrit:**
+
+फलप्रकरसङ्कीर्णं दैत्यदेहैर्गतासुभि: ।
+रराज भू: सतालाग्रैर्घनैरिव नभस्तलम् ॥ ३८ ॥
+
+**Transliteration:**
+
+phala-prakara-saṅkīrṇaṁ
+daitya-dehair gatāsubhiḥ
+rarāja bhūḥ sa-tālāgrair
+ghanair iva nabhas-talam
+
+**Synonyms:**
+
+Synonyms
+phala-prakara — with heaps of fruits; saṅkīrṇam — covered; daitya-dehaiḥ — with the bodies of the demons; gata-asubhiḥ — which were lifeless; rarāja — shone forth; bhūḥ — the earth; sa-tāla-agraiḥ — with the tops of the palm trees; ghanaiḥ — with clouds; iva — as; nabhaḥ-talam — the sky.
+
+**Translation:**
+
+Translation
+The earth then appeared beautifully covered with heaps of fruits and with the dead bodies of the demons, which were entangled in the broken tops of the palm trees. Indeed, the earth shone like the sky decorated with clouds.
+
+**Purport:**
+
+Purport
+According to Śrīla Viśvanātha Cakravartī Ṭhākura, the bodies of the demons were dark, like dark blue clouds, and the large quantity of blood that had flowed from their bodies appeared like bright red clouds. Thus the whole scene was very beautiful. The Supreme Personality of Godhead in His various forms, such as Rāma and Kṛṣṇa, is always transcendental, and when He enacts His transcendental pastimes the result is always beautiful and transcendental, even when the Lord performs violent acts like killing the stubborn ass demons.
+

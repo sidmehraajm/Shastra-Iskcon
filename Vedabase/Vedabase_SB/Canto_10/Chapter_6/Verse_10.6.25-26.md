@@ -1,0 +1,30 @@
+# ŚB 10.6.25-26
+
+**Sanskrit:**
+
+पृश्न‍िगर्भस्तु ते बुद्धिमात्मानं भगवान् पर: ।
+क्रीडन्तं पातु गोविन्द: शयानं पातु माधव: ॥ २५ ॥
+व्रजन्तमव्याद्वैकुण्ठ आसीनं त्वां श्रिय: पति: ।
+भुञ्जानं यज्ञभुक् पातु सर्वग्रहभयङ्कर: ॥ २६ ॥
+
+**Transliteration:**
+
+pṛśnigarbhas tu te buddhim
+ātmānaṁ bhagavān paraḥ
+krīḍantaṁ pātu govindaḥ
+śayānaṁ pātu mādhavaḥ
+vrajantam avyād vaikuṇṭha
+āsīnaṁ tvāṁ śriyaḥ patiḥ
+bhuñjānaṁ yajñabhuk pātu
+sarva-graha-bhayaṅkaraḥ
+
+**Synonyms:**
+
+Synonyms
+pṛśnigarbhaḥ — Lord Pṛśnigarbha; tu — indeed; te — Your; buddhim — intelligence; ātmānam — Your soul; bhagavān — the Supreme Personality of Godhead; paraḥ — transcendental; krīḍantam — while playing; pātu — may He protect; govindaḥ — Lord Govinda; śayānam — while sleeping; pātu — may He protect; mādhavaḥ — Lord Mādhava; vrajantam — while walking; avyāt — may He protect; vaikuṇṭhaḥ — Lord Vaikuṇṭha; āsīnam — while sitting down; tvām — unto You; śriyaḥ patiḥ — Nārāyaṇa, the husband of the goddess of fortune (may protect); bhuñjānam — while enjoying life; yajñabhuk — Yajñabhuk; pātu — may He protect; sarva-graha-bhayam-karaḥ — who is fearful to all evil planets.
+
+**Translation:**
+
+Translation
+May Lord Pṛśnigarbha protect Your intelligence, and the Supreme Personality of Godhead Your soul. While You are playing, may Govinda protect You, and while You are sleeping may Mādhava protect You. May Lord Vaikuṇṭha protect You while You are walking, and may Lord Nārāyaṇa, the husband of the goddess of fortune, protect You while You are sitting. Similarly, may Lord Yajñabhuk, the fearful enemy of all evil planets, always protect You while You enjoy life.
+

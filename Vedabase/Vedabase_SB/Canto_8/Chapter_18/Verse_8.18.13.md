@@ -1,0 +1,29 @@
+# ŚB 8.18.13
+
+**Sanskrit:**
+
+तं वटुं वामनं द‍ृष्ट्वा मोदमाना महर्षय: ।
+कर्माणि कारयामासु: पुरस्कृत्य प्रजापतिम् ॥ १३ ॥
+
+**Transliteration:**
+
+taṁ vaṭuṁ vāmanaṁ dṛṣṭvā
+modamānā maharṣayaḥ
+karmāṇi kārayām āsuḥ
+puraskṛtya prajāpatim
+
+**Synonyms:**
+
+Synonyms
+tam — Him; vaṭum — the brahmacārī; vāmanam — dwarf; dṛṣṭvā — seeing; modamānāḥ — in a happy mood; mahā-ṛṣayaḥ — the great saintly persons; karmāṇi — ritualistic ceremonies; kārayām āsuḥ — performed; puraskṛtya — keeping in front; prajāpatim — Kaśyapa Muni, the Prajāpati.
+
+**Translation:**
+
+Translation
+When the great sages saw the Lord as the brahmacārī-dwarf Vāmana, they were certainly very pleased. Thus they placed before them Kaśyapa Muni, the Prajāpati, and performed all the ritualistic ceremonies, such as the birthday ceremony.
+
+**Purport:**
+
+Purport
+According to Vedic civilization, when a child is born in the family of a brāhmaṇa, the birthday ceremony, known as jāta-karma, is first performed, and then other ceremonies are also gradually performed. But when this vāmana-rūpa appeared in the form of a vaṭu, or brahmacārī, His sacred thread ceremony was also performed immediately.
+

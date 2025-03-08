@@ -1,0 +1,24 @@
+# ŚB 9.17.11
+
+**Sanskrit:**
+
+तद्गोत्रं ब्रह्मविज् जज्ञे श‍ृणु वंशमनेनस: ।
+शुद्धस्तत: शुचिस्तस्माच्चित्रकृद् धर्मसारथि: ॥ ११ ॥
+
+**Transliteration:**
+
+tad-gotraṁ brahmavij jajñe
+śṛṇu vaṁśam anenasaḥ
+śuddhas tataḥ śucis tasmāc
+citrakṛd dharmasārathiḥ
+
+**Synonyms:**
+
+Synonyms
+tat-gotram — the descendant of Akriya; brahmavit — Brahmavit; jajñe — took birth; śṛṇu — just hear from me; vaṁśam — descendants; anenasaḥ — of Anenā; śuddhaḥ — a son known as Śuddha; tataḥ — from him; śuciḥ — Śuci; tasmāt — from him; citrakṛt — Citrakṛt; dharma-sārathiḥ — Dharmasārathi.
+
+**Translation:**
+
+Translation
+The son of Akriya was known as Brahmavit, O King. Now hear about the descendants of Anenā. From Anenā came a son named Śuddha, and his son was Śuci. The son of Śuci was Dharmasārathi, also called Citrakṛt.
+

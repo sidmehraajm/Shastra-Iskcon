@@ -1,0 +1,24 @@
+# ŚB 10.5.22
+
+**Sanskrit:**
+
+पूजित: सुखमासीन: पृष्ट्वानामयमाद‍ृत: ।
+प्रसक्तधी: स्वात्मजयोरिदमाह विशाम्पते ॥ २२ ॥
+
+**Transliteration:**
+
+pūjitaḥ sukham āsīnaḥ
+pṛṣṭvānāmayam ādṛtaḥ
+prasakta-dhīḥ svātmajayor
+idam āha viśāmpate
+
+**Synonyms:**
+
+Synonyms
+pūjitaḥ — Vasudeva having been so dearly welcomed; sukham āsīnaḥ — having been given a place to sit comfortably; pṛṣṭvā — asking; anāmayam — all-auspicious inquiries; ādṛtaḥ — being honored and respectfully received; prasakta-dhīḥ — because of his being very much attached; sva-ātmajayoḥ — to his own two sons, Kṛṣṇa and Balarāma; idam — the following; āha — inquired; viśām-pate — O Mahārāja Parīkṣit.
+
+**Translation:**
+
+Translation
+O Mahārāja Parīkṣit, having thus been received and welcomed by Nanda Mahārāja with honor, Vasudeva sat down very peacefully and inquired about his own two sons because of intense love for them.
+

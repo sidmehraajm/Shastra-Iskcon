@@ -1,0 +1,26 @@
+# ŚB 6.10.5
+
+**Sanskrit:**
+
+श्रीदेवा ऊचु:
+किं नु तद् दुस्त्यजं ब्रह्मन् पुंसां भूतानुकम्पिनाम् ।
+भवद्विधानां महतां पुण्यश्लोकेड्यकर्मणाम् ॥ ५ ॥
+
+**Transliteration:**
+
+śrī-devā ūcuḥ
+kiṁ nu tad dustyajaṁ brahman
+puṁsāṁ bhūtānukampinām
+bhavad-vidhānāṁ mahatāṁ
+puṇya-ślokeḍya-karmaṇām
+
+**Synonyms:**
+
+Synonyms
+śrī-devāḥ ūcuḥ — the demigods said; kim — what; nu — indeed; tat — that; dustyajam — difficult to give up; brahman — O exalted brāhmaṇa; puṁsām — of persons; bhūta-anukampinām — who are very sympathetic toward the suffering living entities; bhavat-vidhānām — like Your Lordship; mahatām — who are very great; puṇya-śloka-īḍya-karmaṇām — whose pious activities are praised by all great souls.
+
+**Translation:**
+
+Translation
+The demigods replied: O exalted brāhmaṇa, pious persons like you, whose activities are praiseworthy, are very kind and affectionate to people in general. What can’t such pious souls give for the benefit of others? They can give everything, including their bodies.
+

@@ -1,0 +1,26 @@
+# ŚB 8.18.22
+
+**Sanskrit:**
+
+ते ऋत्विजो यजमान: सदस्या
+हतत्विषो वामनतेजसा नृप ।
+सूर्य: किलायात्युत वा विभावसु:
+सनत्कुमारोऽथ दिद‍ृक्षया क्रतो: ॥ २२ ॥
+
+**Transliteration:**
+
+te ṛtvijo yajamānaḥ sadasyā
+hata-tviṣo vāmana-tejasā nṛpa
+sūryaḥ kilāyāty uta vā vibhāvasuḥ
+sanat-kumāro ’tha didṛkṣayā kratoḥ
+
+**Synonyms:**
+
+Synonyms
+te — all of them; ṛtvijaḥ — the priests; yajamānaḥ — as well as Bali Mahārāja, who had engaged them in performing the yajña; sadasyāḥ — all the members of the assembly; hata-tviṣaḥ — decreased in their bodily effulgence; vāmana-tejasā — by the brilliant effulgence of Lord Vāmana; nṛpa — O King; sūryaḥ — the sun; kila — whether; āyāti — is coming; uta vā — either; vibhāvasuḥ — the fire-god; sanat-kumāraḥ — the Kumāra known as Sanat-kumāra; atha — either; didṛkṣayā — with a desire to observe; kratoḥ — the sacrificial ceremony.
+
+**Translation:**
+
+Translation
+O King, because of Vāmanadeva’s bright effulgence, the priests, along with Bali Mahārāja and all the members of the assembly, were robbed of their splendor. Thus they began to ask one another whether the sun-god himself, Sanat-kumāra or the fire-god had personally come to see the sacrificial ceremony.
+

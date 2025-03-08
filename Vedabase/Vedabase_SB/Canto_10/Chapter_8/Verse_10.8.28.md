@@ -1,0 +1,29 @@
+# ŚB 10.8.28
+
+**Sanskrit:**
+
+कृष्णस्य गोप्यो रुचिरं वीक्ष्य कौमारचापलम् ।
+श‍ृण्वन्त्या: किल तन्मातुरिति होचु: समागता: ॥ २८ ॥
+
+**Transliteration:**
+
+kṛṣṇasya gopyo ruciraṁ
+vīkṣya kaumāra-cāpalam
+śṛṇvantyāḥ kila tan-mātur
+iti hocuḥ samāgatāḥ
+
+**Synonyms:**
+
+Synonyms
+kṛṣṇasya — of Kṛṣṇa; gopyaḥ — all the gopīs; ruciram — very attractive; vīkṣya — observing; kaumāra-cāpalam — the restlessness of the childish pastimes; śṛṇvantyāḥ — just to hear them again and again; kila — indeed; tat-mātuḥ — in the presence of His mother; iti — thus; ha — indeed; ūcuḥ — said; samāgatāḥ — assembled there.
+
+**Translation:**
+
+Translation
+Observing the very attractive childish restlessness of Kṛṣṇa, all the gopīs in the neighborhood, to hear about Kṛṣṇa’s activities again and again, would approach mother Yaśodā and speak to her as follows.
+
+**Purport:**
+
+Purport
+Kṛṣṇa’s activities are always very attractive to devotees. Therefore the neighbors, who were friends of mother Yaśodā, informed mother Yaśodā of whatever they saw Kṛṣṇa doing in the neighborhood. Mother Yaśodā, just to hear about the activities of her son, stopped her household duties and enjoyed the information given by the neighborhood friends.
+

@@ -1,0 +1,24 @@
+# ŚB 7.10.25
+
+**Sanskrit:**
+
+प्रसादसुमुखं द‍ृष्ट्वा ब्रह्मा नरहरिं हरिम् ।
+स्तुत्वा वाग्भि: पवित्राभि: प्राह देवादिभिर्वृत: ॥ २५ ॥
+
+**Transliteration:**
+
+prasāda-sumukhaṁ dṛṣṭvā
+brahmā narahariṁ harim
+stutvā vāgbhiḥ pavitrābhiḥ
+prāha devādibhir vṛtaḥ
+
+**Synonyms:**
+
+Synonyms
+prasāda-sumukham — whose face was bright because the Supreme Lord was pleased; dṛṣṭvā — seeing this situation; brahmā — Lord Brahmā; nara-harim — unto Lord Nṛsiṁhadeva; harim — the Supreme Personality of Godhead; stutvā — offering prayers; vāgbhiḥ — by transcendental words; pavitrābhiḥ — without any material contamination; prāha — addressed (the Lord); deva-ādibhiḥ — by other demigods; vṛtaḥ — surrounded.
+
+**Translation:**
+
+Translation
+Lord Brahmā, surrounded by the other demigods, was bright-faced because the Lord was pleased. Thus he offered prayers to the Lord with transcendental words.
+

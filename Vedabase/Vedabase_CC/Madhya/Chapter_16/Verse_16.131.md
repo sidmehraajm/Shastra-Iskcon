@@ -1,0 +1,22 @@
+# CC Madhya 16.131
+
+**Bengali:**
+
+পণ্ডিত কহে, — “যাহাঁ তুমি, সেই নীলাচল ।
+ক্ষেত্রসন্ন্যাস মোর যাউক রসাতল ॥” ১৩১ ॥
+
+**Transliteration:**
+
+paṇḍita kahe, — “yāhāṅ tumi, sei nīlācala
+kṣetra-sannyāsa mora yāuka rasātala”
+
+**Synonyms:**
+
+Synonyms
+paṇḍita kahe — Gadādhara Paṇḍita said; yāhāṅ — wherever; tumi — You are situated; sei — that; nīlācala — Jagannātha Purī; kṣetra-sannyāsa — vow to remain in a holy place of pilgrimage; mora — my; yāuka — let it go; rasātala — to hell.
+
+**Translation:**
+
+Translation
+When he was requested to return to Jagannātha Purī, Gadādhara Paṇḍita told the Lord, “Wherever You are staying is Jagannātha Purī. Let my so-called kṣetra-sannyāsa go to hell.”
+

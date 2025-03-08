@@ -1,0 +1,24 @@
+# CC Ādi 4.271-272
+
+**Bengali:**
+
+পিতামাতা, গুরুগণ, আগে অবতারি’ ।
+রাধিকার ভাব–বর্ণ অঙ্গীকার করি’ ॥ ২৭১ ॥
+নবদ্বীপে শচীগর্ভ–শুদ্ধদুগ্ধসিন্ধু ।
+তাহাতে প্রকট হৈলা কৃষ্ণ পূর্ণ ইন্দু ॥ ২৭২ ॥
+
+**Transliteration:**
+
+pitā-mātā, guru-gaṇa, āge avatāri’
+rādhikāra bhāva-varṇa aṅgīkāra kari’
+
+**Synonyms:**
+
+Synonyms
+pitā-mātā — parents; guru-gaṇa — teachers; āge — first; avatāri’ — descending; rādhikāra — of Śrīmatī Rādhārāṇī; bhāva-varṇa — the luster of transcendental ecstasy; aṅgīkāra kari’ — accepting; navadvīpe — in Navadvīpa; śacī-garbha — the womb of Śacī; śuddha — pure; dugdha-sindhu — the ocean of milk; tāhāte — in that; prakaṭa — manifested; hailā — became; kṛṣṇa — Lord Kṛṣṇa; pūrṇa indu — full moon.
+
+**Translation:**
+
+Translation
+First Lord Kṛṣṇa made His parents and elders appear. Then Kṛṣṇa Himself, with the sentiments and complexion of Rādhikā, appeared in Navadvīpa, like the full moon, from the womb of mother Śacī, which is like an ocean of pure milk.
+

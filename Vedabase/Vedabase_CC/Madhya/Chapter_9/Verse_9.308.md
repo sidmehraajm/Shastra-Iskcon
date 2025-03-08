@@ -1,0 +1,22 @@
+# CC Madhya 9.308
+
+**Bengali:**
+
+সৌন্দর্য-মাধুর্য-কৃষ্ণলীলার অবধি ।
+সেই জানে, যে ‘কর্ণামৃত’ পড়ে নিরবধি ॥ ৩০৮ ॥
+
+**Transliteration:**
+
+saundarya-mādhurya-kṛṣṇa-līlāra avadhi
+sei jāne, ye ‘karṇāmṛta’ paḍe niravadhi
+
+**Synonyms:**
+
+Synonyms
+saundarya — beauty; mādhurya — sweetness; kṛṣṇa-līlāra — of the pastimes of Lord Kṛṣṇa; avadhi — limit; sei jāne — he knows; ye — one who; karṇāmṛta — the book Kṛṣṇa-karṇāmṛta; niravadhi — constantly.
+
+**Translation:**
+
+Translation
+One who constantly reads the Kṛṣṇa-karṇāmṛta can fully understand the beauty and melodious taste of the pastimes of Lord Kṛṣṇa.
+

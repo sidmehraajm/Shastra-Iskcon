@@ -1,0 +1,26 @@
+# ŚB 10.33.23
+
+**Sanskrit:**
+
+सोऽम्भस्यलं युवतिभि: परिषिच्यमान:
+प्रेम्णेक्षित: प्रहसतीभिरितस्ततोऽङ्ग ।
+वैमानिकै: कुसुमवर्षिभिरीड्यमानो
+रेमे स्वयं स्वरतिरत्र गजेन्द्रलील: ॥ २३ ॥
+
+**Transliteration:**
+
+so ’mbhasy alaṁ yuvatibhiḥ pariṣicyamānaḥ
+premṇekṣitaḥ prahasatībhir itas tato ’ṅga
+vaimānikaiḥ kusuma-varṣibhir īdyamāno
+reme svayaṁ sva-ratir atra gajendra-līlaḥ
+
+**Synonyms:**
+
+Synonyms
+saḥ — He; ambhasi — in the water; alam — very much; yuvatibhiḥ — by the girls; pariṣicyamānaḥ — being splashed; premṇā — with love; īkṣitaḥ — glanced upon; prahasatībhiḥ — by them, who were laughing; itaḥ tataḥ — here and there; aṅga — my dear King; vaimānikaiḥ — by those traveling in their airplanes; kusuma — flowers; varṣibhiḥ — who were raining down; īḍyamānaḥ — being worshiped; reme — enjoyed; svayam — personally; sva-ratiḥ — satisfied within Himself; atra — here; gaja-indra — of a king of the elephants; līlaḥ — whose playing.
+
+**Translation:**
+
+Translation
+My dear King, in the water Kṛṣṇa found Himself being splashed on all sides by the laughing gopīs, who looked at Him with love. As the demigods worshiped Him by showering flowers from their airplanes, the self-satisfied Lord took pleasure in playing like the king of the elephants.
+

@@ -1,0 +1,26 @@
+# ŚB 8.9.1
+
+**Sanskrit:**
+
+श्रीशुक उवाच
+तेऽन्योन्यतोऽसुरा: पात्रं हरन्तस्त्यक्तसौहृदा: ।
+क्षिपन्तो दस्युधर्माण आयान्तीं दद‍ृशु: स्त्रियम् ॥ १ ॥
+
+**Transliteration:**
+
+śrī-śuka uvāca
+te ’nyonyato ’surāḥ pātraṁ
+harantas tyakta-sauhṛdāḥ
+kṣipanto dasyu-dharmāṇa
+āyāntīṁ dadṛśuḥ striyam
+
+**Synonyms:**
+
+Synonyms
+śrī-śukaḥ uvāca — Śrī Śukadeva Gosvāmī said; te — the demons; anyonyataḥ — among themselves; asurāḥ — the demons; pātram — the container of nectar; harantaḥ — snatching from one another; tyakta-sauhṛdāḥ — became inimical toward one another; kṣipantaḥ — sometimes throwing; dasyu-dharmāṇaḥ — sometimes snatching like robbers; āyāntīm — coming forward; dadṛśuḥ — saw; striyam — a very beautiful and attractive woman.
+
+**Translation:**
+
+Translation
+Śukadeva Gosvāmī said: Thereafter, the demons became inimical toward one another. Throwing and snatching the container of nectar, they gave up their friendly relationship. Meanwhile, they saw a very beautiful young woman coming forward toward them.
+

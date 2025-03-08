@@ -1,0 +1,29 @@
+# ŚB 10.9.23
+
+**Sanskrit:**
+
+पुरा नारदशापेन वृक्षतां प्रापितौ मदात् ।
+नलकूवरमणिग्रीवाविति ख्यातौ श्रियान्वितौ ॥ २३ ॥
+
+**Transliteration:**
+
+purā nārada-śāpena
+vṛkṣatāṁ prāpitau madāt
+nalakūvara-maṇigrīvāv
+iti khyātau śriyānvitau
+
+**Synonyms:**
+
+Synonyms
+purā — formerly; nārada-śāpena — being cursed by Nārada Muni; vṛkṣatām — the forms of trees; prāpitau — obtained; madāt — because of madness; nalakūvara — one of them was Nalakūvara; maṇigrīvau — the other was Maṇigrīva; iti — thus; khyātau — well known; śriyā anvitau — very opulent.
+
+**Translation:**
+
+Translation
+In their former birth, these two sons, known as Nalakūvara and Maṇigrīva, were extremely opulent and fortunate. But because of pride and false prestige, they did not care about anyone, and thus Nārada Muni cursed them to become trees.
+
+**Purport:**
+
+Purport
+Thus end the Bhaktivedanta purports of the Tenth Canto, Ninth Chapter, of the Śrīmad-Bhāgavatam, entitled “Mother Yaśodā Binds Lord Kṛṣṇa.”
+

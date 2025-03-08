@@ -1,0 +1,24 @@
+# ŚB 10.7.34
+
+**Sanskrit:**
+
+एकदार्भकमादाय स्वाङ्कमारोप्य भामिनी ।
+प्रस्‍नुतं पाययामास स्तनं स्‍नेहपरिप्लुता ॥ ३४ ॥
+
+**Transliteration:**
+
+ekadārbhakam ādāya
+svāṅkam āropya bhāminī
+prasnutaṁ pāyayām āsa
+stanaṁ sneha-pariplutā
+
+**Synonyms:**
+
+Synonyms
+ekadā — once upon a time; arbhakam — the child; ādāya — taking; sva-aṅkam — on her own lap; āropya — and placing Him; bhāminī — mother Yaśodā; prasnutam — breast milk oozing out; pāyayām āsa — fed the child; stanam — her breast; sneha-pariplutā — with great affection and love.
+
+**Translation:**
+
+Translation
+One day mother Yaśodā, having taken Kṛṣṇa up and placed Him on her lap, was feeding Him milk from her breast with maternal affection. The milk was flowing from her breast, and the child was drinking it.
+

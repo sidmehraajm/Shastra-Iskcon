@@ -1,0 +1,24 @@
+# ŚB 9.4.9
+
+**Sanskrit:**
+
+नाभागस्तं प्रणम्याह तवेश किल वास्तुकम् ।
+इत्याह मे पिता ब्रह्मञ्छिरसा त्वां प्रसादये ॥ ९ ॥
+
+**Transliteration:**
+
+nābhāgas taṁ praṇamyāha
+taveśa kila vāstukam
+ity āha me pitā brahmañ
+chirasā tvāṁ prasādaye
+
+**Synonyms:**
+
+Synonyms
+nābhāgaḥ — Nābhāga; tam — unto him (Lord Śiva); praṇamya — offering obeisances; āha — said; tava — yours; īśa — O lord; kila — certainly; vāstukam — everything in the arena of sacrifice; iti — thus; āha — said; me — my; pitā — father; brahman — O brāhmaṇa; śirasā — bowing my head; tvām — unto you; prasādaye — I am begging your mercy.
+
+**Translation:**
+
+Translation
+Thereupon, after offering obeisances to Lord Śiva, Nābhāga said: O worshipable lord, everything in this arena of sacrifice is yours. This is the assertion of my father. Now, with great respect, I bow my head before you, begging your mercy.
+

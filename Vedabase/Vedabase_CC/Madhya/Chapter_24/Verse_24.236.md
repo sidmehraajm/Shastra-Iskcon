@@ -1,0 +1,22 @@
+# CC Madhya 24.236
+
+**Bengali:**
+
+পথ ছাড়ি’ নারদ তার নিকটে চলিল ।
+নারদে দেখি’ মৃগ সব পলাঞা গেল ॥ ২৩৬ ॥
+
+**Transliteration:**
+
+patha chāḍi’ nārada tāra nikaṭe calila
+nārade dekhi’ mṛga saba palāñā gela
+
+**Synonyms:**
+
+Synonyms
+patha chāḍi’ — leaving aside the path; nārada — the saintly person Nārada; tāra nikaṭe — near him; calila — went; nārade dekhi’ — seeing Nārada; mṛga — the animals; saba — all; palāñā gela — left, running away.
+
+**Translation:**
+
+Translation
+“When Nārada Muni left the forest path and went to the hunter, all the animals immediately saw him and fled.
+

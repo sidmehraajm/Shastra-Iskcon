@@ -1,0 +1,22 @@
+# CC Madhya 16.49
+
+**Bengali:**
+
+কুলীনগ্রামী পট্টডোরী জগন্নাথে দিল ।
+পূর্ববৎ রথ-অগ্রে নর্তন করিল ॥ ৪৯ ॥
+
+**Transliteration:**
+
+kulīna-grāmī paṭṭa-ḍorī jagannāthe dila
+pūrvavat ratha-agre nartana karila
+
+**Synonyms:**
+
+Synonyms
+kulīna-grāmī — the residents of Kulīna-grāma; paṭṭa-ḍorī — silken ropes; jagannāthe dila — offered to Lord Jagannātha; pūrva-vat — as in the previous year; ratha-agre — in front of the car; nartana karila — danced.
+
+**Translation:**
+
+Translation
+The inhabitants of Kulīna-grāma delivered silken ropes to Lord Jagannātha, and, as previously, they all danced before the Lord’s car.
+

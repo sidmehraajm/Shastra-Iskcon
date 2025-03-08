@@ -1,0 +1,24 @@
+# ŚB 7.10.41
+
+**Sanskrit:**
+
+आख्यातं सर्वमेतत्ते यन्मां त्वं परिपृष्टवान् ।
+दमघोषसुतादीनां हरे: सात्म्यमपि द्विषाम् ॥ ४१ ॥
+
+**Transliteration:**
+
+ākhyātaṁ sarvam etat te
+yan māṁ tvaṁ paripṛṣṭavān
+damaghoṣa-sutādīnāṁ
+hareḥ sātmyam api dviṣām
+
+**Synonyms:**
+
+Synonyms
+ākhyātam — described; sarvam — everything; etat — this; te — unto you; yat — whatever; mām — unto me; tvam — you; paripṛṣṭavān — inquired; damaghoṣa-suta-ādīnām — of the son of Damaghoṣa (Śiśupāla) and others; hareḥ — of the Lord; sātmyam — equal bodily features; api — even; dviṣām — although they were inimical.
+
+**Translation:**
+
+Translation
+Everything you asked me about how Śiśupāla and others attained salvation although they were inimical has now been explained to you by me.
+

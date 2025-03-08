@@ -1,0 +1,26 @@
+# ŚB 6.15.1
+
+**Sanskrit:**
+
+श्रीशुक उवाच
+ऊचतुर्मृतकोपान्ते पतितं मृतकोपमम् ।
+शोकाभिभूतं राजानं बोधयन्तौ सदुक्तिभि: ॥ १ ॥
+
+**Transliteration:**
+
+śrī-śuka uvāca
+ūcatur mṛtakopānte
+patitaṁ mṛtakopamam
+śokābhibhūtaṁ rājānaṁ
+bodhayantau sad-uktibhiḥ
+
+**Synonyms:**
+
+Synonyms
+śrī-śukaḥ uvāca — Śrī Śukadeva Gosvāmī said; ūcatuḥ — they spoke; mṛtaka — the dead body; upānte — near; patitam — fallen; mṛtaka-upamam — exactly like another dead body; śoka-abhibhūtam — very much aggrieved by lamentation; rājānam — to the King; bodhayantau — giving instruction; sat-uktibhiḥ — by instructions that are factual, not temporary.
+
+**Translation:**
+
+Translation
+Śrī Śukadeva Gosvāmī said: While King Citraketu, overcome by lamentation, lay like a dead body at the side of the dead body of his son, the two great sages Nārada and Aṅgirā instructed him about spiritual consciousness as follows.
+

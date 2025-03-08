@@ -1,0 +1,26 @@
+# ŚB 10.11.1
+
+**Sanskrit:**
+
+श्रीशुक उवाच
+गोपा नन्दादय: श्रुत्वा द्रुमयो: पततोरवम् ।
+तत्राजग्मु: कुरुश्रेष्ठ निर्घातभयशङ्किता: ॥ १ ॥
+
+**Transliteration:**
+
+śrī-śuka uvāca
+gopā nandādayaḥ śrutvā
+drumayoḥ patato ravam
+tatrājagmuḥ kuru-śreṣṭha
+nirghāta-bhaya-śaṅkitāḥ
+
+**Synonyms:**
+
+Synonyms
+śrī-śukaḥ uvāca — Śrī Śukadeva Gosvāmī said; gopāḥ — all the cowherd men; nanda-ādayaḥ — headed by Nanda Mahārāja; śrutvā — hearing; drumayoḥ — of the two trees; patatoḥ — falling down; ravam — the high sound, as terrible as a thunderbolt; tatra — there, on the spot; ājagmuḥ — went; kuru-śreṣṭha — O Mahārāja Parīkṣit; nirghāta-bhaya-śaṅkitāḥ — who were afraid of falling thunderbolts.
+
+**Translation:**
+
+Translation
+Śukadeva Gosvāmī continued: O Mahārāja Parīkṣit, when the yamala-arjuna trees fell, all the cowherd men in the neighborhood, hearing the fierce sound and fearing thunderbolts, went to the spot.
+

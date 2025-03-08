@@ -1,0 +1,22 @@
+# CC Madhya 17.217
+
+**Bengali:**
+
+শুক-শারী উড়ি’ পুনঃ গেল বৃক্ষডালে ।
+ময়ূরের নৃত্য প্রভু দেখে কুতূহলে ॥ ২১৭ ॥
+
+**Transliteration:**
+
+śuka-śārī uḍi’ punaḥ gela vṛkṣa-ḍāle
+mayūrera nṛtya prabhu dekhe kutūhale
+
+**Synonyms:**
+
+Synonyms
+śuka-śārī — the male and female parrots; uḍi’ — flying; punaḥ — again; gela — went; vṛkṣa-ḍāle — to the branch of a tree; mayūrera — of the peacocks; nṛtya — dancing; prabhu — Śrī Caitanya Mahāprabhu; dekhe — sees; kutūhale — with curiosity.
+
+**Translation:**
+
+Translation
+Both parrots then flew onto a tree branch, and Śrī Caitanya Mahāprabhu began to watch the dancing of the peacocks with curiosity.
+

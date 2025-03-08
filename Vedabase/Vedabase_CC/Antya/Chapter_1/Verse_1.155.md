@@ -1,0 +1,28 @@
+# CC Antya 1.155
+
+**Bengali:**
+
+hitvā dūre pathi dhava-taror antikaṁ dharma-setor
+bhaṅgodagrā guru-śikhariṇaṁ raṁhasā laṅghayantī
+lebhe kṛṣṇārṇava nava-rasā rādhikā-vāhinī tvāṁ
+vāg-vīcībhiḥ kim iva vimukhī-bhāvam asyās tanoṣi
+
+**Transliteration:**
+
+hitvā — giving up; dūre — far away; pathi — on the road; dhava-taroḥ — of the tree of the husband; antikam — the vicinity; dharma-setoḥ — the bridge of religion; bhaṅga-udagrā — being strong enough for breaking; guru-śikhariṇam — the hill of the superior relatives; raṁhasā — with great force; laṅghayantī — crossing over; lebhe — has obtained; kṛṣṇa-arnava — O ocean of Kṛṣṇa; nava-rasā — being influenced by new ecstatic love; rādhikā — Śrīmatī Rādhārāṇī; vāhinī — like a river; tvām — You; vāk-vīcibhiḥ — only by the waves of words; kim — how; iva — like this; vimukhī-bhāvam — indifference; asyāḥ — toward Her; tanoṣi — You are spreading.
+
+**Synonyms:**
+
+Synonyms
+hitvā — giving up; dūre — far away; pathi — on the road; dhava-taroḥ — of the tree of the husband; antikam — the vicinity; dharma-setoḥ — the bridge of religion; bhaṅga-udagrā — being strong enough for breaking; guru-śikhariṇam — the hill of the superior relatives; raṁhasā — with great force; laṅghayantī — crossing over; lebhe — has obtained; kṛṣṇa-arnava — O ocean of Kṛṣṇa; nava-rasā — being influenced by new ecstatic love; rādhikā — Śrīmatī Rādhārāṇī; vāhinī — like a river; tvām — You; vāk-vīcibhiḥ — only by the waves of words; kim — how; iva — like this; vimukhī-bhāvam — indifference; asyāḥ — toward Her; tanoṣi — You are spreading.
+
+**Translation:**
+
+Translation
+“ ‘O Lord Kṛṣṇa, You are just like an ocean. The river of Śrīmatī Rādhārāṇī has reached You from a long distance — leaving far behind the tree of Her husband, breaking through the bridge of social convention, and forcibly crossing the hills of elder relatives. Coming here because of fresh feelings of love for You, that river has now received Your shelter, but now You are trying to turn Her back by the waves of unfavorable words. How is it that You are spreading this attitude?’ ”
+
+**Purport:**
+
+Purport
+This verse from the Vidagdha-mādhava (3.9) is spoken to Lord Kṛṣṇa by Paurṇamāsī.
+

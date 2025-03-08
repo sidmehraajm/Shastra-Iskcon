@@ -1,0 +1,22 @@
+# CC Madhya 9.214
+
+**Bengali:**
+
+বিপ্র কহে, — তুমি সাক্ষাৎ শ্রীরঘুনন্দন ।
+সন্ন্যাসীর বেষে মোরে দিলা দরশন ॥ ২১৪ ॥
+
+**Transliteration:**
+
+vipra kahe, — tumi sākṣāt śrī-raghunandana
+sannyāsīra veṣe more dilā daraśana
+
+**Synonyms:**
+
+Synonyms
+vipra kahe — the brāhmaṇa said; tumi — You; sākṣāt — directly; śrī-raghunandana — Lord Śrī Rāmacandra; sannyāsīra veṣe — in the dress of a mendicant; more — unto me; dilā — You gave; daraśana — audience.
+
+**Translation:**
+
+Translation
+After receiving the manuscript, the brāhmaṇa, being very pleased, said, “Sir, You are Lord Rāmacandra Himself and have come in the dress of a sannyāsī to give me audience.
+

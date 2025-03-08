@@ -1,0 +1,22 @@
+# CC Ādi 4.104
+
+**Bengali:**
+
+অতি গূঢ় হেতু সেই ত্রিবিধ প্রকার ।
+দামোদরস্বরূপ হৈতে যাহার প্রচার ॥ ১০৪ ॥
+
+**Transliteration:**
+
+ati gūḍha hetu sei tri-vidha prakāra
+dāmodara-svarūpa haite yāhāra pracāra
+
+**Synonyms:**
+
+Synonyms
+ati — very; gūḍha — esoteric; hetu — reason; sei — that; tri-vidha — three; prakāra — kinds; dāmodara-svarūpa haite — from Svarūpa Dāmodara; yāhāra — of which; pracāra — the proclamation.
+
+**Translation:**
+
+Translation
+That most confidential cause is threefold. Svarūpa Dāmodara has revealed it.
+

@@ -1,0 +1,31 @@
+# ŚB 7.2.1
+
+**Sanskrit:**
+
+श्रीनारद उवाच
+भ्रातर्येवं विनिहते हरिणा क्रोडमूर्तिना ।
+हिरण्यकशिपू राजन् पर्यतप्यद्रुषा शुचा ॥ १ ॥
+
+**Transliteration:**
+
+śrī-nārada uvāca
+bhrātary evaṁ vinihate
+hariṇā kroḍa-mūrtinā
+hiraṇyakaśipū rājan
+paryatapyad ruṣā śucā
+
+**Synonyms:**
+
+Synonyms
+śrī-nāradaḥ uvāca — Śrī Nārada Muni said; bhrātari — when the brother (Hiraṇyākṣa); evam — thus; vinihate — was killed; hariṇā — by Hari; kroḍa-mūrtinā — in the form of the boar, Varāha; hiraṇyakaśipuḥ — Hiraṇyakaśipu; rājan — O King; paryatapyat — was afflicted; ruṣā — by anger; śucā — by grief.
+
+**Translation:**
+
+Translation
+Śrī Nārada Muni said: My dear King Yudhiṣṭhira, when Lord Viṣṇu, in the form of Varāha, the boar, killed Hiraṇyākṣa, Hiraṇyākṣa’s brother Hiraṇyakaśipu was extremely angry and began to lament.
+
+**Purport:**
+
+Purport
+Yudhiṣṭhira had inquired from Nārada Muni why Hiraṇyakaśipu was so envious of his own son Prahlāda. Nārada Muni began narrating the story by explaining how Hiraṇyakaśipu had become a staunch enemy of Lord Viṣṇu.
+

@@ -1,0 +1,29 @@
+# ŚB 4.4.32
+
+**Sanskrit:**
+
+तेषामापततां वेगं निशाम्य भगवान् भृगु: ।
+यज्ञघ्नघ्नेन यजुषा दक्षिणाग्नौ जुहाव ह ॥ ३२ ॥
+
+**Transliteration:**
+
+teṣām āpatatāṁ vegaṁ
+niśāmya bhagavān bhṛguḥ
+yajña-ghna-ghnena yajuṣā
+dakṣiṇāgnau juhāva ha
+
+**Synonyms:**
+
+Synonyms
+teṣām — of them; āpatatām — who were approaching; vegam — the impulse; niśāmya — after seeing; bhagavān — the possessor of all opulences; bhṛguḥ — Bhṛgu Muni; yajña-ghna-ghnena — for killing the destroyers of the yajña; yajuṣā — with hymns of the Yajur Veda; dakṣiṇa-agnau — in the southern side of the sacrificial fire; juhāva — offered oblations; ha — certainly.
+
+**Translation:**
+
+Translation
+They came forward forcibly, but Bhṛgu Muni saw the danger and, offering oblations into the southern side of the sacrificial fire, immediately uttered mantric hymns from the Yajur Veda by which the destroyers of yajñic performances could be killed immediately.
+
+**Purport:**
+
+Purport
+Here is one example of powerful hymns in the Vedas which, when chanted, could perform wonderful acts. In the present Age of Kali it is not possible to find expert mantra chanters; therefore all the sacrifices recommended in the Vedas are forbidden in this age. The only sacrifice recommended in this age is the chanting of the Hare Kṛṣṇa mantra because in this age it is not possible to accumulate the needed funds for performing sacrifices, not to speak of finding expert brāhmaṇas who can chant the mantras perfectly.
+

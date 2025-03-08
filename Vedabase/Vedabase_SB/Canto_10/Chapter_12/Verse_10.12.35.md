@@ -1,0 +1,31 @@
+# ŚB 10.12.35
+
+**Sanskrit:**
+
+तदद्भ‍ुतस्तोत्रसुवाद्यगीतिका-
+जयादिनैकोत्सवमङ्गलस्वनान् ।
+श्रुत्वा स्वधाम्नोऽन्त्यज आगतोऽचिराद्
+द‍ृष्ट्वा महीशस्य जगाम विस्मयम् ॥ ३५ ॥
+
+**Transliteration:**
+
+tad-adbhuta-stotra-suvādya-gītikā-
+jayādi-naikotsava-maṅgala-svanān
+śrutvā sva-dhāmno ’nty aja āgato ’cirād
+dṛṣṭvā mahīśasya jagāma vismayam
+
+**Synonyms:**
+
+Synonyms
+tat — that celebration performed by the demigods in the upper planetary system; adbhuta — wonderful; stotra — prayers; su-vādya — glorious musical sounds of drums and other instruments; gītikā — celestial songs; jaya-ādi — sounds of jaya, etc.; na-eka-utsava — celebrations simply for glorifying the Supreme Personality of Godhead; maṅgala-svanān — transcendental sounds auspicious for everyone; śrutvā — hearing such sounds; sva-dhāmnaḥ — from his abode; anti — nearby; ajaḥ — Lord Brahmā; āgataḥ — coming there; acirāt — very soon; dṛṣṭvā — seeing; mahi — the glorification; īśasya — of Lord Kṛṣṇa; jagāma vismayam — became astonished.
+
+**Translation:**
+
+Translation
+When Lord Brahmā heard the wonderful ceremony going on near his planet, accompanied by music and songs and sounds of “Jaya! Jaya!” he immediately came down to see the function. Upon seeing so much glorification of Lord Kṛṣṇa, he was completely astonished.
+
+**Purport:**
+
+Purport
+Here the word anti means “near,” indicating that even in the higher planetary systems near Brahmaloka, like Maharloka, Janaloka and Tapoloka, the festival of glorification of Lord Kṛṣṇa was going on.
+

@@ -1,0 +1,24 @@
+# ŚB 1.13.6
+
+**Sanskrit:**
+
+मुमुचु: प्रेमबाष्पौघं विरहौत्कण्ठ्यकातरा: ।
+राजा तमर्हयाञ्चक्रे कृतासनपरिग्रहम् ॥ ६ ॥
+
+**Transliteration:**
+
+mumucuḥ prema-bāṣpaughaṁ
+virahautkaṇṭhya-kātarāḥ
+rājā tam arhayāṁ cakre
+kṛtāsana-parigraham
+
+**Synonyms:**
+
+Synonyms
+mumucuḥ — emanated; prema — affectionate; bāṣpa-ogham — emotional tears; viraha — separation; autkaṇṭhya — anxiousness; kātarāḥ — being aggrieved; rājā — King Yudhiṣṭhira; tam — unto him (Vidura); arhayām cakre — offered; kṛta — performance of; āsana — sitting accommodations; parigraham — arrangement of.
+
+**Translation:**
+
+Translation
+Due to anxieties and long separation, they all cried out of affection. King Yudhiṣṭhira then arranged to offer sitting accommodations and a reception.
+

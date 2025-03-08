@@ -1,0 +1,24 @@
+# CC Ādi 15.4
+
+**Bengali:**
+
+পৌগণ্ড–লীলা চৈতন্যকৃষ্ণস্যাতিসুবিস্তৃতা ।
+বিদ্যারম্ভমুখা পাণিগ্রহণান্তা মনোহরা ॥ ৪ ॥
+
+**Transliteration:**
+
+paugaṇḍa-līlā caitanya-
+kṛṣṇasyāti-suvistṛtā
+vidyārambha-mukhā pāṇi-
+grahaṇāntā mano-harā
+
+**Synonyms:**
+
+Synonyms
+paugaṇḍa-līlā — the pastimes of the paugaṇḍa age; caitanya-kṛṣṇasya — of Lord Caitanya, who is Kṛṣṇa Himself; ati-suvistṛtā — very much expanded; vidyā-ārambha — the beginning of education; mukhā — chief business; pāṇi-grahaṇa — marriage; antā — at the end; manaḥ-harā — very beautiful.
+
+**Translation:**
+
+Translation
+The pastimes of the Lord during His paugaṇḍa age were very extensive. His education was His chief occupation, and after that His very beautiful marriage took place.
+

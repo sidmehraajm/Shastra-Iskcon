@@ -1,0 +1,22 @@
+# CC Madhya 18.92
+
+**Bengali:**
+
+একদিন অক্রূরেতে লোক প্রাতঃকালে ।
+বৃন্দাবন হৈতে আইসে করি’ কোলাহলে ॥ ৯২ ॥
+
+**Transliteration:**
+
+eka-dina akrūrete loka prātaḥ-kāle
+vṛndāvana haite āise kari’ kolāhale
+
+**Synonyms:**
+
+Synonyms
+eka-dina — one day; akrūrete — at Akrūra-tīrtha; loka — people; prātaḥ-kāle — in the morning; vṛndāvana haite — from Vṛndāvana; āise — came; kari’ — making; kolāhale — tumult.
+
+**Translation:**
+
+Translation
+One morning many people came to Akrūra-tīrtha. As they came from Vṛndāvana, they made a tumultuous sound.
+

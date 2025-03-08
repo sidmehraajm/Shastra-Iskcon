@@ -1,0 +1,22 @@
+# CC Madhya 25.63
+
+**Bengali:**
+
+শেখর, পরমানন্দ, তপন, সনাতন ।
+চারিজন মিলি’ করে নাম-সংকীর্তন ॥ ৬৩ ॥
+
+**Transliteration:**
+
+śekhara, paramānanda, tapana, sanātana
+cāri-jana mili’ kare nāma-saṅkīrtana
+
+**Synonyms:**
+
+Synonyms
+śekhara — Candraśekhara; paramānanda — Paramānanda Purī; tapana — Tapana Miśra; sanātana — Sanātana Gosvāmī; cāri-jana mili’ — all four of them; kare — perform; nāma-saṅkīrtana — chanting of the Hare Kṛṣṇa mantra..
+
+**Translation:**
+
+Translation
+There were four people accompanying Śrī Caitanya Mahāprabhu, and these were Candraśekhara, Paramānanda Purī, Tapana Miśra and Sanātana Gosvāmī. They were all chanting the Hare Kṛṣṇa mahā-mantra in the following way.
+

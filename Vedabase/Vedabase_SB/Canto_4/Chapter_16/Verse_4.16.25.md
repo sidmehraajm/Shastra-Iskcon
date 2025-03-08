@@ -1,0 +1,28 @@
+# ŚB 4.16.25
+
+**Sanskrit:**
+
+एष स्वसद्मोपवने समेत्यसनत्कुमारं भगवन्तमेकम् । आराध्य भक्त्यालभतामलं तज्ज्ञानं यतो ब्रह्म परं विदन्ति ॥ २५ ॥
+
+**Transliteration:**
+
+eṣa sva-sadmopavane sametya
+sanat-kumāraṁ bhagavantam ekam
+ārādhya bhaktyālabhatāmalaṁ taj
+jñānaṁ yato brahma paraṁ vidanti
+
+**Synonyms:**
+
+Synonyms
+eṣaḥ — this King; sva-sadma — of his palace; upavane — in the garden; sametya — meeting; sanat-kumāram — Sanat-kumāra; bhagavantam — the worshipable; ekam — alone; ārādhya — worshiping; bhaktyā — with devotion; alabhata — he will achieve; amalam — without contamination; tat — that; jñānam — transcendental knowledge; yataḥ — by which; brahma — spirit; param — supreme, transcendental; vidanti — they enjoy, they know.
+
+**Translation:**
+
+Translation
+This King Pṛthu will meet Sanat-kumāra, one of the four Kumāras, in the garden of his palace compound. The King will worship him with devotion and will be fortunate to receive instructions by which one can enjoy transcendental bliss.
+
+**Purport:**
+
+Purport
+The word vidanti refers to one who knows something or enjoys something. When a person is properly instructed by a spiritual master and understands transcendental bliss, he enjoys life. As stated in Bhagavad-gītā (18.54), brahma-bhūtaḥ prasannātmā na śocati na kāṅkṣati: when one attains to the Brahman platform, he neither hankers nor laments, and he actually partakes of transcendental, blissful enjoyment. Although King Pṛthu was an incarnation of Viṣṇu, he nonetheless taught the people in his kingdom to take instructions from a spiritual master who represents the disciplic succession. Thus one can become fortunate and enjoy a blissful life even within this material world. In this verse the verb vidanti is sometimes taken to mean “understanding.” Thus when a person understands Brahman, or the supreme source of everything, he enjoys a blissful life.
+
