@@ -1,18 +1,15 @@
 # Table of contents
 
-* Source_Folder
+
 * EXTRA
   * [Template](Source_Folder/EXTRA/Template.md)
 * Random Notes
   * [BShastri 8March 25 Last class](Source_Folder/Random Notes/BShastri 8March 25 Last class.md)
-* scripts
+
 * Study Bhakti Shastri
   * [BG Chapter 1](Source_Folder/Study Bhakti Shastri/BG Chapter 1.md)
   * [BG Study](Source_Folder/Study Bhakti Shastri/BG Study.md)
-* TAGS
-* [Important Verse](TAGS/Important Verse.md)
-* [Peaceful](TAGS/Peaceful.md)
-* Vedabase
+
 * Vedabase_BG
   * Chapter_1
     * [Translation only](Vedabase/Vedabase_BG/Chapter_1/Translation only.md)
