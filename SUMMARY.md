@@ -593,7 +593,7 @@
     * [Bg. 6.8](Vedabase/Vedabase_BG/Chapter_6/Verse_6.8.md)
     * [Bg. 6.9](Vedabase/Vedabase_BG/Chapter_6/Verse_6.9.md)
   * Chapter_7
-    * [Bg. 7.1](Vedabase/Vedabase_BG/Chapter_7/Verse_7.1.md)
+    * [Bg. 7.1](Krishna-Life/Vedabase/Vedabase_BG/Chapter_7/Verse_7.1.md)
     * [Bg. 7.10](Vedabase/Vedabase_BG/Chapter_7/Verse_7.10.md)
     * [Bg. 7.11](Vedabase/Vedabase_BG/Chapter_7/Verse_7.11.md)
     * [Bg. 7.12](Vedabase/Vedabase_BG/Chapter_7/Verse_7.12.md)
@@ -619,7 +619,7 @@
     * [Bg. 7.30](Vedabase/Vedabase_BG/Chapter_7/Verse_7.30.md)
     * [Bg. 7.4](Vedabase/Vedabase_BG/Chapter_7/Verse_7.4.md)
     * [Bg. 7.5](Vedabase/Vedabase_BG/Chapter_7/Verse_7.5.md)
-    * [Bg. 7.6](Vedabase/Vedabase_BG/Chapter_7/Verse_7.6.md)
+    * [Bg. 7.6](Shastra-Iskcon/Vedabase/Vedabase_BG/Chapter_7/BG_Verse_7.6.md)
     * [Bg. 7.7](Vedabase/Vedabase_BG/Chapter_7/Verse_7.7.md)
     * [Bg. 7.8](Vedabase/Vedabase_BG/Chapter_7/Verse_7.8.md)
     * [Bg. 7.9](Vedabase/Vedabase_BG/Chapter_7/Verse_7.9.md)
