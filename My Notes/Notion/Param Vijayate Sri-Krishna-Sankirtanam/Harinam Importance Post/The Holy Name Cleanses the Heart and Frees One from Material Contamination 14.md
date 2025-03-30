@@ -1,0 +1,9 @@
+---
+Column: 2021-09-06T16:40
+Link: https://soundcloud.com/forest-fire-kirtans/stoka-krsna-akshay-tritiya-the
+---
+_Quote of the day:"The Holy Name Cleanses the Heart and Frees One from Material Contamination"_
+
+By constantly chanting the maha−mantra, one makes progress in spiritual life and ultimately sees Krsna face to face: _Srila Sridhara Svami quotes that to do what is good and to reject what is not good is called mangala, or auspicious. To do what is good means to accept everything favorable to the discharge of devotional service, and to reject what is not good means to reject everything not favorable for discharging devotional service_. In our Krsna consciousness movement, we accept this principle by rejecting four _prohibited items−namely illicit sex life, intoxication, gambling and flesh−eating−and accepting the daily chanting of at least sixteen rounds of the Hare Krsna maha−mantra and daily meditation three times a day by chanting the Gayatri mantra_. In this way one can keep his brahminical culture and spiritual strength intact. By following these principles of devotional service strictly, chanting twenty−four hours a day the maha−mantra−Hare Krsna, Hare Krsna, Krsna Krsna, Hare Hare/ Hare Rama, Hare Rama, Rama Rama, Hare Hare−one makes positive progress in spiritual life and ultimately becomes completely fit to see the Supreme Personality of Godhead face to face. _Because the ultimate goal of studying or understanding the Vedic knowledge is to find Krsna, one who follows the Vedic principles as described above can from the very beginning see all the features of Lord Krsna, the Absolute Truth, very distinctly, as one can see one's own face completely reflected in a clear mirror_
+
+[https://soundcloud.com/forest-fire-kirtans/stoka-krsna-akshay-tritiya-the](https://soundcloud.com/forest-fire-kirtans/stoka-krsna-akshay-tritiya-the)

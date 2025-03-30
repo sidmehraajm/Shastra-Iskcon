@@ -1,0 +1,3 @@
+---
+Notes: "- BG is both Sruti & smriti said by prabhupada - Primary Cause of anxiety is Being absorbed in Illusion (Something which is not) ie when I think I’m this body- BG 2.40 No loss in endavor in Krishna Conciousness - Bg 9.27 DO everything for me, by this one aligns oneself with krishna- Whatever you have, skills, eating whatever it is if you dedicate it to Krishna, the faults will be mitigated as well as the it will be fixed- we are not Matter (stone) mind is stone, that is total oposite of god -  Matter is completely indifferent to god- our nature is activity - dedicate body mind and words you will never lack anything- develop attitude that krishna is all good whatever happens to me is for my own benifit - Refine one’s intentions and "
+---

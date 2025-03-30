@@ -1,0 +1,21 @@
+---
+Owner: Siddarth Mehra
+Last edited time: 2024-09-26T23:17
+---
+|   |   |   |
+|---|---|---|
+|**ŚB 3.2.23**|aho bakī yaṁ stana-kāla-kūṭaṁ  <br>  <br>jighāṁsayāpāyayad apy asādhvī  <br>  <br>lebhe gatiṁ dhātry-ucitāṁ tato ’nya**ṁ  <br>**  <br>**kaṁ vā dayāluṁ śaraṇaṁ vraj**  <br>ema|**Alas, how shall I take shelter of one more merciful than He who granted the position of mother to a she-demon [Pūtanā] although she was unfaithful and she prepared deadly poison to be sucked from her breast?**|
+|**ŚB 10.38.3**|kiṁ mayācaritaṁ bhadraṁ  <br>  <br>kiṁ taptaṁ paramaṁ tapaḥ  <br>  <br>kiṁ vāthāpy arhate dattaṁ  <br>  <br>yad drakṣyāmy adya keśavam|**[Śrī Akrūra thought:] What pious deeds have I done, what severe austerities undergone, what worship performed or charity given so that today I will see Lord Keśava?**|
+|**ŚB 10.38.4**|mamaitad durlabhaṁ manya  <br>  <br>uttamaḥ-śloka-darśanam  <br>  <br>viṣayātmano yathā brahma-  <br>  <br>kīrtanaṁ śūdra-janmanaḥ|**Since I am a materialistic person absorbed simply in sense gratification, I think it is as difficult for me to have gotten this opportunity to see Lord Uttamaḥśloka as it would be for one born a śūdra to be allowed to recite the Vedic mantras.**|
+|**ŚB 10.39.31**|śrī-śuka uvāca  <br>evaṁ bruvāṇā virahāturā bhṛśaṁ  <br>vraja-striyaḥ kṛṣṇa-viṣakta-mānasāḥ  <br>visṛjya lajjāṁ ruruduḥ sma su-svaraṁ  <br>govinda dāmodara mādhaveti|**Śukadeva Gosvāmī said: After speaking these words, the ladies of Vraja, who were so attached to Kṛṣṇa, felt extremely agitated by their imminent separation from Him. They forgot all shame and loudly cried out, “O Govinda! O Dāmodara! O Mādhava!”**|
+|**CC Antya 1.78**|yaḥ kaumāra-haraḥ sa eva hi varas tā eva caitra-kṣapās  <br>te conmīlita-mālatī-surabhayaḥ prauḍhāḥ kadambānilāḥ  <br>sā caivāsmi tathāpi tatra surata-vyāpāra-līlā-vidhau  <br>revā-rodhasi vetasī-taru-tale cetaḥ samutkaṇṭhate|**“That very personality who stole my heart during my youth is now again my master. These are the same moonlit nights of the month of Caitra. The same fragrance of mālatī flowers is there, and the same sweet breezes are blowing from the kadamba forest. In our intimate relationship, I am also the same lover, yet still my mind is not happy here. I am eager to go back to that place on the bank of the Revā under the Vetasī tree. That is my desire.”**|
+|**ŚB 11.2.37**|bhayaṁ dvitīyābhiniveśataḥ syād  <br>īśād apetasya viparyayo ’smṛtiḥ  <br>tan-māyayāto budha ābhajet taṁ  <br>bhaktyaikayeśaṁ guru-devatātmā|**Fear arises when a living entity misidentifies himself as the material body because of absorption in the external, illusory energy of the Lord. When the living entity thus turns away from the Supreme Lord, he also forgets his own constitutional position as a servant of the Lord. This bewildering, fearful condition is effected by the potency for illusion, called māyā. Therefore, an intelligent person should engage unflinchingly in the unalloyed devotional service of the Lord, under the guidance of a bona fide spiritual master, whom he should accept as his worshipable deity and as his very life and soul.**|
+|**CC Madhya 10.119**|heloddhūnita-khedayā viśadayā pronmīlad-āmodayā  <br>śāmyac-chāstra-vivādayā rasa-dayā cittārpitonmādayā  <br>śaśvad-bhakti-vinodayā sa-madayā mādhurya-maryādayā  <br>śrī-caitanya dayā-nidhe tava dayā bhūyād amandodayā|**“O ocean of mercy, Śrī Caitanya Mahāprabhu! Let there be an awakening of Your auspicious mercy, which easily drives away all kinds of material lamentation by making everything pure and blissful. Indeed, Your mercy awakens transcendental bliss and covers all material pleasures. By Your auspicious mercy, quarrels and disagreements arising among different scriptures are vanquished. Your auspicious mercy pours forth transcendental mellows and thus causes the heart to jubilate. Your mercy, which is full of joy, always stimulates devotional service and glorifies conjugal love of God. May transcendental bliss be awakened within my heart by Your causeless mercy.”**|
+||||
+||||
+||||
+||||
+||||
+||||
+||||
+||||
