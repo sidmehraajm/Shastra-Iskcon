@@ -49,7 +49,7 @@ Prabhava - manisfestation
 
 [[Krishna-Life/Vedabase/Vedabase_BG/BG_Chapter_7/BG_Verse_7.15|Verse_7.15]]  - why people not surrender as their intelligence is evil. 
 - Mudha - Animalistic Grosly Foolish, only want enjoyment 
-- Nara-adhama - Lowest of mankind one who has lost chance to get kc back, they may have done some bhakti sometime, but they thn rejected it denies, even preaching won't help. socially/politically developed but no bhakti. one lacking varnasram and purificatory samsaras. only hope is mercy of devotees
+- Nara-adhama - Lowest of mankind **one who has lost chance to get kc back, they may have done some bhakti sometime, but they thn rejected it denies**, even preaching won't help. socially/politically developed but no bhakti. one lacking varnasram and purificatory samsaras. only hope is mercy of devotees
 - Maya apahrta janah - deluded, thinks krishna as normal human
 - Asuram bhavam asritah - envious towards god, asuras like jarasandha as soon as  see krishna wana fight
 - Mayadevi is not allowing them so that 
