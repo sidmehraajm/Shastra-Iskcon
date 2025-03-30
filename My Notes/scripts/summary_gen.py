@@ -77,8 +77,13 @@ def generate_summary(root_dir, rel_path=""):
     return summary_lines
 
 def main():
-    # Use the current directory or a specified path
-    root_dir = sys.argv[1] if len(sys.argv) > 1 else "."
+    # Use the current directory or prompt for a folder
+    if len(sys.argv) > 1:
+        root_dir = sys.argv[1]
+    else:
+        root_dir = input("Enter the folder path (default is current directory): ").strip() or "."
+    
+    root_dir = os.path.abspath(root_dir)  # Convert to absolute path
     
     # Build the SUMMARY file contents
     summary_content = ["# Table of contents", ""]
