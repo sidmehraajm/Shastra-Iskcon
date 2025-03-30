@@ -30,3 +30,4 @@ Purport
 This translation is quoted from Śrīla Prabhupāda’s Caitanya-caritāmṛta, Madhya-līlā, Chapter Six, text 84.
 Lord Kṛṣṇa is very eager to bestow His mercy upon the conditioned living beings, who are uselessly struggling with the Lord’s illusory energy, Māyā. The conditioned soul struggles for happiness through sense gratification and for knowledge through mental speculation. Both processes ultimately bring him to a morose and hopeless condition. If the conditioned soul surrenders to the lotus feet of Lord Kṛṣṇa and thus acquires even a trace of His causeless mercy, the whole situation is changed, and the living entity can begin his real life of bliss and knowledge in Kṛṣṇa consciousness.
 
+[[Important Verse]]

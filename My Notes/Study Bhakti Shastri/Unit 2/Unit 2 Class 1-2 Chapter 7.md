@@ -64,5 +64,29 @@ agyant sukriti - don't know what we did to get this
 [[Krishna-Life/Vedabase/Vedabase_BG/BG_Chapter_7/BG_Verse_7.17|Verse_7.17]] - jnani is the best becuase he is thinkng constantly of krishna and serving him [_nitya_](https://vedabase.io/en/search/synonyms/?original=nitya)-[_yuktaḥ_](https://vedabase.io/en/search/synonyms/?original=yukta%E1%B8%A5) — **always engaged** in the sercvice! they are constant and not getting distracted. 
 [[Krishna-Life/Vedabase/Vedabase_BG/BG_Chapter_7/BG_Verse_7.18|Verse_7.18]] -  Krishna says even though jnanis are best but all are udarah magnanimous, all are dear because they are worshiping me
 
+[[BG_Verse_7.19]] - 
 
+[[BG_Verse_7.20]] - 
 
+[[BG_Verse_7.21]] - Faith and faithlessness comes from krishna only
+[[BG_Verse_7.22]] - Like king who supplies everything, so all what we get comes from Krishna only. Indirectly everyone worships krishna only.
+The demigods cannot award benedictions to their devotees without the permission of the Supreme Lord
+
+[[BG_Verse_7.23]] - alpa - Little, what they get is temporary, the demi-gods themselves are temporary so one who desires something temprorary is a fool
+
+[[BG_Verse_17.24]] - nirakar means that doesnt have a material form
+- There are many tatvas - Shiva-Tattva, Vishnu Tattva, Jiva Tattva, Guru tattva
+[[BG_Verse_7.25]] - weather someone will be able to see krishna or not is in hands of Yoga maya.
+[[BG_Verse_7.26]] - moha is bewildered by dualities arisen from desire and hate.
+[[BG_Verse_7.27]] - pure devotees get above this,
+[[BG_Verse_7.28]] - [[Important Verse]] , For determination one has to have these qualifications 
+- Persons who have acted piously in previous lives and in this life
+- whose sinful actions are completely eradicated 
+- are freed from the dualities of delusion
+(By staying in association of devotees one stays in **service with determination.**)
+how pious activity - sukriti, and also 6.41 but ultimately it is by mercy of devotees) 
+- the guru is very happy to see the desciple fixed in a service doesn't have to be one specific 
+[[BG_Verse_7.29]] - Moksha kami bhakta 
+
+[[BG_Verse_7.30]] - 
+-  By gradual development of Kṛṣṇa consciousness in good association, the living entity can understand that due to forgetfulness of Kṛṣṇa he has become conditioned by the laws of material nature. 
