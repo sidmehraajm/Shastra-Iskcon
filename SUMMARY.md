@@ -28,7 +28,7 @@
     * [[Study Jam]][[Notion/Guru Maharaj/Bhakti Jump Start/Study Jam.md]]
   * Lectures by Guru Mahraj
     * [[Submit to Krishna and ask for instructions by HG Vaisesika Dasa, 01.05.20]][[Notion/Guru Maharaj/Lectures by Guru Mahraj/Submit to Krishna and ask for instructions by HG Vaisesika Dasa, 01.05.20.md]]
-    * [[Untitled]][[Notion/Guru Maharaj/Lectures by Guru Mahraj/Untitled.md]]
+    * [[SB 2024]][[Notion/Guru Maharaj/Lectures by Guru Mahraj/Untitled.md]]
     * [[Vaisesika Dasa -- SB 2.1.39 -- 2022-05-02]][[Notion/Guru Maharaj/Lectures by Guru Mahraj/Vaisesika Dasa -- SB 2.1.39 -- 2022-05-02.md]]
   * [[Asking for shelter 5th April Ekadashi]][[Notion/Guru Maharaj/Asking for shelter 5th April Ekadashi.md]]
   * [[Guru Maharaj]][[Notion/Guru Maharaj/Guru Maharaj.md]]
@@ -52,9 +52,9 @@
   * [[Untitled 6]][[Notion/Job Applications foreign/Untitled 6.md]]
   * [[Untitled 7]][[Notion/Job Applications foreign/Untitled 7.md]]
   * [[Untitled 8]][[Notion/Job Applications foreign/Untitled 8.md]]
-  * [[Untitled]][[Notion/Job Applications foreign/Untitled.md]]
+  * [[SB 2024]][[Notion/Job Applications foreign/Untitled.md]]
 * Notion_images
-  * [[Untitled]][[Notion/Notion_images/Untitled.md]]
+  * [[SB 2024]][[Notion/Notion_images/Untitled.md]]
 * Param Vijayate Sri-Krishna-Sankirtanam
   * Bhagavad Gita Verses
     * BG 18.66
@@ -117,7 +117,7 @@
       * [[Vrindavan Krishna Balram Temple]][[Notion/Param Vijayate Sri-Krishna-Sankirtanam/Krishna Pictures [[1]]/Vrindavan Krishna Balram Temple/Vrindavan Krishna Balram Temple.md]]
     * [[Kurukshetra]][[Notion/Param Vijayate Sri-Krishna-Sankirtanam/Krishna Pictures [[1]]/Kurukshetra.md]]
     * [[Untitled 2]][[Notion/Param Vijayate Sri-Krishna-Sankirtanam/Krishna Pictures [[1]]/Untitled 2.md]]
-    * [[Untitled]][[Notion/Param Vijayate Sri-Krishna-Sankirtanam/Krishna Pictures [[1]]/Untitled.md]]
+    * [[SB 2024]][[Notion/Param Vijayate Sri-Krishna-Sankirtanam/Krishna Pictures [[1]]/Untitled.md]]
   * [[Kirtan/Bhajan Collection[[Videos]]]][[Notion/Param Vijayate Sri-Krishna-Sankirtanam/Param Vijayate Sri-Krishna-Sankirtanam.md]]
 * Portfolio
   * [[Atomic arts Interview]][[Notion/Portfolio/Atomic arts Interview.md]]
@@ -153,7 +153,7 @@
     * [[Posts - R [[30March - 10-15]]]][[Notion/Toronto RY 2025/Tasks Tracker/Posts - R [[30March - 10-15]].md]]
     * [[Reels - N - Idea list ready by 23 March]][[Notion/Toronto RY 2025/Tasks Tracker/Reels - N - Idea list ready by 23 March.md]]
     * [[Suggestion Qr codes]][[Notion/Toronto RY 2025/Tasks Tracker/Suggestion Qr codes.md]]
-    * [[Untitled]][[Notion/Toronto RY 2025/Tasks Tracker/Untitled.md]]
+    * [[SB 2024]][[Notion/Toronto RY 2025/Tasks Tracker/Untitled.md]]
     * [[Whatsapp Distribution List]][[Notion/Toronto RY 2025/Tasks Tracker/Whatsapp Distribution List.md]]
   * [[Rath Yatra Marketing Plan [[April 12 – July 11, 2025]]]][[Notion/Toronto RY 2025/Toronto RY 2025.md]]
 * Towards Govinda
@@ -275,7 +275,7 @@
         * [[Homework lectures and questions]][[Notion/Towards Govinda/HG RAM VILAS DAS/BG by Rama Vilas Prabhu/BG by Ram Vilas Das/Homework lectures and questions.md]]
         * [[Organisation of notes BG]][[Notion/Towards Govinda/HG RAM VILAS DAS/BG by Rama Vilas Prabhu/BG by Ram Vilas Das/Organisation of notes BG.md]]
         * [[Reading ch 2]][[Notion/Towards Govinda/HG RAM VILAS DAS/BG by Rama Vilas Prabhu/BG by Ram Vilas Das/Reading ch 2.md]]
-        * [[Untitled]][[Notion/Towards Govinda/HG RAM VILAS DAS/BG by Rama Vilas Prabhu/BG by Ram Vilas Das/Untitled.md]]
+        * [[SB 2024]][[Notion/Towards Govinda/HG RAM VILAS DAS/BG by Rama Vilas Prabhu/BG by Ram Vilas Das/Untitled.md]]
     * Nectar of Instruction
       * Untitled
         * Class 1
@@ -320,7 +320,7 @@
         * [[Radha Shyam Sundar]][[Notion/Towards Govinda/How to Travel In Vraja Mandal/Vrindavan Temple Guide/Vrindavan Temple List/Radha Shyam Sundar.md]]
         * [[Radha Vallabh]][[Notion/Towards Govinda/How to Travel In Vraja Mandal/Vrindavan Temple Guide/Vrindavan Temple List/Radha Vallabh.md]]
         * [[Radha Vrindavan Chandra]][[Notion/Towards Govinda/How to Travel In Vraja Mandal/Vrindavan Temple Guide/Vrindavan Temple List/Radha Vrindavan Chandra.md]]
-        * [[Untitled]][[Notion/Towards Govinda/How to Travel In Vraja Mandal/Vrindavan Temple Guide/Vrindavan Temple List/Untitled.md]]
+        * [[SB 2024]][[Notion/Towards Govinda/How to Travel In Vraja Mandal/Vrindavan Temple Guide/Vrindavan Temple List/Untitled.md]]
       * [[Vrindavan Temple Guide]][[Notion/Towards Govinda/How to Travel In Vraja Mandal/Vrindavan Temple Guide/Vrindavan Temple Guide.md]]
     * [[How to Travel In Vraja Mandal]][[Notion/Towards Govinda/How to Travel In Vraja Mandal/How to Travel In Vraja Mandal.md]]
   * Krsna Lecture Notes
@@ -351,7 +351,7 @@
     * [[The son of Romaharsana SUTA]][[Notion/Towards Govinda/Krsna Lecture Notes/The son of Romaharsana SUTA.md]]
     * [[Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those...]][[Notion/Towards Govinda/Krsna Lecture Notes/Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those Those....md]]
     * [[Untitled 2]][[Notion/Towards Govinda/Krsna Lecture Notes/Untitled 2.md]]
-    * [[Untitled]][[Notion/Towards Govinda/Krsna Lecture Notes/Untitled.md]]
+    * [[SB 2024]][[Notion/Towards Govinda/Krsna Lecture Notes/Untitled.md]]
     * [[“there is the causeless, uninterrupted devotional service unto Kṛṣṇa”]][[Notion/Towards Govinda/Krsna Lecture Notes/“there is the causeless, uninterrupted devotional service unto Kṛṣṇa”.md]]
   * Offerings for temple
     * Offerings
@@ -524,7 +524,7 @@
     * [[11.5.41]][[Notion/Towards Govinda/Srimad Bhagwatam/11.5.41.md]]
     * [[11.9.29]][[Notion/Towards Govinda/Srimad Bhagwatam/11.9.29.md]]
     * [[Srimad Bhagwatam]][[Notion/Towards Govinda/Srimad Bhagwatam/Srimad Bhagwatam.md]]
-    * [[Untitled]][[Notion/Towards Govinda/Srimad Bhagwatam/Untitled.md]]
+    * [[SB 2024]][[Notion/Towards Govinda/Srimad Bhagwatam/Untitled.md]]
   * Teachings of Lord Caitanaya Mahaprabhu
     * [[Sarnagati]][[Notion/Towards Govinda/Teachings of Lord Caitanaya Mahaprabhu/Sarnagati.md]]
     * [[Teachings of Lord Caitanaya Mahaprabhu]][[Notion/Towards Govinda/Teachings of Lord Caitanaya Mahaprabhu/Teachings of Lord Caitanaya Mahaprabhu.md]]
@@ -622,7 +622,7 @@
 * [[Untitled 7]][[Notion/Untitled 7.md]]
 * [[Untitled 8]][[Notion/Untitled 8.md]]
 * [[Untitled 9]][[Notion/Untitled 9.md]]
-* [[Untitled]][[Notion/Untitled.md]]
+* [[SB 2024]][[Notion/Untitled.md]]
 * [[Video Editing Roadmap]][[Notion/Video Editing Roadmap.md]]
 * Random Notes
 * [[9 march 24 sunday feast isk chow]][[Random Notes/9 march 24 sunday feast isk chow.md]]

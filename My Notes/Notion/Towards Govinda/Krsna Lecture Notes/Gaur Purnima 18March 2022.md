@@ -27,7 +27,7 @@ Now I trust Hanumanta.
 
 Without God's grace, you can't get Santa.asked
 
-**ŚB 5.19.7**
+[[05.19.7]]
 
 _na janma nūnaṁ mahato na saubhagaṁ_
 

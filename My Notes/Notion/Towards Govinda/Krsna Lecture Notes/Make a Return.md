@@ -1,6 +1,8 @@
 ---
-tags: From-Lectures
+tags:
+  - From-Lectures
 ---
+[[GURUDEV]]
 Do no fall down
 
 How-
