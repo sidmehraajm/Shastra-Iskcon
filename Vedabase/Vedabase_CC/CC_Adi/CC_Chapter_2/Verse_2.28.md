@@ -18,5 +18,5 @@ sei — that; nārāyaṇa — Lord Nārāyaṇa; kṛṣṇera — of Lord Kṛ
 **Translation:**
 
 Translation
-Nārāyaṇa and Śrī Kṛṣṇa are the same Personality of Godhead, but although They are identical, Their bodily features are different.
+==Nārāyaṇa and Śrī Kṛṣṇa are the same Personality of Godhead, but although They are identical, Their bodily features are different.==
 

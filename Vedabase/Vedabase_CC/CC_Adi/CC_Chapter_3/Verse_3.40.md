@@ -18,7 +18,8 @@ kali-yuge — in the Age of Kali; yuga-dharma — the religious practice for the
 **Translation:**
 
 Translation
-The religious practice for the Age of Kali is to broadcast the glories of the holy name. Only for this purpose has the Lord, in a yellow color, descended as Lord Caitanya.
+==The religious practice for the Age of Kali is to broadcast the glories of the holy name. Only for this purpose has the Lord, in a yellow color, descended as Lord Caitanya.==
+[[Dharma]]
 
 **Purport:**
 

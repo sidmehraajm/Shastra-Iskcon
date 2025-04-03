@@ -18,5 +18,5 @@ Synonyms
 **Translation:**
 
 Translation
-These two captains, with Their soldiers such as Śrīvāsa Ṭhākura, travel everywhere, chanting the holy name of the Lord.
+These two captains, with Their soldiers such as [[Śrīvāsa Ṭhākura]], travel everywhere, chanting the holy name of the Lord.
 

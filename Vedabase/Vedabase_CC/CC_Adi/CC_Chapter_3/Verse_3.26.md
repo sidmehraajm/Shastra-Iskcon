@@ -18,5 +18,6 @@ yuga-dharma — of the religion of the age; pravartana — the inauguration; hay
 **Translation:**
 
 Translation
-“My plenary portions can establish the principles of religion for each age. No one but Me, however, can bestow the kind of loving service performed by the residents of Vraja.
+==“My plenary portions can establish the principles of religion for each age. No one but Me, however, can bestow the kind of loving service performed by the residents of Vraja.==
 
+[[Important Verse]]

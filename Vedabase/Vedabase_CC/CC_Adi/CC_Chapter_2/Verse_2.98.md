@@ -18,7 +18,7 @@ aṁśa — of the plenary expansion; śakti-āveśa — of the empowered; rūpe
 **Translation:**
 
 Translation
-“His incarnations are of two kinds, namely partial and empowered. He appears in two ages — childhood and boyhood.
+“His incarnations are of two kinds, namely partial and empowered. He appears in two ages — childhood and boyhood.[[Important Verse]]
 
 **Purport:**
 

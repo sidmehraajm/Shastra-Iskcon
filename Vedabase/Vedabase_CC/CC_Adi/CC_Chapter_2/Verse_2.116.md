@@ -18,7 +18,7 @@ saba — all; śrotā-gaṇera — of the hearers; kari — I do; caraṇa — t
 **Translation:**
 
 Translation
-I offer my obeisances unto the feet of all who hear or read this discourse. Kindly hear with attention the conclusion of all these statements.
+I offer my obeisances unto the feet of all who hear or read this discourse. Kindly hear with attention the conclusion of all these statements.[[Important Verse]]
 
 **Purport:**
 

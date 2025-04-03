@@ -19,4 +19,4 @@ vyakta — evident; kari’ — making; bhāgavate — in Śrīmad-Bhāgavatam; 
 
 Translation
 In Śrīmad-Bhāgavatam it is repeatedly and clearly said that the essence of religion in the Age of Kali is the chanting of the holy name of Kṛṣṇa.
-
+[[Harinam Glorification]]

@@ -20,3 +20,4 @@ antare — within the heart; niṣṭhā kara — keep strong faith; bāhye — 
 Translation
 Śrī Caitanya Mahāprabhu continued, “Within your heart you should keep yourself very faithful, but externally you may behave like an ordinary man. Thus Kṛṣṇa will soon be very pleased and deliver you from the clutches of māyā.
 
+[[Very_Important_Verse]]

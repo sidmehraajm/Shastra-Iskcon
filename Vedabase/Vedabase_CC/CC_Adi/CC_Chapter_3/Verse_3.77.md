@@ -20,3 +20,4 @@ saṅkīrtana-pravartaka — the initiator of congregational chanting; śrī-k�
 Translation
 Lord Śrī Kṛṣṇa Caitanya is the initiator of saṅkīrtana [congregational chanting of the holy name of the Lord]. One who worships Him through saṅkīrtana is fortunate indeed.
 
+[[Harinam Glorification]]

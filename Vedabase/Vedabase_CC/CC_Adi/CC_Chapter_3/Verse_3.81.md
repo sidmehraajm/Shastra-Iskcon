@@ -21,7 +21,8 @@ antaḥ — internally; kṛṣṇam — Lord Kṛṣṇa; bahiḥ — externall
 
 Translation
 “I take shelter of Lord Śrī Kṛṣṇa Caitanya Mahāprabhu, who is outwardly of a fair complexion but is inwardly Kṛṣṇa Himself. In this Age of Kali He displays His expansions [His aṅgas and upāṅgas] by performing congregational chanting of the holy name of the Lord.”
-
+[[Important Verse]]
+[[Śrīla Jīva Gosvāmī]]
 **Purport:**
 
 Purport

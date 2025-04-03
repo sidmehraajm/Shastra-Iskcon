@@ -18,5 +18,5 @@ saba — all; avatārera — of the incarnations; kari — making; sāmānya —
 **Translation:**
 
 Translation
-The Bhāgavatam describes the symptoms and deeds of the incarnations in general and counts Śrī Kṛṣṇa among them.
-
+==The Bhāgavatam describes the symptoms and deeds of the incarnations in general and counts Śrī Kṛṣṇa among them.==
+[[Important Verse]][[Srimad_Bhavatam]]

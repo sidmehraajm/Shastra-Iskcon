@@ -20,3 +20,4 @@ bhaktira — to devotional service; virodhī — averse; karma — activity; dha
 Translation
 The greatest ignorance consists of activities, whether religious or irreligious, that are opposed to devotional service. They are to be known as sins [kalmaṣa].
 
+[[Sins]]

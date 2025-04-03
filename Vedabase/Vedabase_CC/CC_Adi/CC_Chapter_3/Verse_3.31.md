@@ -18,5 +18,5 @@ sei — that; siṁha — lion; vasuk — let Him sit; jīvera — of the living
 **Translation:**
 
 Translation
-May that lion be seated in the core of the heart of every living being. Thus with His resounding roar may He drive away one’s elephantine vices.
-
+==May that lion be seated in the core of the heart of every living being. Thus with His resounding roar may He drive away one’s elephantine vices.==
+[[Sins]]

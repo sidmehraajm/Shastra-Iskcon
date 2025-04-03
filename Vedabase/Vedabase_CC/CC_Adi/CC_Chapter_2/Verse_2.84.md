@@ -18,5 +18,5 @@ kṛṣṇa — Lord Kṛṣṇa; yadi — if; aṁśa — plenary portion; hait
 **Translation:**
 
 Translation
-“Had Kṛṣṇa been the plenary portion and Nārāyaṇa the primeval Lord, the statement of Sūta Gosvāmī would have been reversed.
+“Had Kṛṣṇa been the plenary portion and Nārāyaṇa the primeval Lord, the statement of [[Sūta Gosvāmī]] would have been reversed.
 

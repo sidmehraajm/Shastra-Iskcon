@@ -22,7 +22,7 @@ anarpita — not bestowed; carīm — having been formerly; cirāt — for a lon
 **Translation:**
 
 Translation
-“May the Supreme Lord who is known as the son of Śrīmatī Śacī-devī be transcendentally situated in the innermost core of your heart. Resplendent with the radiance of molten gold, He has descended in the Age of Kali by His causeless mercy to bestow what no incarnation has ever offered before: the most elevated mellow of devotional service, the mellow of conjugal love.”
+==“May the Supreme Lord who is known as the son of Śrīmatī Śacī-devī be transcendentally situated in the innermost core of your heart. Resplendent with the radiance of molten gold, He has descended in the Age of Kali by His causeless mercy to bestow what no incarnation has ever offered before: the most elevated mellow of devotional service, the mellow of conjugal love.”==
 
 **Purport:**
 

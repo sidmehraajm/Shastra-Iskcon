@@ -18,7 +18,7 @@ bhakti-yoge — by devotional service; bhakta — the devotee; pāya — obtains
 **Translation:**
 
 Translation
-Through their service, devotees see that Personality of Godhead, just as the denizens of heaven see the personality of the sun.
+Through their [[service]], devotees see that Personality of Godhead, just as the denizens of heaven see the personality of the sun.
 
 **Purport:**
 

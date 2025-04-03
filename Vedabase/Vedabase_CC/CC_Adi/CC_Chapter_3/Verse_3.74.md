@@ -18,5 +18,5 @@ nityānanda gosāñi — Lord Nityānanda Gosāñi; sākṣāt — directly; hal
 **Translation:**
 
 Translation
-Śrī Nityānanda Gosāñi is directly Haladhara [Lord Balarāma], and Advaita Ācārya is the Personality of Godhead Himself.
-
+Śrī Nityānanda Gosāñi is directly Haladhara  , and Advaita Ācārya is the Personality of Godhead Himself.
+[[Lord Balarāmā]]

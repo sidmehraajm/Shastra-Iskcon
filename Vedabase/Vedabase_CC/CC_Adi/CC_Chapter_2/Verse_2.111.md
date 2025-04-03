@@ -18,5 +18,5 @@ sei — that; ta’ — certainly; bhaktera — of a devotee; vākya — speech;
 **Translation:**
 
 Translation
-But such words from the lips of a sincere devotee cannot be false. All possibilities abide in Him, for He is the primeval Lord.
+But such words from the lips of a sincere [[devotee]] cannot be false. All possibilities abide in Him, for He is the primeval Lord.
 

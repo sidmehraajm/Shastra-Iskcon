@@ -22,8 +22,8 @@ smita — smiling; ālokaḥ — glance; śokam — the bereavement; harati — 
 **Translation:**
 
 Translation
-“May the Supreme Personality of Godhead in the form of Lord Śrī Caitanya bestow His causeless mercy upon us. His smiling glance at once drives away all the bereavements of the world, and His very words enliven the auspicious creepers of devotion by expanding their leaves. Taking shelter of His lotus feet invokes transcendental love of God at once.”
-
+==“May the Supreme Personality of Godhead in the form of Lord Śrī Caitanya bestow His causeless mercy upon us. His smiling glance at once drives away all the bereavements of the world, and His very words enliven the auspicious creepers of devotion by expanding their leaves. Taking shelter of His lotus feet invokes transcendental love of God at once.”==
+[[Lord Kṛṣṇa]]
 **Purport:**
 
 Purport

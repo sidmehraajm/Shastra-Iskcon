@@ -18,5 +18,6 @@ caitanya-siṁhera — of the lionlike Lord Caitanya Mahāprabhu; navadvīpe —
 **Translation:**
 
 Translation
-Thus the lionlike Lord Caitanya has appeared in Navadvīpa. He has the shoulders of a lion, the powers of a lion, and the loud voice of a lion.
+==Thus the lionlike Lord Caitanya has appeared in Navadvīpa. He has the shoulders of a lion, the powers of a lion, and the loud voice of a lion.==
 
+[[Lord Narsimha]]

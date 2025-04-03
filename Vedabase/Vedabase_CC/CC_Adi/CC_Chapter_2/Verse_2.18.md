@@ -18,7 +18,7 @@ Synonyms
 **Translation:**
 
 Translation
-He who is described in the yoga-śāstras as the indwelling Supersoul [ātmā antar-yāmī] is also a plenary portion of Govinda’s personal expansion.
+==He who is described in the yoga-śāstras as the indwelling Supersoul [ātmā antar-yāmī] is also a plenary portion of Govinda’s personal expansion.==
 
 **Purport:**
 

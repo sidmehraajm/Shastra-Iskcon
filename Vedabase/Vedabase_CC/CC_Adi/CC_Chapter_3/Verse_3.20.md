@@ -18,8 +18,8 @@ Synonyms
 **Translation:**
 
 Translation
-“I shall accept the role of a devotee, and I shall teach devotional service by practicing it Myself.
-
+==“I shall accept the role of a devotee, and I shall teach devotional service by practicing it Myself.==
+[[Lord Caitanya Mahāprabhu]]
 **Purport:**
 
 Purport

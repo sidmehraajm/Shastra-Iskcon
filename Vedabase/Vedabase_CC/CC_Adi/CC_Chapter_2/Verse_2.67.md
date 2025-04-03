@@ -25,5 +25,5 @@ Translation
 **Purport:**
 
 Purport
-This statement of Śrīmad-Bhāgavatam (1.3.28) definitely negates the concept that Śrī Kṛṣṇa is an avatāra of Viṣṇu or Nārāyaṇa. Lord Śrī Kṛṣṇa is the original Personality of Godhead, the supreme cause of all causes. This verse clearly indicates that incarnations of the Personality of Godhead such as Śrī Rāma, Nṛsiṁha and Varāha all undoubtedly belong to the Viṣṇu group, but all of Them are either plenary portions or portions of plenary portions of the original Personality of Godhead, Lord Śrī Kṛṣṇa.
+This statement of Śrīmad-Bhāgavatam (1.3.28)[[SB_Verse_1.3.28]] definitely negates the concept that Śrī Kṛṣṇa is an avatāra of Viṣṇu or Nārāyaṇa. Lord Śrī Kṛṣṇa is the original Personality of Godhead, the supreme cause of all causes. This verse clearly indicates that incarnations of the Personality of Godhead such as Śrī Rāma, Nṛsiṁha and Varāha all undoubtedly belong to the Viṣṇu group, but all of Them are either plenary portions or portions of plenary portions of the original Personality of Godhead, Lord Śrī Kṛṣṇa.
 

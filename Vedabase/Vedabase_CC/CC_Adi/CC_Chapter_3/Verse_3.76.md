@@ -19,4 +19,4 @@ pāṣaṇḍa-dalana — of trampling the atheists; vānā — having the featu
 
 Translation
 Lord Nityānanda’s very features indicate that He is the subduer of the unbelievers. All sins and unbelievers flee from the loud shouts of Advaita Ācārya.
-
+[[Sins]]

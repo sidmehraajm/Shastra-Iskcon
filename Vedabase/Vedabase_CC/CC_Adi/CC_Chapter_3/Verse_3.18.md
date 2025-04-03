@@ -19,6 +19,7 @@ sārṣṭi — opulences equal with the Lord’s; sārūpya — the same form a
 
 Translation
 “These liberations are sārṣṭi [achieving opulences equal to those of the Lord], sārūpya [having a form the same as the Lord’s], sāmīpya [living as a personal associate of the Lord] and sālokya [living on a Vaikuṇṭha planet]. Devotees never accept sāyujya, however, since that is oneness with Brahman.
+[[Liberation]]
 
 **Purport:**
 

@@ -25,5 +25,5 @@ Translation
 **Purport:**
 
 Purport
-This quotation comes from Śrīdhara Svāmī’s commentary on the first verse of the Tenth Canto, chapter one, of Śrīmad-Bhāgavatam.
+This quotation comes from [[Śrīdhara Svāmī]] commentary on the first verse of the Tenth Canto, chapter one, of Śrīmad-Bhāgavatam.
 

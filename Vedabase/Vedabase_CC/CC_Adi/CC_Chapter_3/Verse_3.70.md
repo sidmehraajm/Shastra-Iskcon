@@ -18,5 +18,5 @@ jala-śāyī — lying in the water; antaḥ-yāmī — indwelling Supersoul; ye
 **Translation:**
 
 Translation
-The manifestation of the Nārāyaṇa who predominates in everyone’s heart, as well as the Nārāyaṇa who lives in the waters [Kāraṇa, Garbha and Kṣīra], is Your plenary portion. You are therefore the original Nārāyaṇa.
+The manifestation of the Nārāyaṇa who predominates in everyone’s heart, as well as the Nārāyaṇa who lives in the waters [Kāraṇa, Garbha and Kṣīra], is Your plenary portion. You are therefore the original [[Lord Nārāyaṇa]].
 

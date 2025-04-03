@@ -18,5 +18,5 @@ aiśvarya-jñāne — in knowledge of the opulences; vidhi — according to rule
 **Translation:**
 
 Translation
-“By performing such regulated devotional service in awe and veneration, one may go to Vaikuṇṭha and attain the four kinds of liberation.
-
+==“By performing such regulated devotional service in awe and veneration, one may go to Vaikuṇṭha and attain the four kinds of liberation.==
+[[Important Verse]]

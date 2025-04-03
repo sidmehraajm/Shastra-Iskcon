@@ -18,8 +18,8 @@ dāsa — servants; sakhā — friends; pitā-mātā — father and mother; kān
 **Translation:**
 
 Translation
-Absorbed in such transcendental love, Lord Śrī Kṛṣṇa enjoys in Vraja with His devoted servants, friends, parents and conjugal lovers.
-
+==Absorbed in such transcendental love, Lord Śrī Kṛṣṇa enjoys in Vraja with His devoted servants, friends, parents and conjugal lovers.==
+[[Lord Kṛṣṇa]] [[Important Verse]]
 **Purport:**
 
 Purport

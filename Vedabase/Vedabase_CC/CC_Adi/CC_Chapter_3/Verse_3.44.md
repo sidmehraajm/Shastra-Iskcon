@@ -19,4 +19,4 @@ Synonyms
 
 Translation
 His arms are long enough to reach His knees, His eyes are just like lotus flowers, His nose is like a sesame flower, and His face is as beautiful as the moon.
-
+[[Bodily Features of Lord]]

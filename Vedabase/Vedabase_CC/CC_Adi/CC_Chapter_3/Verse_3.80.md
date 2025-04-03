@@ -18,5 +18,5 @@ bhāgavata-sandarbha-granthera — of the book called Bhāgavata-sandarbha; e-ś
 **Translation:**
 
 Translation
-In the auspicious introduction to the Bhāgavata-sandarbha, Śrīla Jīva Gosvāmī has given the following verse as an explanation.
+In the auspicious introduction to the Bhāgavata-sandarbha, [[Śrīla Jīva Gosvāmī]] has given the following verse as an explanation.
 

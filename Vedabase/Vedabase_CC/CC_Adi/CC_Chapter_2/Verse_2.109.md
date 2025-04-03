@@ -18,5 +18,5 @@ sei — that; kṛṣṇa — Lord Kṛṣṇa; avatārī — the source of all 
 **Translation:**
 
 Translation
-That same Lord Kṛṣṇa, the fountainhead of all incarnations, is known as the son of the King of Vraja. He has descended personally as Lord Śrī Caitanya Mahāprabhu.
+That same [[Lord Kṛṣṇa]], the fountainhead of all incarnations, is known as the son of the King of Vraja. He has descended personally as Lord Śrī Caitanya Mahāprabhu. [[Lord Caitanya Mahāprabhu]]
 

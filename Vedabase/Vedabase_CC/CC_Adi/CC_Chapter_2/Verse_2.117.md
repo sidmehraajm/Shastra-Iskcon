@@ -18,7 +18,7 @@ siddhānta — conclusion; baliyā — considering; citte — in the mind; nā k
 **Translation:**
 
 Translation
-A sincere student should not neglect the discussion of such conclusions, considering them controversial, for such discussions strengthen the mind. Thus one’s mind becomes attached to Śrī Kṛṣṇa.
+A sincere student should not neglect the discussion of such conclusions, considering them controversial, for such discussions strengthen the mind. Thus one’s mind becomes attached to Śrī Kṛṣṇa.[[Very_Important_Verse]]
 
 **Purport:**
 

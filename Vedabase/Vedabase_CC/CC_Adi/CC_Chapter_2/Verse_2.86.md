@@ -18,7 +18,7 @@ bhrama — mistakes; pramāda — illusion; vipralipsā — cheating; karaṇa-a
 **Translation:**
 
 Translation
-“Mistakes, illusions, cheating and defective perception do not occur in the sayings of the authoritative sages.
+“Mistakes, illusions, cheating and defective perception do not occur in the sayings of the authoritative sages.[[Important Verse]] [[GURUDEV]] [[Sūta Gosvāmī]]
 
 **Purport:**
 

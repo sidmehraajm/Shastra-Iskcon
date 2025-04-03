@@ -22,7 +22,7 @@ atra — in Śrīmad-Bhāgavatam; sargaḥ — the creation of the ingredients o
 **Translation:**
 
 Translation
-“ ‘Here [in Śrīmad-Bhāgavatam] ten subjects are described: (1) the creation of the ingredients of the cosmos, (2) the creations of Brahmā, (3) the maintenance of the creation, (4) special favor given to the faithful, (5) impetuses for activity, (6) prescribed duties for law-abiding men, (7) a description of the incarnations of the Lord, (8) the winding up of the creation, (9) liberation from gross and subtle material existence, and (10) the ultimate shelter, the Supreme Personality of Godhead. The tenth item is the shelter of all the others. To distinguish this ultimate shelter from the other nine subjects, the mahājanas have described these nine, directly or indirectly, through prayers or direct explanations.’
+“ ‘Here in [[Srimad_Bhavatam]] ten subjects are described: (1) the creation of the ingredients of the cosmos, (2) the creations of Brahmā, (3) the maintenance of the creation, (4) special favor given to the faithful, (5) impetuses for activity, (6) prescribed duties for law-abiding men, (7) a description of the incarnations of the Lord, (8) the winding up of the creation, (9) liberation from gross and subtle material existence, and (10) the ultimate shelter, the Supreme Personality of Godhead. The tenth item is the shelter of all the others. To distinguish this ultimate shelter from the other nine subjects, the mahājanas have described these nine, directly or indirectly, through prayers or direct explanations.’
 
 **Purport:**
 

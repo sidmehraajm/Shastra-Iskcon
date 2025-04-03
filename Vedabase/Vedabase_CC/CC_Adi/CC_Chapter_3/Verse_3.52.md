@@ -21,9 +21,10 @@ kṛṣṇa-varṇam — repeating the syllables kṛṣ-ṇa; akṛṣṇam —
 
 Translation
 “In the Age of Kali, intelligent persons perform congregational chanting to worship the incarnation of Godhead who constantly sings the name of Kṛṣṇa. Although His complexion is not blackish, He is Kṛṣṇa Himself. He is accompanied by His associates, servants, weapons and confidential companions.”
-
+[[Lord Caitanya Mahāprabhu]]
 **Purport:**
-
+[[SB_Verse_11.5.32]]
+[[Important Verse]]
 Purport
 This text is from Śrīmad-Bhāgavatam (11.5.32). Śrīla Jīva Gosvāmī has explained this verse in his commentary on the Bhāgavatam, known as the Krama-sandarbha, wherein he says that Lord Kṛṣṇa also appears with a golden complexion. That golden Lord Kṛṣṇa is Lord Caitanya, who is worshiped by intelligent men in this age. That is confirmed in Śrīmad-Bhāgavatam by Garga Muni, who said that although the child Kṛṣṇa was blackish, He also appears in three other colors — red, white and yellow. He exhibited His white and red complexions in the Satya and Tretā ages respectively. He did not exhibit the remaining color, yellow-gold, until He appeared as Lord Caitanya, who is known as Gaura Hari.
 Śrīla Jīva Gosvāmī explains that kṛṣṇa-varṇam means Śrī Kṛṣṇa Caitanya. Kṛṣṇa-varṇa and Kṛṣṇa Caitanya are equivalent. The name Kṛṣṇa appears with both Lord Kṛṣṇa and Lord Caitanya Kṛṣṇa. Lord Śrī Caitanya Mahāprabhu is the Supreme Personality of Godhead, but He always engages in describing Kṛṣṇa and thus enjoys transcendental bliss by chanting and remembering His name and form. Lord Kṛṣṇa Himself appears as Lord Caitanya to preach the highest gospel.

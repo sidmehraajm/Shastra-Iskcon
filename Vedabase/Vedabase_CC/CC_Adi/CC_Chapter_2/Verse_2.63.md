@@ -25,5 +25,5 @@ Translation
 **Purport:**
 
 Purport
-This text is from Śrīmad-Bhāgavatam (1.2.11).
+This text is from Śrīmad-Bhāgavatam (1.2.11).[[SB_Verse_1.2.11]]
 

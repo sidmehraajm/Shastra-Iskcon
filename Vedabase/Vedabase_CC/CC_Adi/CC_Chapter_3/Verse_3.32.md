@@ -18,5 +18,6 @@ prathama — first; līlāya — in the pastimes; tāṅra — of Him; viśvambh
 **Translation:**
 
 Translation
-In His early pastimes He is known as Viśvambhara because He floods the world with the nectar of devotion and thus saves the living beings.
+In His early pastimes He is known as [[Viśvambhara]] because He floods the world with the nectar of devotion and thus saves the living beings.
+
 

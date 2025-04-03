@@ -18,7 +18,7 @@ sei — these; tina — three; janera — of the plenary portions; tumi — You;
 **Translation:**
 
 Translation
-“You are the ultimate shelter of these three plenary portions. Thus there is not the slightest doubt that You are the primeval Nārāyaṇa.
+“You are the ultimate shelter of these three plenary portions. Thus there is not the slightest doubt that You are the primeval Nārāyaṇa.[[Important Verse]]
 
 **Purport:**
 

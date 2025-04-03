@@ -21,7 +21,7 @@ iti — thus; dvāpare — in the Dvāpara Age; uru-īśa — O King; stuvanti �
 
 Translation
 “O King, in this way people in Dvāpara-yuga worshiped the Lord of the universe. In Kali-yuga they also worship the Supreme Personality of Godhead by the regulations of the revealed scriptures. Kindly now hear of that from me.
-
+[[Harinam Glorification]]
 **Purport:**
 
 Purport

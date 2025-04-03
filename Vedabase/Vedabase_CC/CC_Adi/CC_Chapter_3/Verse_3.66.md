@@ -22,8 +22,8 @@ sadā — always; upāsyaḥ — worshipable; śrīmān — beautiful; dhṛta �
 **Translation:**
 
 Translation
-“Lord Śrī Caitanya Mahāprabhu is always the most worshipable Deity of the demigods, including Lord Śiva and Lord Brahmā, who came in the garb of ordinary men, bearing love for Him. He instructs His own pure devotional service to His own devotees. Will He again be the object of my vision?”
-
+==“Lord Śrī Caitanya Mahāprabhu is always the most worshipable Deity of the demigods, including Lord Śiva and Lord Brahmā, who came in the garb of ordinary men, bearing love for Him. He instructs His own pure devotional service to His own devotees. Will He again be the object of my vision?”==
+[[Important Verse]]
 **Purport:**
 
 Purport

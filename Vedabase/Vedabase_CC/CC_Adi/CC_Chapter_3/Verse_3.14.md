@@ -18,8 +18,8 @@ cira-kāla — for a long time; nāhi kari — I have not done; prema-bhakti —
 **Translation:**
 
 Translation
-“For a long time I have not bestowed unalloyed loving service to Me upon the inhabitants of the world. Without such loving attachment, the existence of the material world is useless.
-
+==“For a long time I have not bestowed unalloyed loving service to Me upon the inhabitants of the world. Without such loving attachment, the existence of the material world is useless.==
+[[Important Verse]]
 **Purport:**
 
 Purport

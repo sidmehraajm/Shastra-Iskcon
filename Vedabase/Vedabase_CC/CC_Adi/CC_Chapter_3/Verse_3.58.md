@@ -23,6 +23,8 @@ kalau — in the Age of Kali; yam — Him whom; vidvāṁsaḥ — the learned m
 
 Translation
 “By performing the sacrifice of congregational chanting of the holy name, learned scholars in the Age of Kali worship Lord Kṛṣṇa, who is now nonblackish because of the great upsurge of the feelings of Śrīmatī Rādhārāṇī. He is the only worshipable Deity for the paramahaṁsas, who have attained the highest stage of the fourth order [sannyāsa]. May that Supreme Personality of Godhead, Lord Caitanya, show us His great causeless mercy.”
+[[Harinam Glorification]]
+[[Srimati Rādhārāṇī]]
 
 **Purport:**
 

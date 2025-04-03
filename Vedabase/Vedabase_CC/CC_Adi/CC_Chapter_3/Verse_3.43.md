@@ -18,8 +18,8 @@ nyagrodha-parimaṇḍala — nyagrodha-parimaṇḍala; tāṅra — of him; n�
 **Translation:**
 
 Translation
-Such a person is called nyagrodha-parimaṇḍala. Śrī Caitanya Mahāprabhu, who personifies all good qualities, has the body of a nyagrodha-parimaṇḍala.
-
+Such a person is called ==nyagrodha-parimaṇḍala==. Śrī Caitanya Mahāprabhu, who personifies all good qualities, has the body of a nyagrodha-parimaṇḍala.
+[[Lord Caitanya Mahāprabhu]]
 **Purport:**
 
 Purport
