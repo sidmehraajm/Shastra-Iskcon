@@ -19,4 +19,4 @@ yadyapi — although; āmāra — My; sparśa — touch; koṭi-indu — like mi
 
 Translation
 “And although My touch is cooler than ten million moons, I am refreshed by the touch of Śrīmatī Rādhikā.
-
+[[Srimati Rādhārāṇī]]

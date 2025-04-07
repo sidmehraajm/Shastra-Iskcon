@@ -28,4 +28,4 @@ Translation
 
 Purport
 Like the gopīs, one can see Kṛṣṇa continuously if one is fortunate enough. In the Brahma-saṁhitā it is said that sages whose eyes have been smeared with the ointment of pure love can see the form of Śyāmasundara (Kṛṣṇa) continuously in the centers of their hearts. This text from Śrīmad-Bhāgavatam (10.21.7) was sung by the gopīs on the advent of the śarat season.
-
+[[SB_Verse_10.21.7]]

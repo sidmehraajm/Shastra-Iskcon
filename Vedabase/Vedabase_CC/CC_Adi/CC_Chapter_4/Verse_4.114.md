@@ -19,4 +19,4 @@ rādhikā-ādi — Śrīmatī Rādhārāṇī and the other gopīs; kaila — di
 
 Translation
 In youth He tasted the essence of rasa, fulfilling His desires in pastimes like the rāsa dance with Śrīmatī Rādhikā and the other gopīs.
-
+[[Rāsa leela]]

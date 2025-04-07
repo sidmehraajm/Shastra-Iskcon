@@ -19,4 +19,4 @@ ei mata — in this way; anubhava — affectionate feelings; āmāra — My; pra
 
 Translation
 “In this way My affectionate feelings for Śrīmatī Rādhārāṇī may be understood, but on analysis I find them contradictory.
-
+[[Srimati Rādhārāṇī]]

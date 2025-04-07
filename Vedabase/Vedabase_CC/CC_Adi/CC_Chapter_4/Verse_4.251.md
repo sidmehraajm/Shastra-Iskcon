@@ -19,4 +19,5 @@ paraspara — against each other; veṇu-gīte — the singing of the bamboo; ha
 
 Translation
 “The flutelike murmur of the bamboos rubbing against one another steals Rādhārāṇī’s consciousness, for She thinks it to be the sound of My flute. And She embraces a tamāla tree, mistaking it for Me.
-
+[[Srimati Rādhārāṇī]]
+[[Very_Important_Verse]]

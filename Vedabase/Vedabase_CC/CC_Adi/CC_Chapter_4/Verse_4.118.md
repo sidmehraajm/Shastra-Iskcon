@@ -24,6 +24,8 @@ hariḥ — Lord Kṛṣṇa; eṣaḥ — this; na — not; cet — if; avātar
 Translation
 “O Paurṇamāsī, if Lord Hari had not descended in Mathurā with Śrīmatī Rādhārāṇī, this entire creation — and especially Cupid, the demigod of love — would have been useless.”
 
+[[Srimati Rādhārāṇī]]
+[[Paurṇamāsī]]
 **Purport:**
 
 Purport

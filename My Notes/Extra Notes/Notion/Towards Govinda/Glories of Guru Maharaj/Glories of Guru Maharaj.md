@@ -6,7 +6,7 @@ tags:
   - Very-Important-
 Last edited time: 2023-08-22T02:24
 Global Tags:
-  - "[[Krishna-Life/My Notes/Extra Notes/Notion/Towards Govinda/Extras/Global Tags/Guru Maharaj\\|Guru Maharaj]]"
+  - "[[Krishna-Life/TAGS/Guru Maharaj\\|Guru Maharaj]]"
 ---
 # Pranam Mantra
 

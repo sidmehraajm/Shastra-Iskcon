@@ -19,4 +19,4 @@ koṭi — ten million; netra — eyes; nāhi dila — did not give; sabe — to
 
 Translation
 He has not given millions of eyes to see the beauty of Kṛṣṇa. He has given only two eyes, and even those eyes blink. How then shall I see the lovely face of Kṛṣṇa?
-
+[[Very_Important_Verse]]

@@ -19,4 +19,4 @@ kṛṣṇa-mayī — the word kṛṣṇa-mayī; yāra — of whom; bhitare —
 
 Translation
 “Kṛṣṇa-mayī” means “one whose within and without are Lord Kṛṣṇa.” She sees Lord Kṛṣṇa wherever She casts Her glance.
-
+[[Srimati Rādhārāṇī]]

@@ -18,5 +18,6 @@ jīva — the living entity; nāma — named; taṭa-sthā-ākhya — known as t
 **Translation:**
 
 Translation
-There is one marginal potency, known as the jīva. Mahā-saṅkarṣaṇa is the shelter of all jīvas.
-
+There is one marginal potency, known as the jīva. [[Mahā-saṅkarṣaṇa]] is the shelter of all jīvas.
+[[Jiva]]
+[[Lord Balarāmā]]

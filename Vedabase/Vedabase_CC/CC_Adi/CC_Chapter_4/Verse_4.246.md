@@ -19,4 +19,4 @@ yadyapi — although; āmāra — of Me; rase — by the taste; jagat — the wh
 
 Translation
 “Although the entire creation is full of different tastes because of Me, I am charmed by the nectarean taste of the lips of Śrīmatī Rādhārāṇī.
-
+[[Srimati Rādhārāṇī]]

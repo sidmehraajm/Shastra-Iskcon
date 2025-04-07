@@ -25,3 +25,4 @@ The Supreme Personality of Godhead, Kṛṣṇa, is the fountainhead of all inca
 Purport
 Lord Śrī Kṛṣṇa, the absolute Personality of Godhead, is the primeval Lord, the original form of Godhead, and His first expansion is Śrī Balarāma. The Personality of Godhead can expand Himself in innumerable forms. The forms that have unlimited potency are called svāṁśa, and forms that have limited potencies (the living entities) are called vibhinnāṁśa.
 
+[[Lord Balarāmā]] 

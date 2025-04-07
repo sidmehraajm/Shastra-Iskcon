@@ -21,7 +21,7 @@ svarūpa-vigraha — personal form; kṛṣṇera — of Lord Kṛṣṇa; keval
 
 Translation
 Kṛṣṇa’s own form has only two hands, but in the form of Lord Nārāyaṇa He has four hands. Lord Nārāyaṇa holds a conchshell, disc, club and lotus flower, and He is full of great opulence. The śrī, bhū and nīlā energies serve at His lotus feet.
-
+[[Lord Nārāyaṇa]] [[Lord Kṛṣṇa]]
 **Purport:**
 
 Purport

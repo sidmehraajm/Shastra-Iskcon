@@ -19,7 +19,8 @@ Synonyms
 
 Translation
 The desire to gratify one’s own senses is kāma [lust], but the desire to please the senses of Lord Kṛṣṇa is prema [love].
-
+[[Very_Important_Verse]]
+[[Lust]] [[Love]]
 **Purport:**
 
 Purport

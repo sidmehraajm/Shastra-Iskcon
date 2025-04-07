@@ -23,7 +23,7 @@ māyā-atīte — beyond the material creation; vyāpi — all-expanding; vaiku�
 
 Translation
 I surrender unto the lotus feet of Śrī Nityānanda Rāma, who is known as Saṅkarṣaṇa in the midst of the catur-vyūha [consisting of Vāsudeva, Saṅkarṣaṇa, Pradyumna and Aniruddha]. He possesses full opulences and resides in Vaikuṇṭhaloka, far beyond the material creation.
-
+[[Surrender]] [[Lord Nityānanda]]
 **Purport:**
 
 Purport

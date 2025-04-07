@@ -19,6 +19,7 @@ rādhikāra — of Śrīmatī Rādhārāṇī; bhāva — emotion; yaiche — ju
 
 Translation
 Just as Rādhikā went mad at the sight of Uddhava, so Lord Caitanya was obsessed day and night with the madness of separation.
+[[Love in Separation]]
 
 **Purport:**
 

@@ -23,7 +23,7 @@ yat — which; te — Your; sujāta — very fine; caraṇa-ambu-ruham — lotus
 
 Translation
 “O dearly beloved! Your lotus feet are so soft that we place them gently on our breasts, fearing that Your feet will be hurt. Our life rests only in You. Our minds, therefore, are filled with anxiety that Your tender feet might be wounded by pebbles as You roam about on the forest path.”
-
+[[SB_Verse_10.31.19]]
 **Purport:**
 
 Purport

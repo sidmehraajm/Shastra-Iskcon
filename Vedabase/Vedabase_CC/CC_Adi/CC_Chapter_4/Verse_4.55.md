@@ -23,7 +23,7 @@ rādhā — Śrīmatī Rādhārāṇī; kṛṣṇa — of Lord Kṛṣṇa; pra
 
 Translation
 “The loving affairs of Śrī Rādhā and Kṛṣṇa are transcendental manifestations of the Lord’s internal pleasure-giving potency. Although Rādhā and Kṛṣṇa are one in Their identity, They separated Themselves eternally. Now these two transcendental identities have again united, in the form of Śrī Kṛṣṇa Caitanya. I bow down to Him, who has manifested Himself with the sentiment and complexion of Śrīmatī Rādhārāṇī although He is Kṛṣṇa Himself.”
-
+[[Very_Important_Verse]] [[Srimati Rādhārāṇī]] [[Lord Caitanya Mahāprabhu]][[Lord Kṛṣṇa]]
 **Purport:**
 
 Purport

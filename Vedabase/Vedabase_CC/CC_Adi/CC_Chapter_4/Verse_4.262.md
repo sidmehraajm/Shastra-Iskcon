@@ -19,4 +19,4 @@ Synonyms
 
 Translation
 “I am always eager to taste the joy that Rādhārāṇī derives from Me.
-
+[[Srimati Rādhārāṇī]] [[Very_Important_Verse]]

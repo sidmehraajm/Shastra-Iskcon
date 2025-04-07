@@ -19,7 +19,7 @@ hlādinī — the hlādinī energy; karāya — causes to do; kṛṣṇe — in
 
 Translation
 That hlādinī energy gives Kṛṣṇa pleasure and nourishes His devotees.
-
+[[Pure Devotee]]
 **Purport:**
 
 Purport

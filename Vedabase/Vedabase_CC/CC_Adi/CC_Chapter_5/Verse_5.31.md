@@ -19,4 +19,5 @@ brahma-sāyujya — of merging into the Supreme Brahman; muktera — of the libe
 
 Translation
 Those who attain brahma-sāyujya liberation cannot gain entrance into Vaikuṇṭha; their residence is outside the Vaikuṇṭha planets.
-
+[[Very_Important_Verse]]
+[[Brahman]] 

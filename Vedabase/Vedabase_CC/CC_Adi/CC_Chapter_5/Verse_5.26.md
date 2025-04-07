@@ -19,4 +19,4 @@ para-vyoma-madhye — within the spiritual sky; kari’ — making; svarūpa pra
 
 Translation
 In the Vaikuṇṭha planets of the spiritual sky the Lord manifests His identity as Nārāyaṇa and performs pastimes in various ways.
-
+[[Lord Nārāyaṇa]]

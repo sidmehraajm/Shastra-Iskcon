@@ -23,16 +23,16 @@ kasmāt — from where; vṛnde — O Vṛndā; priyā-sakhi — O dear friend; 
 
 Translation
 “O my beloved friend Vṛndā, where are you coming from?”
-
+[[Very_Important_Verse]]
 **Purport:**
 
 Purport
-“I am coming from the feet of Śrī Hari.”
-“Where is He?”
-“In the forest on the bank of Rādhā-kuṇḍa.”
-“What is He doing there?”
-“He is learning dancing.”
-“Who is His master?”
-“Your image, Rādhā, revealing itself in every tree and creeper in every direction, is roaming like a skillful dancer, making Him dance behind.”
+==“I am coming from the feet of Śrī Hari.”==
+==“Where is He?”==
+==“In the forest on the bank of Rādhā-kuṇḍa.”==
+==“What is He doing there?”==
+==“He is learning dancing.”==
+==“Who is His master?”==
+==“Your image, Rādhā, revealing itself in every tree and creeper in every direction, is roaming like a skillful dancer, making Him dance behind.”==
 This text is from the Govinda-līlāmṛta (8.77) of Kṛṣṇadāsa Kavirāja Gosvāmī.
 

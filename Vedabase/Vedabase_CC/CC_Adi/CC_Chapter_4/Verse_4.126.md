@@ -19,4 +19,4 @@ nija — own; prema — love; āsvāde — in tasting; mora — My; haya — the
 
 Translation
 “Whatever pleasure I get from tasting My love for Śrīmatī Rādhārāṇī, She tastes ten million times more than Me by Her love.
-
+[[Very_Important_Verse]]

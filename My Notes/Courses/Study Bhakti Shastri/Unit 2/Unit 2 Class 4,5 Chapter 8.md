@@ -34,4 +34,7 @@ Solution - Identifying as Brahmnan,
 
 **Sankirtan - chant with mind , me and mind 2 so that becomes sankirtan** 
 
-8.9 - Remembering Krishna
+[[BG_Verse_8.9]] acintya — inconceivable; rūpam — whose form - 8.3.9
+[[BG_Verse_8.10]] -saḥ — he; tam — that; param — transcendental 
+[[BG_Verse_8.12]] - ==mano hṛdi nirudhya ca== - 
+[[BG_Verse_8.15]] - Dukhalay 

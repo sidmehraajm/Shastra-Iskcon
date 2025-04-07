@@ -19,4 +19,4 @@ rādhā-kṛṣṇa — Rādhā and Kṛṣṇa; aiche — in this way; sadā �
 
 Translation
 Thus Rādhā and Lord Kṛṣṇa are one, yet They have taken two forms to enjoy the mellows of pastimes.
-
+[[Very_Important_Verse]]

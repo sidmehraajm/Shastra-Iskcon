@@ -19,4 +19,4 @@ mora — My; vaṁśī-gīte — by the vibration of the flute; ākarṣaye — 
 
 Translation
 “The vibration of My transcendental flute attracts the three worlds, but My ears are enchanted by the sweet words of Śrīmatī Rādhārāṇī.
-
+[[Srimati Rādhārāṇī]]

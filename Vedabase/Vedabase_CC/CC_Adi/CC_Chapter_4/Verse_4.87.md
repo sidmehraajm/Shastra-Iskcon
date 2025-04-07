@@ -19,6 +19,7 @@ kṛṣṇa-vāñchā — of the desire of Lord Kṛṣṇa; pūrti-rūpa — of
 
 Translation
 Her worship [ārādhana] consists of fulfilling the desires of Lord Kṛṣṇa. Therefore the Purāṇas call Her Rādhikā.
+[[Srimati Rādhārāṇī]]
 
 **Purport:**
 

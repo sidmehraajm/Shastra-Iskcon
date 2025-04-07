@@ -26,4 +26,4 @@ Translation
 
 Purport
 This text is from Śrīmad-Bhāgavatam (10.30.28).
-
+[[SB_Verse_10.30.28]]

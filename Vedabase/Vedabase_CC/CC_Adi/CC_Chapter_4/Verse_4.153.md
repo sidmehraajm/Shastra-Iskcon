@@ -23,7 +23,7 @@ gopyaḥ — the gopīs; kṛṣṇam — Lord Kṛṣṇa; upalabhya — seeing
 
 Translation
 “The gopīs saw their beloved Kṛṣṇa at Kurukṣetra after a long separation. They secured and embraced Him in their hearts through their eyes, and they attained a joy so intense that not even perfect yogīs can attain it. The gopīs cursed the creator for creating eyelids that interfered with their vision.”
-
+[[SB_Verse_10.82.39]] [[Very_Important_Verse]]
 **Purport:**
 
 Purport

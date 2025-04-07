@@ -19,4 +19,4 @@ parakīyā-bhāve — in the mood of parakīyā, or conjugal relations outside o
 
 Translation
 There is a great increase of mellow in the unwedded conjugal mood. Such love is found nowhere but in Vraja.
-
+[[conjugal love]]

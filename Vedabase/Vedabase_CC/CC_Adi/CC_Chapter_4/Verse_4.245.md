@@ -19,4 +19,4 @@ yadyapi — although; āmāra — My; gandhe — by the fragrance; jagat — the
 
 Translation
 “Although My body lends fragrance to the entire creation, the scent of Rādhārāṇī’s limbs captivates My mind and heart.
-
+[[Srimati Rādhārāṇī]]

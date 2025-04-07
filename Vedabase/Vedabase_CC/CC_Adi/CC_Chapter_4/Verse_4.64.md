@@ -19,4 +19,4 @@ sandhinīra — of the existence potency; sāra — essence; aṁśa — portion
 
 Translation
 The essential portion of the sandhinī potency is śuddha-sattva. Lord Kṛṣṇa’s existence rests upon it.
-
+[[Pure Goodness]]

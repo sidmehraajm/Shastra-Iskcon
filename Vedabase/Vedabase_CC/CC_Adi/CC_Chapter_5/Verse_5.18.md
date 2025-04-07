@@ -19,7 +19,7 @@ sarva-ga — all-pervading; ananta — unlimited; vibhu — the greatest; kṛ�
 
 Translation
 Like the transcendental body of Lord Kṛṣṇa, Gokula is all-pervading, infinite and supreme. It expands both above and below, without any restriction.
-
+[[Gokula]]
 **Purport:**
 
 Purport

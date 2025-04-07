@@ -24,3 +24,5 @@ Synonyms
 Translation
 His complexion was dark blue and His garment golden. Wearing a peacock feather, colored minerals, sprigs of flower buds, and a garland of forest flowers and leaves, He was dressed just like a dramatic dancer. He rested one hand upon the shoulder of a friend and with the other twirled a lotus. Lilies graced His ears, His hair hung down over His cheeks, and His lotuslike face was smiling.
 
+[[Bodily Features of Lord]]
+[[Very_Important_Verse]]

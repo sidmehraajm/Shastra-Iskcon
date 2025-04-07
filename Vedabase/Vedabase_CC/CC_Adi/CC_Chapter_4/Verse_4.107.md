@@ -19,6 +19,8 @@ Synonyms
 
 Translation
 In the final portion of His pastimes, Lord Caitanya was obsessed with the madness of separation from Lord Kṛṣṇa. He acted in erroneous ways and talked deliriously.
+[[Love in Separation]]
+
 
 **Purport:**
 

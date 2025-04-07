@@ -19,7 +19,7 @@ rādhā-kṛṣṇa — Rādhā and Kṛṣṇa; eka — one; ātmā — self; d
 
 Translation
 Rādhā and Kṛṣṇa are one and the same, but They have assumed two bodies. Thus They enjoy each other, tasting the mellows of love.
-
+[[Srimati Rādhārāṇī]]
 **Purport:**
 
 Purport

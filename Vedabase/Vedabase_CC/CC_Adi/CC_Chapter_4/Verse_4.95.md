@@ -19,4 +19,4 @@ jagat-mohana — enchanting the universe; kṛṣṇa — Lord Kṛṣṇa; tā�
 
 Translation
 Lord Kṛṣṇa enchants the world, but Śrī Rādhā enchants even Him. Therefore She is the supreme goddess of all.
-
+[[Very_Important_Verse]]

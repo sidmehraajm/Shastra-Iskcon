@@ -23,7 +23,7 @@ apāram — boundless; kasya api — of someone; praṇayi-jana-vṛndasya — o
 
 Translation
 “Lord Kṛṣṇa desired to taste the limitless nectarean mellows of the love of one of His multitude of loving damsels [Śrī Rādhā], and so He has assumed the form of Lord Caitanya. He has tasted that love while hiding His own dark complexion with Her effulgent yellow color. May that Lord Caitanya confer upon us His grace.”
-
+[[Lord Caitanya Mahāprabhu]]
 **Purport:**
 
 Purport

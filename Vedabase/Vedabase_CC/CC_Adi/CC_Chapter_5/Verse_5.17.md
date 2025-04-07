@@ -19,4 +19,4 @@ sarva-upari — above all of them; śrī-gokula — the place known as Gokula; v
 
 Translation
 Śrī Gokula, the highest of all, is also called Vraja, Goloka, Śvetadvīpa and Vṛndāvana.
-
+[[Gokula]]

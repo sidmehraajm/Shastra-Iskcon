@@ -19,4 +19,4 @@ Synonyms
 
 Translation
 “I shall worship Kṛṣṇa in a purified state of mind. I shall constantly petition Him in humbleness.
-
+[[Important Verse]]

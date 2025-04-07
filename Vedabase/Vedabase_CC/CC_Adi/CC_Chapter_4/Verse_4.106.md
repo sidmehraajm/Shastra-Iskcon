@@ -19,6 +19,9 @@ rādhikāra — of Śrīmatī Rādhārāṇī; bhāva-mūrti — the form of the
 
 Translation
 The heart of Lord Caitanya is the image of Śrī Rādhikā’s emotions. Thus feelings of pleasure and pain arise constantly therein.
+[[Lord Kṛṣṇa]]
+[[Srimati Rādhārāṇī]]
+
 
 **Purport:**
 

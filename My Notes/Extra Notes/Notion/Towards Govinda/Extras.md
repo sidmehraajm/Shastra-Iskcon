@@ -29,11 +29,11 @@ Global Tags:
 |[[Bhagwatam]]||||||
 |[[Geeta]]||||||
 |[[Jaganath]]||||||
-|[[Krishna-Life/My Notes/Extra Notes/Notion/Towards Govinda/Extras/Global Tags/Guru Maharaj\|Guru Maharaj]]||||||
-|[[Krishna-Life/My Notes/Extra Notes/Notion/Towards Govinda/Extras/Global Tags/TODO\|TODO]]||||||
+|[[Krishna-Life/TAGS/Guru Maharaj\|Guru Maharaj]]||||||
+|[[Krishna-Life/TAGS/TODO\|TODO]]||||||
 |[[Merciful Lord]]||||||
 |[[Very Important]]||||||
 |[[To learn]]||||||
 |[[Love for the lord]]||||||
 |[[Best verses]]||||||
-|[[A.C. Bhaktivedanta Swami Prabhupada]]||||||
+|[[Srila Prabhupada]]||||||

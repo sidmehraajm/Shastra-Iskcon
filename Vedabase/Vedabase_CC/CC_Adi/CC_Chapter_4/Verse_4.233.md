@@ -19,4 +19,4 @@ hṛdaye — in the heart; dharaye — captures; ye — anyone who; caitanya —
 
 Translation
 Anyone who has captured Lord Caitanya Mahāprabhu and Lord Nityānanda Prabhu in his heart will become blissful by hearing all these transcendental conclusions.
-
+[[Lord Caitanya Mahāprabhu]] [[Lord Nityānanda]]

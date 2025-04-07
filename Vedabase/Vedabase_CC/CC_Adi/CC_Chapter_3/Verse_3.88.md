@@ -19,4 +19,4 @@ Synonyms
 
 Translation
 Lord Śrī Kṛṣṇa tries to hide Himself in various ways, but nevertheless His pure devotees know Him as He is.
-
+[[Pure Devotee]]

@@ -19,7 +19,7 @@ mo-viṣaye — on the subject of Me; gopī-gaṇera — of the gopīs; bhāve �
 
 Translation
 “The influence of yogamāyā will inspire the gopīs with the sentiment that I am their paramour.
-
+[[Gopis]]
 **Purport:**
 
 Purport

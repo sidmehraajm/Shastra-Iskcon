@@ -19,4 +19,4 @@ Synonyms
 
 Translation
 “Even with hundreds of mouths I could not express the transcendental pleasure She derives from My association.
-
+[[Srimati Rādhārāṇī]] [[Very_Important_Verse]]

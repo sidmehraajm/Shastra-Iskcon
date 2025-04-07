@@ -19,6 +19,7 @@ mahā-bhāva — of mahābhāva; śrī-rādhāṭhākurāṇī — Śrīmatī R�
 
 Translation
 Śrī Rādhā Ṭhākurāṇī is the embodiment of mahābhāva. She is the repository of all good qualities and the crest jewel among all the lovely consorts of Lord Kṛṣṇa.
+[[Srimati Rādhārāṇī]]
 
 **Purport:**
 

@@ -19,4 +19,4 @@ rādhikā — Śrīmatī Rādhārāṇī; hayena — is; kṛṣṇera — of Lo
 
 Translation
 Śrīmatī Rādhikā is the transformation of Kṛṣṇa’s love. She is His internal energy called hlādinī.
-
+[[Srimati Rādhārāṇī]]

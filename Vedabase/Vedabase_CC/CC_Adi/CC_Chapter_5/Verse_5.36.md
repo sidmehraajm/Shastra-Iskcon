@@ -21,7 +21,7 @@ yat — that; arīṇām — of the enemies of the Supreme Personality of Godhea
 
 Translation
 “Where it has been stated that the Lord’s enemies and devotees attain the same destination, this refers to the ultimate oneness of Brahman and Lord Kṛṣṇa. This may be understood by the example of the sun and the sunshine, in which Brahman is like the sunshine and Kṛṣṇa Himself is like the sun.”
-
+[[Very_Important_Verse]] [[Lord Kṛṣṇa]] [[Brahman]]
 **Purport:**
 
 Purport

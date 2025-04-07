@@ -19,4 +19,4 @@ anukūla-vāte — in a favorable breeze; yadi — if; pāya — there is; mora 
 
 Translation
 “When a favorable breeze carries to Her the fragrance of My body, She is blinded by love and tries to fly into that breeze.
-
+[[Srimati Rādhārāṇī]]

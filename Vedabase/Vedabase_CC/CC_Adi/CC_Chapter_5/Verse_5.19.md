@@ -19,7 +19,7 @@ brahmāṇḍe — within the material world; prakāśa — manifestation; tāra
 
 Translation
 That abode is manifested within the material world by the will of Lord Kṛṣṇa. It is identical to that original Gokula; they are not two different bodies.
-
+[[Vrajadhāma]]
 **Purport:**
 
 Purport

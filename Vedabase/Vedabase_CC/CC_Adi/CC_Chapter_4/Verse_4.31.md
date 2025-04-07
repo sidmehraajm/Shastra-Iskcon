@@ -18,7 +18,7 @@ dharma chāḍi’ — giving up religious customs; rāge — in love; duṅhe �
 **Translation:**
 
 Translation
-“Pure attachment will unite us even at the expense of moral and religious duties [dharma]. Destiny will sometimes bring us together and sometimes separate us.
+“Pure [[attachment]] will unite us even at the expense of moral and religious duties [dharma]. Destiny will sometimes bring us together and sometimes separate us.
 
 **Purport:**
 

@@ -21,7 +21,7 @@ mora — my; putra — son; mora — my; sakhā — friend; mora — my; prāṇ
 
 Translation
 “If one cherishes pure loving devotion to Me, thinking of Me as his son, his friend or his beloved, regarding himself as great and considering Me his equal or inferior, I become subordinate to him.
-
+[[Very_Important_Verse]] [[Lord Kṛṣṇa]]
 **Purport:**
 
 Purport

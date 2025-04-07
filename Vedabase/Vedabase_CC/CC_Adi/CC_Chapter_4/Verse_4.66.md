@@ -24,6 +24,7 @@ sattvam — existence; viśuddham — pure; vasudeva-śabditam — named vasudev
 Translation
 “The condition of pure goodness [śuddha-sattva], in which the Supreme Personality of Godhead is revealed without any covering, is called vasudeva. In that pure state the Supreme Godhead, who is beyond the material senses and who is known as Vāsudeva, is perceived by my mind.”
 
+
 **Purport:**
 
 Purport

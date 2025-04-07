@@ -19,4 +19,4 @@ atyanta — extremely; nigūḍha — deep; ei — this; rasera — of mellow; s
 
 Translation
 This conclusion of rasa is extremely deep. Only Svarūpa Dāmodara knows much about it.
-
+[[Svarūpa Dāmodara Gosvāmī]]

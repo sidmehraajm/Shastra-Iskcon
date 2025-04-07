@@ -19,4 +19,4 @@ nāma vinu — except for the holy name; kali-kāle — in the Age of Kali; dhar
 
 Translation
 “In this Age of Kali there is no religion other than the chanting of the holy name of the Lord, but how in this age will the Lord appear as an incarnation?
-
+[[Harinam Glorification]]

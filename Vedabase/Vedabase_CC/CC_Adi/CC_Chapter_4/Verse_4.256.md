@@ -19,4 +19,4 @@ līlā-ante — at the end of Our pastimes; sukhe — in happiness; iṅhāra �
 
 Translation
 “Seeing the luster of Her complexion after Our pastimes together, I forget My own identity in happiness.
-
+[[Srimati Rādhārāṇī]] 

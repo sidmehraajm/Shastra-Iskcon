@@ -19,7 +19,7 @@ Synonyms
 
 Translation
 Hlādinī is His aspect of bliss; sandhinī, of eternal existence; and samvit, of cognizance, which is also accepted as knowledge.
-
+[[Very_Important_Verse]]
 **Purport:**
 
 Purport

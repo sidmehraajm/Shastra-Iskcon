@@ -19,6 +19,7 @@ vicāra — consideration; kariye — I do; yadi — if; āsvāda — to taste; 
 
 Translation
 “If I deliberate on a way to taste it, I find that I hanker for the position of Rādhikā.”
+[[Lord Kṛṣṇa]] [[Srimati Rādhārāṇī]] [[Important Verse]]
 
 **Purport:**
 

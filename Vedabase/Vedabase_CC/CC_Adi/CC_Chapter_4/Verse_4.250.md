@@ -19,4 +19,4 @@ rādhāra — of Śrīmatī Rādhārāṇī; darśane — in meeting; mora — M
 
 Translation
 “My eyes are fully satisfied when I look upon Śrīmatī Rādhārāṇī, but by looking upon Me, She becomes even more advanced in satisfaction.
-
+[[Srimati Rādhārāṇī]]

@@ -22,7 +22,7 @@ tvam — You; bhakti-yoga — by devotional service; paribhāvita — saturated;
 **Translation:**
 
 Translation
-“O my Lord, You always dwell in the vision and hearing of Your pure devotees. You also live in their lotuslike hearts, which are purified by devotional service. O my Lord, who are glorified by exalted prayers, You show special favor to Your devotees by manifesting Yourself in the eternal forms in which they welcome You.”
+“O my Lord, You always dwell in the vision and hearing of Your pure devotees. You also live in their lotuslike hearts, which are purified by devotional service. O my Lord, who are glorified by exalted prayers, You show special favor to Your devotees by manifesting Yourself in the eternal forms in which they welcome You.”[[Pure Devotee]]
 
 **Purport:**
 

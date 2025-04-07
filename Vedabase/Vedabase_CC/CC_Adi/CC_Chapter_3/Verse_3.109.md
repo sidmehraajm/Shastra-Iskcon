@@ -19,4 +19,4 @@ kṛṣṇera — of Lord Kṛṣṇa; āhvāna — invitation; kare — makes; 
 
 Translation
 He appealed to Śrī Kṛṣṇa with loud calls and thus made it possible for Kṛṣṇa to appear.
-
+[[Intense Prayer]]

@@ -19,7 +19,7 @@ eka-i — one; svarūpa — identity; doṅhe — both of Them; bhinna-mātra k�
 
 Translation
 These two are one and the same identity. They differ only in form. Lord Balarāma is the first bodily expansion of Kṛṣṇa, and He assists in Lord Kṛṣṇa’s transcendental pastimes.
-
+[[Lord Kṛṣṇa]] [[Lord Balarāmā]]
 **Purport:**
 
 Purport

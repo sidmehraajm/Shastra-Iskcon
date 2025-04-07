@@ -18,7 +18,7 @@ mādhava — Mādhavendra Purī; īśvara-purī — Īśvara Purī; śacī — �
 **Translation:**
 
 Translation
-Mādhavendra Purī, Īśvara Purī, Śrīmatī Śacīmātā and Śrīla Jagannātha Miśra all appeared with Śrī Advaita Ācārya.
+[[Mādhavendra Purī]], [[Īśvara Purī]], [[Śrīmatī Śacīmātā]] and [[Śrīla Jagannātha Miśra]] all appeared with Śrī Advaita Ācārya.
 
 **Purport:**
 

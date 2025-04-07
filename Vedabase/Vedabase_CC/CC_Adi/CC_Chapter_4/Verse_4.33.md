@@ -18,7 +18,7 @@ vrajera — of Vraja; nirmala — spotless; rāga — love; śuni’ — hearing
 **Translation:**
 
 Translation
-“Then, by hearing about the pure love of the residents of Vraja, devotees will worship Me on the path of spontaneous love, abandoning all rituals of religiosity and fruitive activity.”
+“Then, by hearing about the pure love of the residents of Vraja, devotees will worship Me on the path of [[spontaneous]] love, abandoning all rituals of religiosity and fruitive activity.”
 
 **Purport:**
 

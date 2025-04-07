@@ -19,4 +19,5 @@ pūrṇa-ānanda-maya — made of full joy; āmi — I; cit-maya — spiritual; 
 
 Translation
 “I am the full spiritual truth and am made of full joy, but the love of Śrīmatī Rādhārāṇī drives Me mad.
-
+[[Srimati Rādhārāṇī]] [[Lord Kṛṣṇa]]
+[[GEM Verses]]

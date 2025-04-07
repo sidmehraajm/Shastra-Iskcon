@@ -21,6 +21,7 @@ siddha-lokaḥ — Siddhaloka, or impersonal Brahman; tu — but; tamasaḥ — 
 
 Translation
 “Beyond the region of ignorance [the material cosmic manifestation] lies the realm of Siddhaloka. The Siddhas reside there, absorbed in the bliss of Brahman. Demons killed by the Lord also attain that realm.”
+[[Brahman]]
 
 **Purport:**
 

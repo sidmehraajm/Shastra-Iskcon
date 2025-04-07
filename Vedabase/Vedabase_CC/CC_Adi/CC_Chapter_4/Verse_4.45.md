@@ -22,6 +22,8 @@ yathā-uttaram — one after another; asau — that; svāda-viśeṣa — of par
 Translation
 “Increasing love is experienced in various tastes, one above another. But that love which has the highest taste in the gradual succession of desire manifests itself in the form of conjugal love.”
 
+[[conjugal love]]
+
 **Purport:**
 
 Purport

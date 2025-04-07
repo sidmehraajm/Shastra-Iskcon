@@ -19,4 +19,4 @@ rādhikāra — of Śrīmatī Rādhārāṇī; prema — the love; guru — teac
 
 Translation
 “The love of Rādhikā is My teacher, and I am Her dancing pupil. Her prema makes Me dance various novel dances.”
-
+[[Srimati Rādhārāṇī]] [[Lord Kṛṣṇa]]

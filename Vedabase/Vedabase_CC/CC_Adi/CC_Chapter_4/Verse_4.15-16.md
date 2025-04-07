@@ -21,7 +21,7 @@ prema-rasa — of the mellow of love of God; niryāsa — the essence; karite �
 
 Translation
 The Lord’s desire to appear was born from two reasons: the Lord wanted to taste the sweet essence of the mellows of love of God, and He wanted to propagate devotional service in the world on the platform of spontaneous attraction. Thus He is known as supremely jubilant and as the most merciful of all.
-
+[[Important Verse]]
 **Purport:**
 
 Purport

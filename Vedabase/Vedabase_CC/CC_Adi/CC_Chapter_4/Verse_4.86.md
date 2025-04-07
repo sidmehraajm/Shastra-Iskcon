@@ -19,7 +19,7 @@ kimvā — or; prema-rasa — the mellows of love; maya — made of; kṛṣṇe
 
 Translation
 Or “kṛṣṇa-mayī” means that She is identical with Lord Kṛṣṇa, for She embodies the mellows of love. The energy of Lord Kṛṣṇa is identical with Him.
-
+[[Srimati Rādhārāṇī]]
 **Purport:**
 
 Purport

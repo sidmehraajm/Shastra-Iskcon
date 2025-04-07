@@ -22,6 +22,8 @@ tayoḥ — of them; api — even; ubhayoḥ — of both (Candrāvalī and Rādh
 Translation
 “Of these two gopīs [Rādhārāṇī and Candrāvalī], Śrīmatī Rādhārāṇī is superior in all respects. She is the embodiment of mahābhāva, and She surpasses all in good qualities.”
 
+[[Srimati Rādhārāṇī]]
+
 **Purport:**
 
 Purport

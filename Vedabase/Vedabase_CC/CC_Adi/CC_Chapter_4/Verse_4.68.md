@@ -19,6 +19,8 @@ hlādinīra — of the pleasure potency; sāra — the essence; prema — love f
 
 Translation
 The essence of the hlādinī potency is love of God, the essence of love of God is emotion [bhāva], and the ultimate development of emotion is mahābhāva.
+[[Lord Caitanya Mahāprabhu]]
+
 
 **Purport:**
 

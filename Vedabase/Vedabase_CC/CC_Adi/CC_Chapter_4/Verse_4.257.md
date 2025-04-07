@@ -19,7 +19,7 @@ doṅhāra — of both; ye — whatever; sama-rasa — equal mellows; bharata-mu
 
 Translation
 “The sage Bharata has said that the mellows of lover and beloved are equal. But he does not know the mellows of My Vṛndāvana.
-
+[[Srimati Rādhārāṇī]] [[Very_Important_Verse]]  [[Vrajadhāma]]
 **Purport:**
 
 Purport

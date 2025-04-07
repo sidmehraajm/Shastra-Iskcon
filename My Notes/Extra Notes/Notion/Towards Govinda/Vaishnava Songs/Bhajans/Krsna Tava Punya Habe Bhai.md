@@ -2,8 +2,8 @@
 Created: 2023-09-08T01:33
 📌 Global Tags:
   - "[[Very Important]]"
-  - "[[Krishna-Life/My Notes/Extra Notes/Notion/Towards Govinda/Extras/Global Tags/Guru Maharaj\\|Guru Maharaj]]"
-  - "[[A.C. Bhaktivedanta Swami Prabhupada]]"
+  - "[[Krishna-Life/TAGS/Guru Maharaj\\|Guru Maharaj]]"
+  - "[[Srila Prabhupada]]"
 ---
 ## kṛṣṇa taba puṇya habe bhāie-puṇya koribe jabe rādhārāṇī sukhī habedhruva ati boli tomā tāi
 

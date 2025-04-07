@@ -219,7 +219,7 @@ hearing chanting
 
 
 1. [[SB_Verse_1.8.42]] Text 42: O Lord of Madhu, as the Ganges forever flows to the sea without hindrance, let my attraction be constantly drawn unto You without being diverted to anyone else. >>
-[[prayers]] loveforkrishna
+[[Prayer]] [[loveforkrishna]]
 
 
 Chapter 9 >>
@@ -239,7 +239,7 @@ chanting
 
 
 3. [[SB_Verse_1.9.33]] Text 33: Śrī Kṛṣṇa is the intimate friend of Arjuna. He has appeared on this earth in His transcendental body, which resembles the bluish color of the tamāla tree. His body attracts everyone in the three planetary systems [upper, middle and lower]. May His glittering yellow dress and His lotus face, covered with paintings of sandalwood pulp, be the object of my attraction, and may I not desire fruitive results >>
-[[prayers]]
+[[Prayer]]
 
 
 4. [[SB_Verse_1.9.39]] Text 39: At the moment of death, let my ultimate attraction be to Śrī Kṛṣṇa, the Personality of Godhead. I concentrate my mind upon the chariot driver of Arjuna who stood with a whip in His right hand and a bridle rope in His left, who was very careful to give protection to Arjuna’s chariot by all means. Those who saw Him on the Battlefield of Kurukṣetra attained their original forms after death >>
@@ -392,7 +392,7 @@ Chapter 4 >>
 5. [[SB_Verse_2.4.14]] Text 14: Let me offer my respectful obeisances unto Him who is the associate of the members of the Yadu dynasty and who is always a problem for the nondevotees. He is the supreme enjoyer of both the material and spiritual worlds, yet He enjoys His own abode in the spiritual sky. There is no one equal to Him because His transcendental opulence is immeasurable. >>
 
 
-6. [[SB_Verse_2.4.15]] Text 15: Let me offer my respectful obeisances unto the all-auspicious Lord Śrī Kṛṣṇa, about whom glorification, remembrances, audience, prayers, hearing and worship can at once cleanse the effects of all sins of the performer >>
+6. [[SB_Verse_2.4.15]] Text 15: Let me offer my respectful obeisances unto the all-auspicious Lord Śrī Kṛṣṇa, about whom glorification, remembrances, audience, Prayer, hearing and worship can at once cleanse the effects of all sins of the performer >>
 
 
 7. [[SB_Verse_2.4.16]] Text 16: Let me offer my respectful obeisances again and again unto the all-auspicious Lord ŚrīKṛṣṇa. The highly intellectual, simply by surrendering unto His lotus feet, are relieved of all attachments to present and future existences and without difficulty progress toward spiritual existence. >>
@@ -597,7 +597,7 @@ Chapter 9 >>
 
 
 9. [[SB_Verse_3.9.42]] Text 42: I am the Supersoul of every individual. I am the supreme director and the dearest. People are wrongly attached to the gross and subtle bodies, but they should be attached to Me only >>
-[[saynotomayaq]]
+[[maya]]
 
 
 Chapter 10 >>
@@ -832,7 +832,7 @@ Chapter 25 >>
 
 
 11. [[SB_Verse_3.25.21]] Text 21: The symptoms of a sādhu are that he is tolerant, merciful and friendly to all living entities. He has no enemies, he is peaceful, he abides by the scriptures, and all his characteristics are sublime. >>
-[[satSang]]
+[[Good association]]
 
 
 12. [[SB_Verse_3.25.23]] Text 23: Engaged constantly in chanting and hearing about Me, the Supreme Personality of Godhead, the sādhus do not suffer from material miseries because they are always filled with thoughts of My pastimes and activities. >>
@@ -847,7 +847,7 @@ Chapter 25 >>
 
 
 26. [[SB_Verse_3.25.26]] Text 26: Thus consciously engaged in devotional service in the association of devotees, a person gains distaste for sense gratification, both in this world and in the next, by constantly thinking about the activities of the Lord. This process of Kṛṣṇa consciousness is the easiest process of mystic power; when one is actually situated on that path of devotional service, he is able to control the mind. >>
-[[satSang]]
+[[Good association]]
 
 
 27. [[SB_Verse_3.25.27]] Text 27: Thus by not engaging in the service of the modes of material nature but by developing Kṛṣṇa consciousness, knowledge in renunciation, and by practicing yoga, in which the mind is always fixed in devotional service unto the Supreme Personality of Godhead, one achieves My association in this very life, for I am the Supreme Personality, the Absolute Truth. >>
@@ -863,7 +863,7 @@ Chapter 25 >>
 
 
 9. [[SB_Verse_3.25.36]] Text 36: Upon seeing the charming forms of the Lord, smiling and attractive, and hearing His very pleasing words, the pure devotee almost loses all other consciousness. His senses are freed from all other engagements, and he becomes absorbed in devotional service. Thus in spite of his unwillingness, he attains liberation without separate endeavor >>
-[[satSang]]
+[[Good association]]
 
 
 10. [[SB_Verse_3.25.37]] Text 37: Thus because he is completely absorbed in thought of Me, the devotee does not desire even the highest benediction obtainable in the upper planetary systems, including Satyaloka. He does not desire the eight material perfections obtained from mystic yoga, nor does he desire to be elevated to the kingdom of God. Yet even without desiring them, the devotee enjoys, even in this life, all the offered benedictions. >>
@@ -1193,7 +1193,7 @@ Canto 4 >>
 . Chapter 1 >>
 
 
-Texts 26-27: But since his heart was already attracted by the deities, somehow or other he gathered his senses, and with folded hands and sweet words he began to offer prayers to the predominating deities of the universe. The great sage Atri said: O Lord Brahmā, Lord Viṣṇu and Lord Śiva, you have divided yourself into three bodies by accepting the three modes of material nature, as you do in every millennium for the creation, maintenance and dissolution of the cosmic manifestation. I offer my respectful obeisances unto all of you and beg to inquire whom of you three I have called by my prayer >>
+Texts 26-27: But since his heart was already attracted by the deities, somehow or other he gathered his senses, and with folded hands and sweet words he began to offer Prayer to the predominating deities of the universe. The great sage Atri said: O Lord Brahmā, Lord Viṣṇu and Lord Śiva, you have divided yourself into three bodies by accepting the three modes of material nature, as you do in every millennium for the creation, maintenance and dissolution of the cosmic manifestation. I offer my respectful obeisances unto all of you and beg to inquire whom of you three I have called by my prayer >>
 
 
 [[SB_Verse_4.1.30]] Text 30: The three deities told Atri Muni: Dear brāhmaṇa, you are perfect in your determination, and therefore as you have decided, so it will happen; it will not happen otherwise. We are all the same person upon whom you were meditating, and therefore we have all come to you. >>
@@ -1277,7 +1277,7 @@ Texts 26-27: But since his heart was already attracted by the deities, somehow o
 [[SB_Verse_4.7.20]] Text 20: His complexion was blackish, His garment yellow like gold, and His helmet as dazzling as the sun.His hair was bluish, the color of black bees, and His face was decorated with earrings. His eight hands held a conchshell, wheel, club, lotus flower, arrow, bow, shield and sword, and they were decorated with golden ornaments such as bangles and bracelets. His whole body resembled a blossoming tree beautifully decorated with various kinds of flowers >>
 
 
-[[SB_Verse_4.7.23]] Text 23: In the presence of the glaring effulgence of the bodily luster of Nārāyaṇa, everyone else’s luster faded away, and everyone stopped speaking. Fearful with awe and veneration, all present touched their hands to their heads and prepared to offer their prayers to the Supreme Personality of Godhead, Adhokṣaja >>
+[[SB_Verse_4.7.23]] Text 23: In the presence of the glaring effulgence of the bodily luster of Nārāyaṇa, everyone else’s luster faded away, and everyone stopped speaking. Fearful with awe and veneration, all present touched their hands to their heads and prepared to offer their Prayer to the Supreme Personality of Godhead, Adhokṣaja >>
 
 
 [[SB_Verse_4.7.28]] Text 28: The members of the assembly addressed the Lord: O exclusive shelter for all who are situated in troubled life, in this formidable fort of conditional existence the time element, like a snake, is always looking for an opportunity to strike. This world is full of ditches of so-called distress and happiness, and there are many ferocious animals always ready to attack. The fire of lamentation is always blazing, and the mirage of false happiness is always alluring, but one has no shelter from them. Thus foolish persons live in the cycle of birth and death, always overburdened in discharging their so-called duties, and we do not know when they will accept the shelter of Your lotus feet. >>
@@ -1361,10 +1361,10 @@ Texts 59-60: Anyone who thus engages in the devotional service of the Lord, seri
 [[SB_Verse_4.9.3]] Text 3: When Dhruva Mahārāja saw his Lord just in front of him, he was greatly agitated and offered Him obeisances and respect. He fell flat before Him like a rod and became absorbed in love of Godhead. Dhruva Mahārāja, in ecstasy, looked upon the Lord as if he were drinking the Lord with his eyes, kissing the lotus feet of the Lord with his mouth, and embracing the Lord with his arms. >>
 
 
-[[SB_Verse_4.9.4]] Text 4: Although Dhruva Mahārāja was a small boy, he wanted to offer prayers to the Supreme Personality of Godhead in suitable language. But because he was inexperienced, he could not adjust himself immediately. The Supreme Personality of Godhead, being situated in everyone’s heart, could understand Dhruva Mahārāja’s awkward position. Out of His causeless mercy He touched His conchshell to the forehead of Dhruva Mahārāja, who stood before Him with folded hands. >>
+[[SB_Verse_4.9.4]] Text 4: Although Dhruva Mahārāja was a small boy, he wanted to offer Prayer to the Supreme Personality of Godhead in suitable language. But because he was inexperienced, he could not adjust himself immediately. The Supreme Personality of Godhead, being situated in everyone’s heart, could understand Dhruva Mahārāja’s awkward position. Out of His causeless mercy He touched His conchshell to the forehead of Dhruva Mahārāja, who stood before Him with folded hands. >>
 
 
-[[SB_Verse_4.9.5]] Text 5: At that time Dhruva Mahārāja became perfectly aware of the Vedic conclusion and understood the Absolute Truth and His relationship with all living entities. In accordance with the line of devotional service to the Supreme Lord, whose fame is widespread, Dhruva, who in the future would receive a planet which would never be annihilated, even during the time of dissolution, offered his deliberate and conclusive prayers. >>
+[[SB_Verse_4.9.5]] Text 5: At that time Dhruva Mahārāja became perfectly aware of the Vedic conclusion and understood the Absolute Truth and His relationship with all living entities. In accordance with the line of devotional service to the Supreme Lord, whose fame is widespread, Dhruva, who in the future would receive a planet which would never be annihilated, even during the time of dissolution, offered his deliberate and conclusive Prayer. >>
 
 
 [[SB_Verse_4.9.7]] Text 7: My Lord, You are the supreme one, but by Your different energies You appear differently in the spiritual and material worlds. You create the total energy of the material world by Your external potency, and after creation You enter within the material world as the Supersoul. You are the Supreme Person, and through the temporary modes of material nature You create varieties of manifestation, just as fire, entering into wood of different shapes, burns brilliantly in different varieties. >>
@@ -1508,7 +1508,7 @@ My devotee who is connected with Me in intense friendship and affection, being c
 [[SB_Verse_4.20.21]] Text 21: The original king, Mahārāja Pṛthu, his eyes full of tears and his voice faltering and choked up, could neither see the Lord very distinctly nor speak to address the Lord in any way. He simply embraced the Lord within his heart and remained standing in that way with folded hands. >>
 
 
-[[SB_Verse_4.20.22]] Text 22: The Supreme Personality of Godhead stood with His lotus feet almost touching the ground while He rested the front of His hand on the raised shoulder of Garuḍa, the enemy of the snakes. Mahārāja Pṛthu, wiping the tears from his eyes, tried to look upon the Lord, but it appeared that the King was not fully satisfied by looking at Him. Thus the King offered the following prayers >>
+[[SB_Verse_4.20.22]] Text 22: The Supreme Personality of Godhead stood with His lotus feet almost touching the ground while He rested the front of His hand on the raised shoulder of Garuḍa, the enemy of the snakes. Mahārāja Pṛthu, wiping the tears from his eyes, tried to look upon the Lord, but it appeared that the King was not fully satisfied by looking at Him. Thus the King offered the following Prayer >>
 
 
 [[SB_Verse_4.20.24]] Text 24: My dear Lord, I therefore do not wish to have the benediction of merging into Your existence, a benediction in which there is no existence of the nectarean beverage of Your lotus feet. I want the benediction of at least one million ears, for thus I may be able to hear about the glories of Your lotus feet from the mouths of Your pure devotees >>
@@ -1757,7 +1757,7 @@ Texts 47-48: The Lord is superexcellently beautiful on account of His open and m
 [[SB_Verse_4.24.71]] Text 71: My dear princes, in the form of a prayer I have delineated the yoga system of chanting the holy name.All of you should take this important stotra within your minds and promise to keep it in order to become great sages. By acting silently like a great sage and by giving attention and reverence, you should practice this method. >>
 
 
-[[SB_Verse_4.24.72]] Text 72: This prayer was first spoken to us by Lord Brahmā, the master of all creators. The creators, headed by Bhṛgu, were instructed in these prayers because they wanted to create. >>
+[[SB_Verse_4.24.72]] Text 72: This prayer was first spoken to us by Lord Brahmā, the master of all creators. The creators, headed by Bhṛgu, were instructed in these Prayer because they wanted to create. >>
 
 
 [[SB_Verse_4.24.74]] Text 74: A devotee of Lord Kṛṣṇa whose mind is always absorbed in Him, who with great attention and reverence chants this stotra prayer, will achieve the greatest perfection of life without delay. >>
@@ -1877,7 +1877,7 @@ Text 29.1b: If a living entity is developed in Kṛṣṇa consciousness and is 
 [[SB_Verse_4.30.9]] Text 9: The Lord continued: Those who remember you every evening of every day will become friendly with their brothers and with all other living entities >>
 
 
-[[SB_Verse_4.30.10]] Text 10: Those who will offer Me the prayers composed by Lord Śiva, both in the morning and in the evening, will be given benedictions by Me. In this way they can both fulfill their desires and attain good intelligence >>
+[[SB_Verse_4.30.10]] Text 10: Those who will offer Me the Prayer composed by Lord Śiva, both in the morning and in the evening, will be given benedictions by Me. In this way they can both fulfill their desires and attain good intelligence >>
 
 
 [[SB_Verse_4.30.19]] Text 19: Those who are engaged in auspicious activities in devotional service certainly understand that the ultimate enjoyer or beneficiary of all activities is the Supreme Personality of Godhead. Thus when one acts, he offers the results to the Supreme Personality of Godhead and passes life always engaged in the topics of the Lord. Even though such a person may be participating in family life, he is not affected by the results of his actions. >>
@@ -1917,11 +1917,11 @@ Text 29.1b: If a living entity is developed in Kṛṣṇa consciousness and is 
 
 
 [[SB_Verse_4.30.33]] Text 33: Dear Lord, as long as we have to remain within this material world due to our material contamination and wander from one type of body to another and from one planet to another, we pray that we may associate with those who are engaged in discussing Your pastimes. We pray for this benediction life after life, in different bodily forms and on different planets. >>
-satSang
+Good association
 
 
 1. [[SB_Verse_4.30.34]] Text 34: Even a moment’s association with a pure devotee cannot be compared to being transferred to heavenly planets or even merging into the Brahman effulgence in complete liberation. For living entities who are destined to give up the body and die, association with pure devotees is the highest benediction. >>
-[[satSang]]
+[[Good association]]
 
 
 2. [[SB_Verse_4.30.35]] Text 35: Whenever pure topics of the transcendental world are discussed, the members of the audience forget all kinds of material hankerings, at least for the time being. Not only that, but they are no longer envious of one another, nor do they suffer from anxiety or fear. >>
@@ -2002,10 +2002,10 @@ Chapter 3 >>
 [[SB_Verse_5.3.2]] Text 2: In the performance of a sacrifice, there are seven transcendental means to obtain the mercy of the Supreme Personality of Godhead: (1) by sacrificing valuable things or eatables, (2) by acting in terms of place, (3) by acting in terms of time, (4) by offering hymns, (5) by going through the priest, (6) by offering gifts to the priests and (7) by observing the regulative principles. >>
 
 
-Texts 4-5: The priests began to offer prayers to the Lord, saying: O most worshipable one, we are simply Your servants. Although You are full in Yourself, please, out of Your causeless mercy, accept a little service from us, Your eternal servants. We are not actually aware of Your transcendental form, but we can simply offer our respectful obeisances again and again, as instructed by the Vedic literatures and authorized ācāryas.Materialistic living entities are very much attracted to the modes of material nature, and therefore they are never perfect, but You are above the jurisdiction of all material conceptions. Your name, form and qualities are all transcendental and beyond the conception of experimental knowledge. Indeed, who can conceive of You? In the material world we can perceive only material names and qualities. We have no other power than to offer our respectful obeisances and prayers unto You, the transcendental person. The chanting of Your auspicious transcendental qualities will wipe out the sins of all mankind. That is the most auspicious activity for us, and we can thus partially understand Your supernatural position. >>
+Texts 4-5: The priests began to offer Prayer to the Lord, saying: O most worshipable one, we are simply Your servants. Although You are full in Yourself, please, out of Your causeless mercy, accept a little service from us, Your eternal servants. We are not actually aware of Your transcendental form, but we can simply offer our respectful obeisances again and again, as instructed by the Vedic literatures and authorized ācāryas.Materialistic living entities are very much attracted to the modes of material nature, and therefore they are never perfect, but You are above the jurisdiction of all material conceptions. Your name, form and qualities are all transcendental and beyond the conception of experimental knowledge. Indeed, who can conceive of You? In the material world we can perceive only material names and qualities. We have no other power than to offer our respectful obeisances and Prayer unto You, the transcendental person. The chanting of Your auspicious transcendental qualities will wipe out the sins of all mankind. That is the most auspicious activity for us, and we can thus partially understand Your supernatural position. >>
 
 
-[[SB_Verse_5.3.6]] Text 6: O Supreme Lord, You are full in every respect.You are certainly very satisfied when Your devotees offer You prayers with faltering voices and in ecstasy bring You tulasī leaves, water, twigs bearing new leaves, and newly grown grass. This surely makes You satisfied >>
+[[SB_Verse_5.3.6]] Text 6: O Supreme Lord, You are full in every respect.You are certainly very satisfied when Your devotees offer You Prayer with faltering voices and in ecstasy bring You tulasī leaves, water, twigs bearing new leaves, and newly grown grass. This surely makes You satisfied >>
 
 
 [[SB_Verse_5.3.8]] Text 8: All of life’s goals and opulences are directly, self-sufficiently, unceasingly and unlimitedly increasing in You at every moment. Indeed, You are unlimited enjoyment and blissful existence itself. As far as we are concerned, O Lord, we are always after material enjoyment. You do not need all these sacrificial arrangements, but they are meant for us so that we may be benedicted by Your Lordship. All these sacrifices are performed for our fruitive results, and they are not actually needed by You. >>
@@ -2381,7 +2381,7 @@ Chapter 18 >>
 
 
 [[SB_Verse_5.18.10]] Text 10: My dear Lord, we pray that we may never feel attraction for the prison of family life, consisting of home, wife, children, friends, bank balance, relatives and so on. If we do have some attachment, let it be for devotees, whose only dear friend is Kṛṣṇa. A person who is actually self-realized and who has controlled his mind is perfectly satisfied with the bare necessities of life. He does not try to gratify his senses. Such a person quickly advances in Kṛṣṇa consciousness, whereas others, who are too attached to material things, find advancement very difficult. >>
-satSang
+Good association
 
 
 [[SB_Verse_5.18.11]] Text 11: By associating with persons for whom the Supreme Personality of Godhead, Mukunda, is the all in all, one can hear of His powerful activities and soon come to understand them. The activities of Mukunda are so potent that simply by hearing of them one immediately associates with the Lord. For a person who constantly and very eagerly hears narrations of the Lord’s powerful activities, the Absolute Truth, the Personality of Godhead in the form of sound vibrations, enters within his heart and cleanses it of all contamination. On the other hand, although bathing in the Ganges diminishes bodily contaminations and infections, this process and the process of visiting holy places can cleanse the heart only after a long time.Therefore who is the sane man who will not associate with devotees to quickly perfect his life? >>
@@ -2410,15 +2410,15 @@ reread
 
 
 [[SB_Verse_5.18.23]] Text 23: O infallible one, Your lotus palm is the source of all benediction. Therefore Your pure devotees worship it, and You very mercifully place Your hand on their heads. I wish that You may also place Your hand on My head, for although You already bear my insignia of golden streaks on Your chest, I regard this honor as merely a kind of false prestige for me. You show Your real mercy to Your devotees, not to me. Of course, You are the supreme absolute controller, and no one can understand Your motives. >>
-prayers
+Prayer
 
 
 [[SB_Verse_5.18.25]] Text 25: I offer my respectful obeisances unto the Supreme Personality of Godhead, who is pure transcendence. He is the origin of all life, bodily strength, mental power and sensory ability. Known as Matsyāvatāra, the gigantic fish incarnation, He appears first among all the incarnations. Again I offer my obeisances unto Him. >>
-prayers
+Prayer
 
 
 [[SB_Verse_5.18.26]] Text 26: My dear Lord, just as a puppeteer controls his dancing dolls and a husband controls his wife, Your Lordship controls all the living entities in the universe, such as the brāhmaṇas, kṣatriyas, vaiśyas and śūdras.Although You are in everyone’s heart as the supreme witness and commander and are outside everyone as well, the so-called leaders of societies, communities and countries cannot realize You. Only those who hear the vibration of the Vedic mantras can appreciate You >>
-prayers
+Prayer
 
 
 [[SB_Verse_5.18.31]] Text 31: My dear Lord, this visible cosmic manifestation is a demonstration of Your own creative energy. Since the countless varieties of forms within this cosmic manifestation are simply a display of Your external energy, this virāṭ-rūpa universal body is not Your real form. Except for a devotee in transcendental consciousness, no one can perceive Your actual form.Therefore I offer my respectful obeisances unto You. >>
@@ -2523,7 +2523,7 @@ Chapter 25 >>
 
 
 [[SB_Verse_5.25.8]] Text 8: If persons who are very serious about being liberated from material life hear the glories of Anantadeva from the mouth of a spiritual master in the chain of disciplic succession, and if they always meditate upon Saṅkarṣaṇa, the Lord enters the cores of their hearts, vanquishes all the dirty contamination of the material modes of nature, and cuts to pieces the hard knot within the heart, which has been tied tightly since time immemorial by the desire to dominate material nature through fruitive activities. Nārada Muni, the son of Lord Brahmā, always glorifies Anantadeva in his father’s assembly. There he sings blissful verses of his own composition, accompanied by his stringed instrument or a celestial singer known as Tumburu. >>
-spiritualmaster
+GURUDEV
 
 
 [[SB_Verse_5.25.9]] Text 9: By His glance, the Supreme Personality of Godhead enables the modes of material nature to act as the causes of universal creation, maintenance and destruction. The Supreme Soul is unlimited and beginningless, and although He is one, He has manifested Himself in many forms. How can human society understand the ways of the Supreme? >>
@@ -2533,7 +2533,7 @@ spiritualmaster
 
 
 [[SB_Verse_5.25.11]] Text 11: Even if he be distressed or degraded, any person who chants the holy name of the Lord, having heard it from a bona fide spiritual master, is immediately purified. Even if he chants the Lord’s name jokingly or by chance, he and anyone who hears him are freed from all sins. Therefore how can anyone seeking disentanglement from the material clutches avoid chanting the name of Lord Śeṣa? Of whom else should one take shelter? >>
-chanting spiritualmaster hearing
+chanting GURUDEV hearing
 
 
 Chapter 26 >>
@@ -2574,7 +2574,7 @@ devotionalservice
 
 
 [[SB_Verse_6.1.16]] Text 16: My dear King, if a sinful person engages in the service of a bona fide devotee of the Lord and thus learns how to dedicate his life unto the lotus feet of Kṛṣṇa, he can be completely purified. One cannot be purified merely by undergoing austerity, penance, brahmacarya and the other methods of atonement I have previously described >>
-spiritualmaster
+GURUDEV
 
 
 [[SB_Verse_6.1.17]] Text 17: The path followed by pure devotees, who are well-behaved and fully endowed with the best qualifications, is certainly the most auspicious path in this material world. It is free from fear, and it is authorized by the śāstras >>
@@ -2603,7 +2603,7 @@ aacharyas
 
 
 [[SB_Verse_6.1.55]] Text 55: Since the living entity is associated with material nature, he is in an awkward position, but if in the human form of life he is taught how to associate with the Supreme Personality of Godhead or His devotee, this position can be overcome. >>
-satSang
+Good association
 
 
 [[SB_Verse_6.1.62]] Text 62: As far as possible he patiently tried to remember the instructions of the śāstras not even to see a woman. With the help of this knowledge and his intellect, he tried to control his lusty desires, but because of the force of Cupid within his heart, he failed to control his mind. >>
@@ -2652,7 +2652,7 @@ chanting
 
 
 [[SB_Verse_6.2.39]] Text 39: Because of a moment’s association with devotees the Viṣṇudūtas, Ajāmila detached himself from the material conception of life with determination. Thus freed from all material attraction, he immediately started for Hardwar. >>
-satSang
+Good association
 
 
 [[SB_Verse_6.2.43]] Text 43: Upon seeing the Viṣṇudūtas, Ajāmila gave up his material body at Hardwar on the bank of the Ganges. He regained his original spiritual body, which was a body appropriate for an associate of the Lord. >>
@@ -2749,18 +2749,18 @@ Chapter 9 >>
 Texts 26-27: By His inconceivable internal potency, the Supreme Personality of Godhead expands into various transcendental bodies as Vāmanadeva, the incarnation of strength among the demigods; Paraśurāma, the incarnation among saints; Nṛsiṁhadeva and Varāha, incarnations among animals; and Matsya and Kūrma, incarnations among aquatics. He accepts various transcendental bodies among all types of living entities, and among human beings He especially appears as Lord Kṛṣṇa and Lord Rāma. By His causeless mercy, He protects the demigods, who are always harassed by the demons. He is the supreme worshipable Deity of all living entities. He is the supreme cause, represented as the male and female creative energies. Although different from this universe, He exists in His universal form virāṭ-rūpa. In our fearful condition, let us take shelter of Him, for we are sure that the Supreme Lord, the Supreme Soul, will give us His protection. >>
 
 
-Texts 29-30: Surrounding and serving the Supreme Personality of Godhead, Nārāyaṇa, were sixteen personal attendants, decorated with ornaments and appearing exactly like Him but without the mark of Śrīvatsa and the Kaustubha jewel. O King, when all the demigods saw the Supreme Lord in that posture, smiling with eyes like the petals of lotuses grown in autumn, they were overwhelmed with happiness and immediately fell down like rods, offering daṇḍavats.Then they slowly rose and pleased the Lord by offering Him prayers. >>
+Texts 29-30: Surrounding and serving the Supreme Personality of Godhead, Nārāyaṇa, were sixteen personal attendants, decorated with ornaments and appearing exactly like Him but without the mark of Śrīvatsa and the Kaustubha jewel. O King, when all the demigods saw the Supreme Lord in that posture, smiling with eyes like the petals of lotuses grown in autumn, they were overwhelmed with happiness and immediately fell down like rods, offering daṇḍavats.Then they slowly rose and pleased the Lord by offering Him Prayer. >>
 
 
 [[SB_Verse_6.9.33]] Text 33: O Supreme Personality of Godhead, O Nārāyaṇa, O Vāsudeva, original person! O most exalted person, supreme experience, welfare personified! O supreme benediction, supremely merciful and changeless! O support of the cosmic manifestation, sole proprietor of all planetary systems, master of everything and husband of the goddess of fortune! Your Lordship is realized by the topmost sannyāsīs, who wander about the world to preach Kṛṣṇa consciousness, fully absorbed in samādhi through bhakti-yoga. Because their minds are concentrated upon You, they can receive the conception of Your personality in their fully purified hearts. When the darkness in their hearts is completely eradicated and You are revealed to them, the transcendental bliss they enjoy is the transcendental form of Your Lordship. No one but such persons can realize You. Therefore we simply offer You our respectful obeisances >>
-prayers aacharyas
+Prayer aacharyas
 
 
 [[SB_Verse_6.9.37]] Text 37: A rope causes fear for a bewildered person who considers it a snake, but not for a person with proper intelligence who knows it to be only a rope.Similarly, You, as the Supersoul in everyone’s heart, inspire fear or fearlessness according to one’s intelligence, but in You there is no duality >>
 
 
 [[SB_Verse_6.9.39]] Text 39: Therefore, O killer of the Madhu demon, incessant transcendental bliss flows in the minds of those who have even once tasted but a drop of the nectar from the ocean of Your glories. Such exalted devotees forget the tiny reflection of so-called material happiness produced from the material senses of sight and sound. Free from all desires, such devotees are the real friends of all living entities. Offering their minds unto You and enjoying transcendental bliss, they are expert in achieving the real goal of life. O Lord, You are the soul and dear friend of such devotees, who never need return to this material world. How could they give up engagement in Your devotional service? >>
-satSang aacharyas
+Good association aacharyas
 
 
 [[SB_Verse_6.9.40]] Text 40: O Lord, O personified three worlds, father of the three worlds! O strength of the three worlds, in the form of the Vāmana incarnation! O three-eyed form of Nṛsiṁhadeva! O most beautiful person within the three worlds! Everything and everyone, including human beings and even the Daitya demons and the Dānavas, is but an expansion of Your energy. O supremely powerful one, You have always appeared in Your forms as the various incarnations to punish the demons as soon as they become very powerful. You appear as Lord Vāmanadeva, Lord Rāma and Lord Kṛṣṇa. You appear sometimes as an animal like Lord Boar, sometimes a mixed incarnation like Lord Nṛsiṁhadeva and Lord Hayagrīva, and sometimes an aquatic like Lord Fish and Lord Tortoise. Assuming such various forms, You have always punished the demons and Dānavas. We therefore pray that Your Lordship appear today as another incarnation, if You so desire, to kill the great demon Vṛtrāsura. >>
@@ -2788,7 +2788,7 @@ Chapter 11 >>
 
 
 [[SB_Verse_6.11.23]] Text 23: Our Lord, the Supreme Personality of Godhead, forbids His devotees to endeavor uselessly for religion, economic development and sense gratification. O Indra, one can thus infer how kind the Lord is. Such mercy is obtainable only by unalloyed devotees, not by persons who aspire for material gains. >>
-aacharyas devotionalservice kripa prayers
+aacharyas devotionalservice kripa Prayer
 
 
 [[SB_Verse_6.11.22]] Text 22: Persons who fully surrender at the lotus feet of the Supreme Personality of Godhead and always think of His lotus feet are accepted and recognized by the Lord as His own personal assistants or servants.The Lord never bestows upon such servants the brilliant opulences of the upper, lower and middle planetary systems of this material world. When one possesses material opulence in any of these three divisions of the universe, his possessions naturally increase his enmity, anxiety, mental agitation, pride and belligerence. Thus one goes through much endeavor to increase and maintain his possessions, and he suffers great unhappiness when he loses them. >>
@@ -2796,19 +2796,19 @@ lotusfeet kripa
 
 
 [[SB_Verse_6.11.24]] Text 24: O my Lord, O Supreme Personality of Godhead, will I again be able to be a servant of Your eternal servants who find shelter only at Your lotus feet? O Lord of my life, may I again become their servant so that my mind may always think of Your transcendental attributes, my words always glorify those attributes, and my body always engage in the loving service of Your Lordship? >>
-devotionalservice devoteequalities aacharyas puredevotee spiritualmaster
+devotionalservice devoteequalities aacharyas puredevotee GURUDEV
 
 
 [[SB_Verse_6.11.25]] Text 25: O my Lord, source of all opportunities, I do not desire to enjoy in Dhruvaloka, the heavenly planets or the planet where Lord Brahmā resides, nor do I want to be the supreme ruler of all the earthly planets or the lower planetary systems. I do not desire to be master of the powers of mystic yoga, nor do I want liberation if I have to give up Your lotus feet. >>
-lotusfeet loveforkrishna devotionalservice prayers
+lotusfeet loveforkrishna devotionalservice Prayer
 
 
 [[SB_Verse_6.11.26]] Text 26: O lotus-eyed Lord, as baby birds that have not yet developed their wings always look for their mother to return and feed them, as small calves tied with ropes await anxiously the time of milking, when they will be allowed to drink the milk of their mothers, or as a morose wife whose husband is away from home always longs for him to return and satisfy her in all respects, I always yearn for the opportunity to render direct service unto You >>
-devotionalservice puredevotee spiritualmaster
+devotionalservice puredevotee GURUDEV
 
 
 [[SB_Verse_6.11.27]] Text 27: O my Lord, my master, I am wandering throughout this material world as a result of my fruitive activities. Therefore I simply seek friendship in the association of Your pious and enlightened devotees.My attachment to my body, wife, children and home is continuing by the spell of Your external energy, but I wish to be attached to them no longer. Let my mind, my consciousness and everything I have be attached only to You. >>
-satSang familylife
+Good association familylife
 
 
 Chapter 12 >>
@@ -2874,7 +2874,7 @@ Texts 12-15: O great souls, I have heard that among the great and perfect person
 
 
 [[SB_Verse_6.13.16]] Text 16: Because you are great personalities, you can give me real knowledge. I am as foolish as a village animal like a pig or dog because I am merged in the darkness of ignorance. Therefore, please ignite the torch of knowledge to save me >>
-spiritualmaster
+GURUDEV
 
 
 [[SB_Verse_6.13.20]] Text 20: When I first came to your home, I could have given you the supreme transcendental knowledge, but when I saw that your mind was absorbed in material things, I gave you only a son, who caused you jubilation and lamentation. >>
@@ -2909,14 +2909,14 @@ Texts 18-19: Nārada gave Citraketu the following mantra. O Lord, O Supreme Pers
 [[SB_Verse_6.13.21]] Text 21: The words and mind of the conditioned soul cannot approach the Supreme Personality of Godhead, for material names and forms are not applicable to the Lord, who is entirely spiritual, beyond the conception of gross and subtle forms. The impersonal Brahman is another of His forms. May He, by His pleasure, protect us. >>
 
 
-[[SB_Verse_6.13.25]] Text 25: O transcendental Lord, who are situated in the topmost planet of the spiritual world, Your two lotus feet are always massaged by a multitude of the best devotees with their lotus-bud hands. You are the Supreme Personality of Godhead, complete in six opulences. You are the supreme person mentioned in the Puruṣa-sūkta prayers. You are the most perfect, self-realized master of all mystic power. Let me offer my respectful obeisances unto You. >>
+[[SB_Verse_6.13.25]] Text 25: O transcendental Lord, who are situated in the topmost planet of the spiritual world, Your two lotus feet are always massaged by a multitude of the best devotees with their lotus-bud hands. You are the Supreme Personality of Godhead, complete in six opulences. You are the supreme person mentioned in the Puruṣa-sūkta Prayer. You are the most perfect, self-realized master of all mystic power. Let me offer my respectful obeisances unto You. >>
 lotusfeet
 
 
 [[SB_Verse_6.13.31]] Text 31: As soon as Mahārāja Citraketu saw the Supreme Lord, he was cleansed of all material contamination and situated in his original Kṛṣṇa consciousness, being completely purified. He became silent and grave, and because of love for the Lord, tears fell from his eyes, and his hairs stood on end. With great devotion and love, he offered his respectful obeisances unto the original Personality of Godhead >>
 
 
-[[SB_Verse_6.13.32]] Text 32: With tears of love and affection, Citraketu repeatedly moistened the resting place of the Supreme Lord’s lotus feet. Because his voice was choked in ecstasy, for a considerable time he was unable to utter any of the letters of the alphabet to offer the Lord suitable prayers. >>
+[[SB_Verse_6.13.32]] Text 32: With tears of love and affection, Citraketu repeatedly moistened the resting place of the Supreme Lord’s lotus feet. Because his voice was choked in ecstasy, for a considerable time he was unable to utter any of the letters of the alphabet to offer the Lord suitable Prayer. >>
 
 
 [[SB_Verse_6.13.34]] Text 34: Citraketu said: O unconquerable Lord, although You cannot be conquered by anyone, You are certainly conquered by devotees who have control of the mind and senses. They can keep You under their control because You are causelessly merciful to devotees who desire no material profit from You.Indeed, You give Yourself to them, and because of this You also have full control over Your devotees >>
@@ -2930,7 +2930,7 @@ devoteequalities
 
 
 [[SB_Verse_6.13.50]] Text 50: The Supreme Personality of Godhead, Anantadeva, replied as follows: O King, as a result of your having accepted the instructions spoken about Me by the great sages Nārada and Aṅgirā, you have become completely aware of transcendental knowledge. Because you are now educated in the spiritual science, you have seen Me face to face.Therefore you are now completely perfect. >>
-Spiritualmaster
+GURUDEV
 
 
 [[SB_Verse_6.13.52]] Text 52: In this world of matter, which the conditioned soul accepts as consisting of enjoyable resources, the conditioned soul expands, thinking that he is the enjoyer of the material world. Similarly, the material world expands in the living entity as a source of enjoyment. In this way they both expand, but because they are My energies, they are both pervaded by Me. As the Supreme Lord, I am the cause of these effects, and one should know that both of them rest in Me. >>
@@ -3061,7 +3061,7 @@ devotionalservice
 [[SB_Verse_7.5.31]] Text 31: Persons who are strongly entrapped by the consciousness of enjoying material life, and who have therefore accepted as their leader or guru a similar blind man attached to external sense objects, cannot understand that the goal of life is to return home, back to Godhead, and engage in the service of Lord Viṣṇu. As blind men guided by another blind man miss the right path and fall into a ditch, materially attached men led by another materially attached man are bound by the ropes of fruitive labor, which are made of very strong cords, and they continue again and again in materialistic life, suffering the threefold miseries. >>
 
 
-Texts 23-24: Prahlāda Mahārāja said: Hearing and chanting about the transcendental holy name, form, qualities, paraphernalia and pastimes of Lord Viṣṇu, remembering them, serving the lotus feet of the Lord, offering the Lord respectful worship with sixteen types of paraphernalia, offering prayers to the Lord, becoming His servant, considering the Lord one’s best friend, and surrendering everything unto Him (in other words, serving Him with the body, mind and words) —these nine processes are accepted as pure devotional service. One who has dedicated his life to the service of Kṛṣṇa through these nine methods should be understood to be the most learned person, for he has acquired complete knowledge. >>
+Texts 23-24: Prahlāda Mahārāja said: Hearing and chanting about the transcendental holy name, form, qualities, paraphernalia and pastimes of Lord Viṣṇu, remembering them, serving the lotus feet of the Lord, offering the Lord respectful worship with sixteen types of paraphernalia, offering Prayer to the Lord, becoming His servant, considering the Lord one’s best friend, and surrendering everything unto Him (in other words, serving Him with the body, mind and words) —these nine processes are accepted as pure devotional service. One who has dedicated his life to the service of Kṛṣṇa through these nine methods should be understood to be the most learned person, for he has acquired complete knowledge. >>
 
 
 [[SB_Verse_7.5.30]] Text 30: Prahlāda Mahārāja replied: Because of their uncontrolled senses, persons too addicted to materialistic life make progress toward hellish conditions and repeatedly chew that which has already been chewed. Their inclinations toward Kṛṣṇa are never aroused, either by the instructions of others, by their own efforts, or by a combination of both. >>
@@ -3086,7 +3086,7 @@ Texts 20-23: The Supreme Personality of Godhead, the supreme controller, who is 
 
 
 Texts 11-13: How can a person who is most affectionate to his family, the core of his heart being always filled with their pictures, give up their association? Specifically, a wife is always very kind and sympathetic and always pleases her husband in a solitary place.Who could give up the association of such a dear and affectionate wife? Small children talk in broken language, very pleasing to hear, and their affectionate father always thinks of their sweet words. How could he give up their association? One’s elderly parents and one’s sons and daughters are also very dear. A daughter is especially dear to her father, and while living at her husband’s house she is always in his mind.Who could give up that association? Aside from this, in household affairs there are many decorated items of household furniture, and there are also animals and servants. Who could give up such comforts? The attached householder is like a silkworm, which weaves a cocoon in which it becomes imprisoned, unable to get out. Simply for the satisfaction of two important senses — the genitals and the tongue — one is bound by material conditions. How can one escape? >>
-familylife
+[[familylife]]
 
 
 [[SB_Verse_7.6.14]] Text 14: One who is too attached cannot understand that he is wasting his valuable life for the maintenance of his family. He also fails to understand that the purpose of human life, a life suitable for realization of the Absolute Truth, is being imperceptibly spoiled.However, he is very cleverly attentive to seeing that not a single farthing is lost by mismanagement. Thus although an attached person in material existence always suffers from threefold miseries, he does not develop a distaste for the way of material existence. >>
@@ -3113,7 +3113,7 @@ Chapter 8 >>
 [[SB_Verse_7.8.15]] Text 15: Then from within the pillar came a fearful sound, which appeared to crack the covering of the universe. O my dear Yudhiṣṭhira, this sound reached even the abodes of the demigods like Lord Brahmā, and when the demigods heard it, they thought, “Oh, now our planets are being destroyed!” >>
 
 
-Texts 37-39: My dear King Yudhiṣṭhira, the demigods then approached the Lord. They were headed by Lord Brahmā, King Indra and Lord Śiva and included great saintly persons and the residents of Pitṛloka, Siddhaloka, Vidyādhara-loka and the planet of the snakes. The Manus approached, and so did the chiefs of various other planets. The angelic dancers approached, as did the Gandharvas, the Cāraṇas, the Yakṣas, the inhabitants of Kinnaraloka, the Vetālas, the inhabitants of Kimpuruṣa-loka, and the personal servants of Viṣṇu like Sunanda and Kumuda. All of them came near the Lord, who glowed with intense light. They individually offered their obeisances and prayers, their hands folded at their heads. >>
+Texts 37-39: My dear King Yudhiṣṭhira, the demigods then approached the Lord. They were headed by Lord Brahmā, King Indra and Lord Śiva and included great saintly persons and the residents of Pitṛloka, Siddhaloka, Vidyādhara-loka and the planet of the snakes. The Manus approached, and so did the chiefs of various other planets. The angelic dancers approached, as did the Gandharvas, the Cāraṇas, the Yakṣas, the inhabitants of Kinnaraloka, the Vetālas, the inhabitants of Kimpuruṣa-loka, and the personal servants of Viṣṇu like Sunanda and Kumuda. All of them came near the Lord, who glowed with intense light. They individually offered their obeisances and Prayer, their hands folded at their heads. >>
 
 
 [[SB_Verse_7.8.42]] Text 42: King Indra said: O Supreme Lord, You are our deliverer and protector. Our shares of sacrifices, which are actually Yours, have been recovered from the demon by You. Because the demoniac king Hiraṇyakaśipu was most fearsome, our hearts, which are Your permanent abode, were all overtaken by him.Now, by Your presence, the gloom and darkness in our hearts have been dissipated. O Lord, for those who always engage in Your service, which is more exalted than liberation, all material opulence is insignificant.They do not even care for liberation, not to speak of the benefits of kāma, artha and dharma. >>
@@ -3148,7 +3148,7 @@ devoteequalities
 
 
 [[SB_Verse_7.4.42]] Text 42: Because of his association with perfect, unalloyed devotees who had nothing to do with anything material, Prahlāda Mahārāja constantly engaged in the service of the Lord’s lotus feet. By seeing his bodily features when he was in perfect ecstasy, persons very poor in spiritual understanding became purified. In other words, Prahlāda Mahārāja bestowed upon them transcendental bliss. >>
-satSang
+Good association
 
 
 Chapter 7 >>
@@ -3175,7 +3175,7 @@ devotionalservice
 
 
 Texts 30-31: One must accept the bona fide spiritual master and render service unto him with great devotion and faith. Whatever one has in one’s possession should be offered to the spiritual master, and in the association of saintly persons and devotees one should worship the Lord, hear the glories of the Lord with faith, glorify the transcendental qualities and activities of the Lord, always meditate on the Lord’s lotus feet, and worship the Deity of the Lord strictly according to the injunctions of the śāstra and guru. >>
-spiritualmaster
+GURUDEV
 
 
 [[SB_Verse_7.7.34]] Text 34: One who is situated in devotional service is certainly the controller of his senses, and thus he is a liberated person. When such a liberated person, the pure devotee, hears of the transcendental qualities and activities of the Lord’s incarnations for the performance of various pastimes, his hair stands on end on his body, tears fall from his eyes, and in his spiritual realization his voice falters. Sometimes he very openly dances, sometimes he sings loudly, and sometimes he cries. Thus he expresses his transcendental jubilation. >>
@@ -3247,7 +3247,7 @@ Texts 18-20: Mahārāja Ambarīṣa always engaged his mind in meditating upon t
 
 
 [[SB_Verse_9.4.68]] Text 68: The pure devotee is always within the core of My heart, and I am always in the heart of the pure devotee. My devotees do not know anything else but Me, and I do not know anyone else but them. >>
-spiritualmaster aacharyas
+GURUDEV aacharyas
 
 
 Chapter 5 >>
@@ -3312,7 +3312,7 @@ aacharyas
 
 
 [[SB_Verse_10.2.32]] Text 32: Someone may say that aside from devotees, who always seek shelter at the Lord’s lotus feet, there are those who are not devotees but who have accepted different processes for attaining salvation. What happens to them? In answer to this question, Lord Brahmā and the other demigods said: O lotus-eyed Lord, although nondevotees who accept severe austerities and penances to achieve the highest position may think themselves liberated, their intelligence is impure. They fall down from their position of imagined superiority because they have no regard for Your lotus feet >>
-lotusfeet prayers
+lotusfeet Prayer
 
 
 [[SB_Verse_10.2.33]] Text 33: O Mādhava, Supreme Personality of Godhead, Lord of the goddess of fortune, if devotees completely in love with You sometimes fall from the path of devotion, they do not fall like nondevotees, for You still protect them. Thus they fearlessly traverse the heads of their opponents and continue to progress in devotional service. >>
@@ -3333,7 +3333,7 @@ Chapter 3 >>
 Texts 1-5: Thereafter, at the auspicious time for the appearance of the Lord, the entire universe was surcharged with all the qualities of goodness, beauty and peace. The constellation Rohiṇī appeared, as did stars like Aśvinī. The sun, the moon and the other stars and planets were very peaceful. All directions appeared extremely pleasing, and the beautiful stars twinkled in the cloudless sky. Decorated with towns, villages, mines and pasturing grounds, the earth seemed allauspicious. The rivers flowed with clear water, and the lakes and vast reservoirs, full of lilies and lotuses, were extraordinarily beautiful. In the trees and green plants, full of flowers and leaves, pleasing to the eyes, birds like cuckoos and swarms of bees began chanting with sweet voices for the sake of the demigods. A pure breeze began to blow, pleasing the sense of touch and bearing the aroma of flowers, and when the brāhmaṇas engaging in ritualistic ceremonies ignited their fires according to Vedic principles, the fires burned steadily, undisturbed by the breeze. Thus when the birthless Lord Viṣṇu, the Supreme Personality of Godhead, was about to appear, the saints and brāhmaṇas, who had always been disturbed by demons like Kaṁsa and his men, felt peace within the core of their hearts, and kettledrums simultaneously vibrated from the upper planetary system. >>
 
 
-[[SB_Verse_10.3.12]] Text 12: O Mahārāja Parīkṣit, descendant of King Bharata, Vasudeva could understand that this child was the Supreme Personality of Godhead, Nārāyaṇa. Having concluded this without a doubt, he became fearless.Bowing down with folded hands and concentrating his attention, he began to offer prayers to the child, who illuminated His birthplace by His natural influence. >>
+[[SB_Verse_10.3.12]] Text 12: O Mahārāja Parīkṣit, descendant of King Bharata, Vasudeva could understand that this child was the Supreme Personality of Godhead, Nārāyaṇa. Having concluded this without a doubt, he became fearless.Bowing down with folded hands and concentrating his attention, he began to offer Prayer to the child, who illuminated His birthplace by His natural influence. >>
 
 
 [[SB_Verse_10.3.18]] Text 18: One who considers his visible body, which is a product of the three modes of nature, to be independent of the soul is unaware of the basis of existence, and therefore he is a rascal. Those who are learned have rejected this conclusion because one can understand through full discussion that with no basis in soul, the visible body and senses would be insubstantial. Nonetheless, although his conclusion has been rejected, a foolish person considers it a reality >>
@@ -3504,26 +3504,26 @@ Chapter 13 >>
 
 
 56. [[SB_Verse_10.30.11]] Text 11: O friend, wife of the deer, has Lord Acyuta been here with His beloved, bringing great joy to your eyes? Indeed, blowing this way is the fragrance of His garland of kunda flowers, which was smeared with the kuṅkuma from the breasts of His girlfriend when He embraced Her. >>
-[[SrimatiRadharani]]
+[[Srimati Rādhārāṇī]]
 
 
 57. [[SB_Verse_10.30.25]] Text 25: [The gopīs said:] The marks of a flag, lotus, thunderbolt, elephant goad, barleycorn and so forth on these footprints clearly distinguish them as belonging to that great soul, the son of Nanda Mahārāja. >>
 
 
 58. [[SB_Verse_10.30.26]] Text 26: The gopīs began following Kṛṣṇa’s path, as shown by His many footprints, but when they saw that these prints were thoroughly intermixed with those of His dearmost consort, they became perturbed and spoke as follows. >>
-[[SrimatiRadharani]]
+[[Srimati Rādhārāṇī]]
 
 
 56. [[SB_Verse_10.30.28]] Text 28: Certainly this particular gopī has perfectly worshiped the all-powerful Personality of Godhead, Govinda, since He was so pleased with Her that He abandoned the rest of us and brought Her to a secluded place >>
-[[SrimatiRadharani]]
+[[Srimati Rādhārāṇī]]
 
 
 57. [[SB_Verse_10.30.37]] Text 37: As the two lovers passed through one part of the Vṛndāvana forest, the special gopī began feeling proud of Herself. She told Lord Keśava, “I cannot walk any further. Please carry Me wherever You want to go.” >>
-[[SrimatiRadharani]]
+[[Srimati Rādhārāṇī]]
 
 
 6. [[SB_Verse_10.30.39]] Text 39: She cried out: O master! My lover! O dearmost, where are You? Where are You? Please, O mightyarmed one, O friend, show Yourself to Me, Your poor servant! >>
-[[SrimatiRadharani]] [[prayers]]
+[[Srimati Rādhārāṇī]] [[Prayer]]
 
 
 7. [[SB_Verse_10.30.43]] Text 43: Their minds absorbed in thoughts of Him, they conversed about Him, acted out His pastimes and felt themselves filled with His presence. They completely forgot about their homes as they loudly sang the glories of Kṛṣṇa’s transcendental qualities >>
@@ -3533,23 +3533,23 @@ Chapter 13 >>
 
 
 9. [[SB_Verse_10.30.27]] Text 27: [The gopīs said:] Here we see the footprints of some gopī who must have been walking along with the son of Nanda Mahārāja. He must have put His arm on Her shoulder, just as an elephant rests His trunk on the shoulder of an accompanying she-elephant >>
-[[SrimatiRadharani]] 
+[[Srimati Rādhārāṇī]] 
 
 
 8. [[SB_Verse_10.30.30]] Text 30: These footprints of that special gopī greatly disturb us. Of all the gopīs, She alone was taken away to a secluded place, where She is enjoying the lips of Kṛṣṇa. Look, we can’t see Her footprints over here! It’s obvious that the grass and sprouts were hurting the tender soles of Her feet, and so the lover lifted up His beloved >>
-[[SrimatiRadharani]]
+[[Srimati Rādhārāṇī]]
 
 
 9. [[SB_Verse_10.30.31]] Text 31: Please observe, my dear gopīs, how in this place lusty Kṛṣṇa’s footprints are pressed more deeply into the ground. Carrying the weight of His beloved must have been difficult for Him. And over here that intelligent boy must have put Her down to gather some flowers. >>
-[[SrimatiRadharani]]
+[[Srimati Rādhārāṇī]]
 
 
 8. [[SB_Verse_10.30.32]] Text 32: Just see how in this place dear Kṛṣṇa collected flowers for His beloved. Here He has left the impression of only the front part of His feet because He was standing on His toes to reach the flowers. >>
-[[SrimatiRadharani]]
+[[Srimati Rādhārāṇī]]
 
 
 9. [[SB_Verse_10.30.33]] Text 33: Certainly Kṛṣṇa sat down here with His girlfriend to arrange Her hair. The lusty boy must have made a crown for that lusty girl out of the flowers He had collected. >>
-[[SrimatiRadharani]]
+[[Srimati Rādhārāṇī]]
 
 
 6. [[SB_Verse_10.30.40]] Text 40: Śukadeva Gosvāmī said: While continuing to search out Kṛṣṇa’s path, the gopīs discovered their unhappy friend close by. She was bewildered by separation from Her lover. >>
@@ -3937,7 +3937,7 @@ Chapter 13 >>
 
 
 129. [[SB_Verse_11.2.30]] Text 30: Therefore, O completely sinless ones, I ask you to kindly tell me what the supreme good is. After all, even half a moment’s association with pure devotees within this world of birth and death is a priceless treasure for any man. >>
-[[satSang]]
+[[Good association]]
 
 
 117. [[SB_Verse_11.2.33]] Text 33: Śrī Kavi said: I consider that one whose intelligence is constantly disturbed by his falsely identifying himself with the temporary material world can achieve real freedom from fear only by worshiping the lotus feet of the infallible Supreme Lord. In such devotional service, all fear ceases entirely. >>
@@ -4004,7 +4004,7 @@ Chapter 13 >>
 137. [[SB_Verse_11.3.48]] Text 48: Having obtained the mercy of his spiritual master, who reveals to the disciple the injunctions of Vedic scriptures, the devotee should worship the Supreme Personality of Godhead in the particular personal form of the Lord the devotee finds most attractive. >>
 
 
-138. Texts 52-53: One should worship the Deity along with each of the limbs of His transcendental body, His weapons such as the Sudarśana cakra, His other bodily features and His personal associates. One should worship each of these transcendental aspects of the Lord by its own mantra and with offerings of water to wash the feet, scented water, water to wash the mouth, water for bathing, fine clothing and ornaments, fragrant oils, valuable necklaces, unbroken barleycorns, flower garlands, incense and lamps.Having thus completed the worship in all its aspects in accordance with the prescribed regulations, one should then honor the Deity of Lord Hari with prayers and offer obeisances to Him by bowing down. >>
+138. Texts 52-53: One should worship the Deity along with each of the limbs of His transcendental body, His weapons such as the Sudarśana cakra, His other bodily features and His personal associates. One should worship each of these transcendental aspects of the Lord by its own mantra and with offerings of water to wash the feet, scented water, water to wash the mouth, water for bathing, fine clothing and ornaments, fragrant oils, valuable necklaces, unbroken barleycorns, flower garlands, incense and lamps.Having thus completed the worship in all its aspects in accordance with the prescribed regulations, one should then honor the Deity of Lord Hari with Prayer and offer obeisances to Him by bowing down. >>
 
 
 139. [[SB_Verse_11.3.54]] Text 54: The worshiper should become fully absorbed in meditating upon himself as an eternal servant of the Lord and should thus perfectly worship the Deity, remembering that the Deity is also situated within his heart. Then he should take the remnants of the Deity’s paraphernalia, such as flower garlands, upon his head and respectfully put the Deity back in His own place, thus concluding the worship. >>
@@ -4094,11 +4094,11 @@ Chapter 13 >>
 167. Texts 29-32: The Supreme Personality of Godhead said: O Uddhava, a saintly person is merciful and never injures others. Even if others are aggressive he is tolerant and forgiving toward all living entities. His strength and meaning in life come from the truth itself, he is free from all envy and jealousy, and his mind is equal in material happiness and distress. Thus, he dedicates his time to work for the welfare of all others.His intelligence is never bewildered by material desires, and he has controlled his senses. His behavior is always pleasing, never harsh and always exemplary, and he is free from possessiveness. He never endeavors in ordinary, worldly activities, and he strictly controls his eating. He therefore always remains peaceful and steady. A saintly person is thoughtful and accepts Me as his only shelter. Such a person is very cautious in the execution of his duties and is never subject to superficial transformations, because he is steady and noble, even in a distressing situation. He has conquered over the six material qualities — namely hunger, thirst, lamentation, illusion, old age and death. He is free from all desire for prestige and offers honor to others. He is expert in reviving the Kṛṣṇa consciousness of others and therefore never cheats anyone. Rather, he is a wellwishing friend to all, being most merciful. Such a saintly person must be considered the most learned of men. He perfectly understands that the ordinary religious duties prescribed by Me in various Vedic scriptures possess favorable qualities that purify the performer, and he knows that neglect of such duties constitutes a discrepancy in one’s life. Having taken complete shelter at My lotus feet, however, a saintly person ultimately renounces such ordinary religious duties and worships Me alone. He is thus considered to be the best among all living entities. >>
 
 
-168. Texts 34-41: My dear Uddhava, one can give up false pride and prestige by engaging in the following devotional activities. One may purify oneself by seeing, touching, worshiping, serving, and offering prayers of glorification and obeisances to My form as the Deity and to My pure devotees. One should also glorify My transcendental qualities and activities, hear with love and faith the narrations of My glories and constantly meditate on Me. One should offer to Me whatever one acquires, and accepting oneself as My eternal servant, one should give oneself completely to Me. One should always discuss My birth and activities and enjoy life by participating in festivals, such as Janmāṣṭamī, which glorify My pastimes. In My temple, one should also participate in festivals and ceremonies by singing, dancing, playing musical instruments and discussing Me with other Vaiṣṇavas. One should observe all the regularly celebrated annual festivals by attending ceremonies, pilgrimages and making offerings. One should also observe religious vows such as Ekādaśī and take initiation by the procedures mentioned in the Vedas, Pañcarātra and other, similar literatures. One should faithfully and lovingly support the installation of My Deity, and individually or in cooperation with others one should work for the construction of Kṛṣṇa conscious temples and cities as well as flower gardens, fruit gardens and special areas to celebrate My pastimes. One should consider oneself to be My humble servant, without duplicity, and thus should help to clean the temple, which is My home. First one should sweep and dust thoroughly, and then one should further cleanse with water and cow dung. Having dried the temple, one should sprinkle scented water and decorate the temple with maṇḍalas. One should thus act just like My servant. A devotee should never advertise his devotional activities; therefore his service will not be the cause of false pride. One should never use lamps that are offered to Me for other purposes simply because there is need of illumination, and similarly, one should never offer to Me anything that has been offered to or used by others. Whatever is most desired by one within this material world, and whatever is most dear to oneself — one should offer that very thing to Me. Such an offering qualifies one for eternal life. >>
+168. Texts 34-41: My dear Uddhava, one can give up false pride and prestige by engaging in the following devotional activities. One may purify oneself by seeing, touching, worshiping, serving, and offering Prayer of glorification and obeisances to My form as the Deity and to My pure devotees. One should also glorify My transcendental qualities and activities, hear with love and faith the narrations of My glories and constantly meditate on Me. One should offer to Me whatever one acquires, and accepting oneself as My eternal servant, one should give oneself completely to Me. One should always discuss My birth and activities and enjoy life by participating in festivals, such as Janmāṣṭamī, which glorify My pastimes. In My temple, one should also participate in festivals and ceremonies by singing, dancing, playing musical instruments and discussing Me with other Vaiṣṇavas. One should observe all the regularly celebrated annual festivals by attending ceremonies, pilgrimages and making offerings. One should also observe religious vows such as Ekādaśī and take initiation by the procedures mentioned in the Vedas, Pañcarātra and other, similar literatures. One should faithfully and lovingly support the installation of My Deity, and individually or in cooperation with others one should work for the construction of Kṛṣṇa conscious temples and cities as well as flower gardens, fruit gardens and special areas to celebrate My pastimes. One should consider oneself to be My humble servant, without duplicity, and thus should help to clean the temple, which is My home. First one should sweep and dust thoroughly, and then one should further cleanse with water and cow dung. Having dried the temple, one should sprinkle scented water and decorate the temple with maṇḍalas. One should thus act just like My servant. A devotee should never advertise his devotional activities; therefore his service will not be the cause of false pride. One should never use lamps that are offered to Me for other purposes simply because there is need of illumination, and similarly, one should never offer to Me anything that has been offered to or used by others. Whatever is most desired by one within this material world, and whatever is most dear to oneself — one should offer that very thing to Me. Such an offering qualifies one for eternal life. >>
 
 
 169. [[SB_Verse_11.11.48]] Text 48: My dear Uddhava, I am personally the ultimate shelter and way of life for saintly liberated persons, and thus if one does not engage in My loving devotional service, which is made possible by associating with My devotees, then for all practical purposes, one possesses no effective means for escaping from material existence. >>
-[[satSang]]
+[[Good association]]
 
 
 160. Chapter 12 >>
@@ -4111,7 +4111,7 @@ Chapter 13 >>
 
 
 163. [[SB_Verse_11.12.24]] Text 24: With steady intelligence you should develop unalloyed devotional service by careful worship of the spiritual master, and with the sharpened ax of transcendental knowledge you should cut off the subtle material covering of the soul. Upon realizing the Supreme Personality of Godhead, you should then give up that ax of analytic knowledge. >>
-[[spiritualmaster]]
+[[GURUDEV]]
 
 
 59. Chapter 13 >>
@@ -4134,23 +4134,23 @@ Chapter 13 >>
 [[aacharyas]]
 
 
-12. [[SB_Verse_11.13.47]] Text 47: The Supreme Personality of Godhead said: O beloved demigods, you have offered your prayers to Me with great knowledge, and I am certainly most pleased with you. A person is liberated by such knowledge, and thus he remembers My exalted position, which is above the conditions of material life. Such a devotee is fully purified by offering prayers in full knowledge. This is the source of devotional service to Me. >>
-[[prayers]] [[purity]] [[devotionalservice]]
+65. [[SB_Verse_11.13.47]] Text 47: The Supreme Personality of Godhead said: O beloved demigods, you have offered your Prayer to Me with great knowledge, and I am certainly most pleased with you. A person is liberated by such knowledge, and thus he remembers My exalted position, which is above the conditions of material life. Such a devotee is fully purified by offering Prayer in full knowledge. This is the source of devotional service to Me. >>
+[[Prayer]] [[purity]] [[devotionalservice]]
 
 
-13. [[SB_Verse_11.13.48]] Text 48: O best of the intelligent demigods, although it is true that nothing is difficult for one to obtain when I am pleased with him, a pure devotee, whose mind is exclusively fixed upon Me, does not ask Me for anything but the opportunity to engage in devotional service. >>
+66. [[SB_Verse_11.13.48]] Text 48: O best of the intelligent demigods, although it is true that nothing is difficult for one to obtain when I am pleased with him, a pure devotee, whose mind is exclusively fixed upon Me, does not ask Me for anything but the opportunity to engage in devotional service. >>
 [[devotionalservice]] [[devoteequalities]]
 
 
 10. [[SB_Verse_11.13.50]] Text 50: A pure devotee who is fully accomplished in the science of devotional service will never instruct a foolish person to engage in fruitive activities for material enjoyment, not to speak of helping him in such activities. Such a devotee is like an experienced physician, who never encourages a patient to eat food injurious to his health, even if the patient desires it. >>
-[[devotionalservice]] [[puredevotee]]
+[[devotionalservice]] [[Pure Devotee]]
 [[familylife]]
 
+[[11.]]
+10. [[SB_Verse_11.13.52]] Text 52: That saintly Dadhyañca, who is also known as Dadhīci, personally assimilated the spiritual science and then delivered it to the Aśvinī-kumāras. It is said that Dadhyañca gave them mantras through the head of a horse. Therefore the mantras are called Aśvaśira.After obtaining the mantras of spiritual science from Dadhīci, the Aśvinī-kumāras became jīvan-mukta, liberated even in this life >>
 
-11. [[SB_Verse_11.13.52]] Text 52: That saintly Dadhyañca, who is also known as Dadhīci, personally assimilated the spiritual science and then delivered it to the Aśvinī-kumāras. It is said that Dadhyañca gave them mantras through the head of a horse. Therefore the mantras are called Aśvaśira.After obtaining the mantras of spiritual science from Dadhīci, the Aśvinī-kumāras became jīvan-mukta, liberated even in this life >>
 
-
-12. [[SB_Verse_11.13.55]] Text 55: When Vṛtrāsura is killed because of My spiritual strength, you will regain your strength, weapons and wealth. Thus there will be all good fortune for all of you. Although Vṛtrāsura can destroy all the three worlds, do not fear that he will harm you.He is also a devotee and will never be envious of you >>
+11. [[SB_Verse_11.13.55]] Text 55: When Vṛtrāsura is killed because of My spiritual strength, you will regain your strength, weapons and wealth. Thus there will be all good fortune for all of you. Although Vṛtrāsura can destroy all the three worlds, do not fear that he will harm you.He is also a devotee and will never be envious of you >>
 [[devoteequalities]]
 
 

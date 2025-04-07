@@ -23,6 +23,7 @@ gopyaḥ — the gopīs; kim — what; acaran — performed; yat — from which;
 
 Translation
 [The women of Mathurā said:] “What austerities must the gopīs have performed? With their eyes they always drink the nectar of the form of Lord Kṛṣṇa, which is the essence of loveliness and is not to be equaled or surpassed. That loveliness is the only abode of beauty, fame and opulence. It is self-perfect, ever fresh and extremely rare.”
+[[SB_Verse_10.44.14]]
 
 **Purport:**
 

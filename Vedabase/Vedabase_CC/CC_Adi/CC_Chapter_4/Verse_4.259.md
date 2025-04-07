@@ -23,7 +23,7 @@ nirdhūta — defeats; amṛta — of nectar; mādhurī — the sweetness; parim
 
 Translation
 “ ‘My dear auspicious Rādhārāṇī, Your body is the source of all beauty. Your red lips are softer than the sense of immortal sweetness, Your face bears the aroma of a lotus flower, Your sweet words defeat the vibrations of the cuckoo, and Your limbs are cooler than the pulp of sandalwood. All My transcendental senses are overwhelmed in ecstatic pleasure by tasting You, who are completely decorated by beautiful qualities.’
-
+[[Srimati Rādhārāṇī]]
 **Purport:**
 
 Purport

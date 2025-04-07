@@ -19,4 +19,4 @@ Synonyms
 
 Translation
 Advaita Ācārya Gosvāmī is an incarnation of the Lord as a devotee. His loud calling was the cause for Kṛṣṇa’s incarnation.
-
+[[Advaita Ācārya]]

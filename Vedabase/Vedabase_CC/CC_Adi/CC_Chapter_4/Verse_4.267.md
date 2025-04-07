@@ -19,4 +19,4 @@ rādhikāra — of Śrīmatī Rādhārāṇī; bhāva-kānti — luster of ecsta
 
 Translation
 “Unless I accept the luster of the ecstatic love of Śrī Rādhikā, these three desires cannot be fulfilled.
-
+[[Srimati Rādhārāṇī]] [[Very_Important_Verse]]

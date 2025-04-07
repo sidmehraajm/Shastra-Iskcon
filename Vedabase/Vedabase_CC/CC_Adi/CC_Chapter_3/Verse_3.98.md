@@ -18,7 +18,7 @@ loka-gati — the course of the world; ācārya — Advaita Ācārya; karuṇa-h
 **Translation:**
 
 Translation
-Seeing the activities of the world, the Ācārya felt compassion and began to ponder how He could act for the people’s benefit.
+Seeing the activities of the world, the Ācārya felt [[compassion]] and began to ponder how He could act for the people’s benefit.
 
 **Purport:**
 

@@ -19,4 +19,5 @@ rādhā — Śrīmatī Rādhārāṇī; pūrṇa-śakti — the complete energy;
 
 Translation
 Śrī Rādhā is the full power, and Lord Kṛṣṇa is the possessor of full power. The two are not different, as evidenced by the revealed scriptures.
-
+[[Very_Important_Verse]]
+[[Srimati Rādhārāṇī]] [[Lord Kṛṣṇa]]

@@ -19,7 +19,8 @@ gopī-gaṇera — of the gopīs; rūḍha-bhāva — rūḍha-bhāva; viśuddha
 
 Translation
 The love of the gopīs is called rūḍha-bhāva. It is pure and spotless. It is not at any time lust.
-
+[[Gopis]]
+[[conjugal love]]
 **Purport:**
 
 Purport

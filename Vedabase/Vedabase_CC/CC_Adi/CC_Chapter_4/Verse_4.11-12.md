@@ -21,4 +21,4 @@ nārāyaṇa — Lord Nārāyaṇa; catuḥ-vyūha — the four expansions; mats
 
 Translation
 Lord Nārāyaṇa, the four primary expansions [Vāsudeva, Saṅkarṣaṇa, Pradyumna and Aniruddha], Matsya and the other līlā incarnations, the yuga-avatāras, the manv-antara incarnations and as many other incarnations as there are — all descend in the body of Lord Kṛṣṇa. In this way the complete Supreme Godhead, Lord Kṛṣṇa Himself, appears.
-
+[[Avatars]]

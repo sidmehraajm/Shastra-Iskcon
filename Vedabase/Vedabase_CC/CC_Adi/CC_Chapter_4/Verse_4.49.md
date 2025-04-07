@@ -19,4 +19,4 @@ prauḍha — matured; nirmala-bhāva — pure condition; prema — love; sarva-
 
 Translation
 Her pure, mature love surpasses that of all others. Her love is the cause of Lord Kṛṣṇa’s tasting the sweetness of the conjugal relationship.
-
+[[Srimati Rādhārāṇī]]

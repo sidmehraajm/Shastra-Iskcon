@@ -19,7 +19,7 @@ Synonyms
 
 Translation
 “Neither the gopīs nor I shall notice this, for our minds will always be entranced by one another’s beauty and qualities.
-
+[[Gopis]]
 **Purport:**
 
 Purport

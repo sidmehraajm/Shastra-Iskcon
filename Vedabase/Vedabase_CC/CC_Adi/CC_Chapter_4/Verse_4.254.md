@@ -19,4 +19,4 @@ tāmbūla — betel nut; carvita — chewed; yabe — when; kare — does; āsv�
 
 Translation
 “When She tastes the betel chewed by Me, She merges in an ocean of joy and forgets everything else.
-
+[[Srimati Rādhārāṇī]]

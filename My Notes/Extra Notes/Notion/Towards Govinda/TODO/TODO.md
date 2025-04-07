@@ -5,7 +5,7 @@ tags:
 Last edited time: 2023-11-09T08:36
 Global Tags:
   - "[[Others]]"
-  - "[[Krishna-Life/My Notes/Extra Notes/Notion/Towards Govinda/Extras/Global Tags/TODO\\|TODO]]"
+  - "[[Krishna-Life/TAGS/TODO\\|TODO]]"
 ---
 - [ ] Goswamis
 - [x] sad goswami ashtakam

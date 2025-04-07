@@ -21,7 +21,7 @@ mayi — to Me; bhaktiḥ — devotional service; hi — certainly; bhūtānām 
 
 Translation
 “ ‘Devotional service rendered to Me by the living beings revives their eternal life. O My dear damsels of Vraja, your affection for Me is your good fortune, for it is the only means by which you have obtained My favor.’
-
+[[Gopis]]
 **Purport:**
 
 Purport

@@ -19,4 +19,5 @@ ataeva — therefore; sarva-pūjyā — worshipable by all; parama — supreme; 
 
 Translation
 Therefore Rādhā is parama-devatā, the supreme goddess, and She is worshipable for everyone. She is the protectress of all, and She is the mother of the entire universe.
-
+[[Srimati Rādhārāṇī]]
+[[Very_Important_Verse]]

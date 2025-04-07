@@ -21,7 +21,7 @@ anugrahāya — for showing favor; bhaktānām — to the devotees; mānuṣam �
 
 Translation
 “Kṛṣṇa manifests His eternal humanlike form and performs His pastimes to show mercy to the devotees. Having heard such pastimes, one should engage in service to Him.”
-
+[[devotionalservice]]
 **Purport:**
 
 Purport

@@ -24,6 +24,8 @@ aṭati — goes; yat — when; bhavān — Your Lordship; ahni — in the day; 
 Translation
 [The gopīs said:] “O Kṛṣṇa, when You go to the forest during the day and we do not see Your sweet face, which is surrounded by beautiful curling hair, half a second becomes as long as an entire age for us. And we consider the creator, who has put eyelids on the eyes we use for seeing You, to be simply a fool.”
 
+[[SB_Verse_10.31.15]]
+
 **Purport:**
 
 Purport

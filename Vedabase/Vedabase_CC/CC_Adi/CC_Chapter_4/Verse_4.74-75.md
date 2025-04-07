@@ -21,4 +21,4 @@ kṛṣṇa-kāntā-gaṇa — the lovers of Lord Kṛṣṇa; dekhi — I see; 
 
 Translation
 The beloved consorts of Lord Kṛṣṇa are of three kinds: the goddesses of fortune, the queens, and the milkmaids of Vraja, who are the foremost of all. These consorts all proceed from Rādhikā.
-
+[[Lord Kṛṣṇa]]

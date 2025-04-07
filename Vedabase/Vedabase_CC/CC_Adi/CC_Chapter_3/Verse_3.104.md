@@ -21,7 +21,7 @@ tulasī — of tulasī; mātreṇa — by only; jalasya — of water; culukena �
 
 Translation
 “Śrī Kṛṣṇa, who is very affectionate toward His devotees, sells Himself to a devotee who offers Him merely a tulasī leaf and a palmful of water.”
-
+[[Very_Important_Verse]] [[Tulasī]]
 **Purport:**
 
 Purport

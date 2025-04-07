@@ -21,4 +21,5 @@ prema-bhakti — devotional service in love of Godhead; śikhāite — to teach;
 
 Translation
 To promulgate prema-bhakti [devotional service in love of Godhead], Kṛṣṇa appeared as Śrī Kṛṣṇa Caitanya with the mood and complexion of Śrī Rādhā. Thus I have explained the meaning of the fifth verse.
-
+[[Very_Important_Verse]]
+[[Lord Caitanya Mahāprabhu]]

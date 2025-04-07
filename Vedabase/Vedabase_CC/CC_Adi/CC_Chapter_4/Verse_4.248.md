@@ -19,4 +19,4 @@ ei mata — in this way; jagatera — of the whole world; sukhe — in the matte
 
 Translation
 “Thus although I am the source of happiness for the entire world, the beauty and attributes of Śrī Rādhikā are My life and soul.
-
+[[Srimati Rādhārāṇī]]
