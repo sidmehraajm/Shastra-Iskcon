@@ -159,7 +159,7 @@ service
 
 
 1. [[SB_Verse_1.6.23]] Text 23: By service of the Absolute Truth, even for a few days, a devotee attains firm and fixed intelligence in Me. Consequently he goes on to become My associate in the transcendental world after giving up the present deplorable material worlds. >>
-[[service]]
+[[devotionalservice]]
 
 
 2. [[SB_Verse_1.6.24]] Text 24: Intelligence engaged in My devotion cannot be thwarted at any time. Even at the time of creation, as well as at the time of annihilation, your remembrance will continue by My mercy. >>

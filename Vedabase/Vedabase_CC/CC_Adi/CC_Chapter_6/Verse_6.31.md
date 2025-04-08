@@ -19,4 +19,4 @@ kamala-nayanera — of the lotus-eyed; teṅho — He; yāte — since; aṅga �
 
 Translation
 Since He is a limb or part of the lotus-eyed Supreme Lord, He also bears the name Kamalākṣa.
-
+[[Advaita Ācārya]]

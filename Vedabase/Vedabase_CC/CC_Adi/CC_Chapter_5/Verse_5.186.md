@@ -20,3 +20,4 @@ suvarṇa-kuṇḍala — gold earrings; karṇe — on the ears; svarṇa-aṅg
 Translation
 He wore golden earrings on His ears, and golden armlets and bangles. He wore tinkling anklets on His feet and a garland of flowers around His neck.
 
+[[Bodily Features of Lord]] [[Lord Nityānanda]]

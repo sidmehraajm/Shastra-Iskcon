@@ -19,4 +19,5 @@ vṛndāvana-purandara — the chief Deity of Vṛndāvana; śrī-madana-gopāla
 
 Translation
 Lord Madana Gopāla, the chief Deity of Vṛndāvana, is the enjoyer of the rāsa dance and is directly the son of the King of Vraja.
-
+[[Radha Madan Mohan]]
+[[Important Verse]]

@@ -19,4 +19,4 @@ dāsya-bhāve — in the conception of being a servant; ānandita — very pleas
 
 Translation
 All the associates of Lord Kṛṣṇa, such as Brahmā, Śiva, Nārada, Śuka and Sanātana Kumāra, are very pleased in the sentiment of servitude.
-
+[[devotionalservice]]

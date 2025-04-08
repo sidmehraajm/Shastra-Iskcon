@@ -19,7 +19,7 @@ kṛṣṇa-premera — of love of Kṛṣṇa; ei — this; eka — one; apūrv
 
 Translation
 Love for Kṛṣṇa has this one unique effect: it imbues superiors, equals and inferiors with the spirit of service to Lord Kṛṣṇa.
-
+[[loveforkrishna]]  [[devotionalservice]]
 **Purport:**
 
 Purport

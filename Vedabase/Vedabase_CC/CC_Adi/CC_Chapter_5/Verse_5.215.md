@@ -19,4 +19,5 @@ sva-mādhurye — in His own sweetness; lokera — of all people; mana — the m
 
 Translation
 With Rādhā and Lalitā serving Him on His two sides, He attracts the hearts of all by His own sweetness.
-
+[[Srimati Rādhārāṇī]]
+[[Sri Lalitā Sakhi]]

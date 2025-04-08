@@ -20,3 +20,5 @@ suvalita — well-formed; hasta — hands; pada — legs; kamala-nayāna — eye
 Translation
 He had beautifully formed hands, arms and legs, and eyes like lotus flowers. He wore a silk cloth, with a silk turban on His head.
 
+
+[[Bodily Features of Lord]] [[Lord Nityānanda]]

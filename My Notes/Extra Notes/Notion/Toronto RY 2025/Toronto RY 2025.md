@@ -236,22 +236,22 @@ Events on the island - From posts and older videos - 3 Reels
 
 #### Tasks Tracker
 
-|Task name|Status|Assignee|Due date|Priority|Description|![](https://www.notion.so/icons/kind_gray.svg)Task type|Updated at|
-|---|---|---|---|---|---|---|---|
-|[[Posters - Finalise 30th March]]|In progress|Siddarth Mehra|03/30/2025|High|||March 23, 2025 10:29 PM|
-|[[Posts - R (30March - 10-15)]]|Not started|Riva Pandya|03/30/2025|Low|||March 23, 2025 10:28 PM|
-|[[Reels - N - Idea list ready by 23 March]]|Done|nikhil gautam|03/23/2025|Medium|||March 23, 2025 10:29 PM|
-|[[News outlets]]|Not started|Riva Pandya|05/18/2025|Medium|This we will send by june start or may end but need the list by may mid||March 23, 2025 10:29 PM|
-|[[Whatsapp Distribution List]]|In progress|Siddarth Mehra|03/23/2025|Hold|I have gotten the list From Suraj Pr, as soon as we discuss this with Preya Mtj and get greenlight we can start this||March 23, 2025 10:33 PM|
-|[[Creation of whatsapp community]]|Not started|Riva Pandya|03/30/2025|Hold|To be discussed with preya mtj and as soon as we have green light we will work on it||March 23, 2025 10:33 PM|
-|[[5 Emails]]|Not started|Siddarth Mehra|04/13/2025|Medium|||March 23, 2025 10:33 PM|
-|[[Suggestion Qr codes]]|Not started|Siddarth Mehra|05/15/2025|High|||March 23, 2025 10:33 PM|
-|[[Facebook community]]|Not started|Siddarth Mehra|04/05/2025|Medium|||March 23, 2025 10:34 PM|
-|[[Poster designs first pass]]|Done|Siddarth Mehra|03/23/2025|High|||March 23, 2025 10:34 PM|
-|[[Give acccess to youtube, Instagram,]]|Not started|Siddarth Mehra|04/05/2025|High|||March 23, 2025 10:34 PM|
-|[[make Tiktok account - Chariot Fes - N]]|Not started|nikhil gautam|04/05/2025|High|||March 23, 2025 10:34 PM|
-|[[Create new facebook ac - Chariot Fest]]|Not started|Siddarth Mehra|04/06/2025|Hold|||March 23, 2025 10:35 PM|
-|[[First Reel Releasing the Dates]]|Not started|nikhil gautam|04/05/2025|High|- april 5, and other reels for that week - N||March 23, 2025 10:36 PM|
+| Task name                                   | Status      | Assignee       | Due date   | Priority | Description                                                                                                          | ![](https://www.notion.so/icons/kind_gray.svg)Task type | Updated at              |
+| ------------------------------------------- | ----------- | -------------- | ---------- | -------- | -------------------------------------------------------------------------------------------------------------------- | ------------------------------------------------------- | ----------------------- |
+| [[Posters - Finalise 30th March]]           | In progress | Siddarth Mehra | 03/30/2025 | High     |                                                                                                                      |                                                         | March 23, 2025 10:29 PM |
+| [[Posts - R (30March - 10-15)]]             | Not started | Riva Pandya    | 03/30/2025 | Low      |                                                                                                                      |                                                         | March 23, 2025 10:28 PM |
+| [[Reels - N - Idea list ready by 23 March]] | Done        | nikhil gautam  | 03/23/2025 | Medium   |                                                                                                                      |                                                         | March 23, 2025 10:29 PM |
+| [[News outlets]]                            | Not started | Riva Pandya    | 05/18/2025 | Medium   | This we will send by june start or may end but need the list by may mid                                              |                                                         | March 23, 2025 10:29 PM |
+| [[Whatsapp Distribution List]]              | In progress | Siddarth Mehra | 03/23/2025 | Hold     | I have gotten the list From Suraj Pr, as soon as we discuss this with Preya Mtj and get greenlight we can start this |                                                         | March 23, 2025 10:33 PM |
+| [[Creation of whatsapp community]]          | Not started | Riva Pandya    | 03/30/2025 | Hold     | To be discussed with preya mtj and as soon as we have green light we will work on it                                 |                                                         | March 23, 2025 10:33 PM |
+| [[5 Emails]]                                | Not started | Siddarth Mehra | 04/13/2025 | Medium   |                                                                                                                      |                                                         | March 23, 2025 10:33 PM |
+| [[Suggestion Qr codes]]                     | Not started | Siddarth Mehra | 05/15/2025 | High     |                                                                                                                      |                                                         | March 23, 2025 10:33 PM |
+| [[Facebook community]]                      | Not started | Siddarth Mehra | 04/05/2025 | Medium   |                                                                                                                      |                                                         | March 23, 2025 10:34 PM |
+| [[Poster designs first pass]]               | Done        | Siddarth Mehra | 03/23/2025 | High     |                                                                                                                      |                                                         | March 23, 2025 10:34 PM |
+| [[Give acccess to youtube, Instagram,]]     | Not started | Siddarth Mehra | 04/05/2025 | High     |                                                                                                                      |                                                         | March 23, 2025 10:34 PM |
+| [[make Tiktok account - Chariot Fes - N]]   | Not started | nikhil gautam  | 04/05/2025 | High     |                                                                                                                      |                                                         | March 23, 2025 10:34 PM |
+| [[Create new facebook ac - Chariot Fest]]   | Not started | Siddarth Mehra | 04/06/2025 | Hold     |                                                                                                                      |                                                         | March 23, 2025 10:35 PM |
+| [[First Reel Releasing the Dates]]          | Not started | nikhil gautam  | 04/05/2025 | High     | - april 5, and other reels for that week - N                                                                         |                                                         | March 23, 2025 10:36 PM |
 
   
   

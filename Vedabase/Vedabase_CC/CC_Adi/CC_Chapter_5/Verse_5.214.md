@@ -21,7 +21,7 @@ tāsām — among them; āvirabhūt — appeared; śauriḥ — Lord Kṛṣṇa
 
 Translation
 “Wearing yellow garments and decorated with a flower garland, Lord Kṛṣṇa, appearing among the gopīs with His smiling lotus face, looked directly like the charmer of the heart of Cupid.”
-
+[[SB_Verse_10.32.2]]
 **Purport:**
 
 Purport

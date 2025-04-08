@@ -19,4 +19,4 @@ jaya jaya — all glories; nityānanda — to Lord Nityānanda; nityānanda-rām
 
 Translation
 All glory, all glory to Lord Nityānanda Balarāma, by whose mercy I have attained shelter in the transcendental abode of Vṛndāvana!
-
+[[Lord Nityānanda]]

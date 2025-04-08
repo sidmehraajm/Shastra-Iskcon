@@ -19,7 +19,8 @@ jaya jaya — all glories to; nityānanda — of Lord Nityānanda; caraṇa-arav
 
 Translation
 All glory, all glory to the lotus feet of Lord Nityānanda, by whose mercy I have attained Śrī Rādhā-Govinda!
-
+[[Lord Nityānanda]]
+[[Srila Krishnadasa Kaviraja Goswami]]
 **Purport:**
 
 Purport

@@ -19,4 +19,4 @@ parama-preyasī — the most beloved; lakṣmī — the goddess of fortune; hṛ
 
 Translation
 The most beloved goddess of fortune resides on the chest of Śrī Kṛṣṇa, yet she too, earnestly praying, begs for the joy of service at His feet.
-
+[[Very_Important_Verse]] [[Advaita Ācārya]] [[devotionalservice]]

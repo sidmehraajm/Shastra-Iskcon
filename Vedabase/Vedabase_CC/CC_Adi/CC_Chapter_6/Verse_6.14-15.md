@@ -21,7 +21,7 @@ māyā — the external energy; yaiche — as; dui aṁśa — two parts; nimitt
 
 Translation
 Just as the external energy consists of two parts — the efficient cause [nimitta] and the material cause [upādāna], māyā being the efficient cause and pradhāna the material cause — so Lord Viṣṇu, the Supreme Personality of Godhead, assumes two forms to create the material world with the efficient and material causes.
-
+[[Important Verse]]
 **Purport:**
 
 Purport

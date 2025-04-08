@@ -19,4 +19,4 @@ yāṅra — whose; prāṇa-dhana — life and soul; nityānanda-śrī-caitanya
 
 Translation
 Lord Caitanya and Lord Nityānanda are the life and soul of those Vaiṣṇavas, who do not know anything but devotional service to Śrī Śrī Rādhā-Kṛṣṇa.
-
+[[Lord Caitanya Mahāprabhu]] [[Lord Nityānanda]] [[Important Verse]]

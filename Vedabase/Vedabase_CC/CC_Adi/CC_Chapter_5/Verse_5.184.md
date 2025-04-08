@@ -20,3 +20,4 @@ Synonyms
 Translation
 He had a glossy blackish complexion, and His tall, strong, heroic stature made Him seem like Cupid himself.
 
+[[Bodily Features of Lord]] [[Lord Nityānanda]]

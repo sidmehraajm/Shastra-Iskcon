@@ -20,3 +20,4 @@ candana — with sandalwood pulp; lepita — smeared; aṅga — body; tilaka su
 Translation
 His body was anointed with sandalwood pulp, and He was nicely decorated with tilaka. His movements surpassed those of a maddened elephant.
 
+[[Bodily Features of Lord]] [[Lord Nityānanda]]

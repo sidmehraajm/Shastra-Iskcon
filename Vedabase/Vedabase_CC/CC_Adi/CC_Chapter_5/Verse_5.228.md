@@ -19,4 +19,4 @@ vṛndāvane — in Vṛndāvana; vaise — there are; yata — all; vaiṣṇav
 
 Translation
 All the groups of Vaiṣṇavas who live in Vṛndāvana are absorbed in chanting the all-auspicious name of Kṛṣṇa.
-
+[[Vrajadhāma]]

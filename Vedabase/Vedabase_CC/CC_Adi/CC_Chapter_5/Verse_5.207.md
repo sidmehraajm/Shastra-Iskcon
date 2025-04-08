@@ -19,4 +19,4 @@ emana — such; nirghṛṇa — abominable; more — unto me; kebā — who; k�
 
 Translation
 Who in this world but Nityānanda could show His mercy to such an abominable person as me?
-
+[[Very_Important_Verse]] [[Srila Krishnadasa Kaviraja Goswami]]

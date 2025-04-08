@@ -19,4 +19,4 @@ caitanya-gosāñi — Lord Śrī Caitanya Mahāprabhu; more — unto Me; kare �
 
 Translation
 Śrī Advaita Ācārya thinks, “Lord Caitanya considers Me His spiritual master, yet I feel Myself to be only His servant.”
-
+[[devotionalservice]] [[servant]]

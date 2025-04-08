@@ -1,3 +1,4 @@
+The truth of Advaita Ācārya has been described in two verses. It is said that material nature has two features, namely the material cause and the efficient cause. The efficient causal activities are caused by Mahā-Viṣṇu, and the material causal activities are caused by another form of Mahā-Viṣṇu, known as Advaita. That Advaita, the superintendent of the cosmic manifestation, has descended in the form of Advaita Ācārya to associate with Lord Caitanya. When He is addressed as the servitor of Lord Caitanya, His glories are magnified because unless one is invigorated by this mentality of servitorship one cannot understand the mellows derived from devotional service to the Supreme Lord, Kṛṣṇa.
 # CC Ādi 6.1
 
 **Bengali:**

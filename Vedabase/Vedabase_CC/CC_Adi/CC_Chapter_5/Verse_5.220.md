@@ -19,4 +19,4 @@ vāma-pārśve — on the left side; śrī-rādhikā — Śrīmatī Rādhārā�
 
 Translation
 By His left side is Śrīmatī Rādhārāṇī and Her personal friends. With them Lord Govinda enjoys the rāsa-līlā and many other pastimes.
-
+[[Srimati Rādhārāṇī]] 

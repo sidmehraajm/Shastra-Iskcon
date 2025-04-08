@@ -19,4 +19,4 @@ sei — that; nārāyaṇera — of Lord Nārāyaṇa; mukhya aṅga — the pri
 
 Translation
 Śrī Advaita is the principal limb [aṅga] of Nārāyaṇa. Śrīmad-Bhāgavatam speaks of “limb” [aṅga] as “a plenary portion” [aṁśa] of the Lord.
-
+[[Advaita Ācārya]]

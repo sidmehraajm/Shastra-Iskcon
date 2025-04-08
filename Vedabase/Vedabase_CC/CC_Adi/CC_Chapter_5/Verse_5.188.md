@@ -20,3 +20,4 @@ koṭi-candra — millions upon millions of moons; jini’ — surpassing; mukha
 Translation
 His face was more beautiful than millions upon millions of moons, and His teeth were like pomegranate seeds because of His chewing betel.
 
+[[Bodily Features of Lord]] [[Lord Nityānanda]]

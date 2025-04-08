@@ -20,3 +20,4 @@ rāṅgā-yaṣṭi — a red stick; haste — in the hand; dole — moves; yena
 Translation
 His red stick moving in His hand, He seemed like a maddened lion. All around the four sides of His feet were bumblebees.
 
+[[Bodily Features of Lord]] [[Lord Nityānanda]]

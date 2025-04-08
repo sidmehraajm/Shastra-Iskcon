@@ -23,7 +23,7 @@ nārāyaṇaḥ — Lord Nārāyaṇa; tvam — You; na — not; hi — certainl
 
 Translation
 “O Lord of lords, You are the seer of all creation. You are indeed everyone’s dearest life. Are You not, therefore, my father, Nārāyaṇa? ‘Nārāyaṇa’ refers to one whose abode is in the water born from Nara [Garbhodakaśāyī Viṣṇu], and that Nārāyaṇa is Your plenary portion. All Your plenary portions are transcendental. They are absolute and are not creations of māyā.”
-
+[[SB_Verse_10.14.14]]
 **Purport:**
 
 Purport
