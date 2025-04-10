@@ -19,6 +19,7 @@ pātra — recipient; apātra — not a recipient; vicāra — consideration; n�
 
 Translation
 In distributing love of Godhead, Caitanya Mahāprabhu and His associates did not consider who was a fit candidate and who was not, nor where such distribution should or should not take place. They made no conditions. Wherever they got the opportunity, the members of the Pañca-tattva distributed love of Godhead.
+[[Very_Important_Verse]] [[love of Godhead]]
 
 **Purport:**
 

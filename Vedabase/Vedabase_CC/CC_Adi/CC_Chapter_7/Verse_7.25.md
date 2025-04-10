@@ -19,6 +19,7 @@ uchalila — became agitated; prema-vanyā — the inundation of love of Godhead
 
 Translation
 The flood of love of Godhead swelled in all directions, and thus young men, old men, women and children were all immersed in that inundation.
+[[love of Godhead]]
 
 **Purport:**
 

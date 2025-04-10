@@ -20,6 +20,8 @@ kāśīte — in Vārāṇasī; lekhaka — writer; śūdra — born of a śūdr
 Translation
 This time Lord Caitanya stayed at the house of Candraśekhara, although he was regarded as a śūdra or kāyastha, for the Lord, as the Supreme Personality of Godhead, is completely independent.
 
+[[Candraśekhara]]
+
 **Purport:**
 
 Purport

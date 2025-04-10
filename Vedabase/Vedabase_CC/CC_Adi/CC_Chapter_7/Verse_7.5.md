@@ -19,7 +19,7 @@ pañca-tattva — the five subjects; eka-vastu — they are one in five; nāhi �
 
 Translation
 Spiritually there are no differences between these five tattvas, for on the transcendental platform everything is absolute. Yet there are also varieties in the spiritual world, and in order to taste these spiritual varieties one should distinguish between them.
-
+[[pañca-tattva]]
 **Purport:**
 
 Purport

@@ -19,7 +19,7 @@ Synonyms
 
 Translation
 This conclusion of the revealed scriptures is also the realization of experienced devotees. Fools and rascals, however, cannot understand the opulences of devotional emotions.
-
+[[devotional emotions]] [[devotee]]
 **Purport:**
 
 Purport

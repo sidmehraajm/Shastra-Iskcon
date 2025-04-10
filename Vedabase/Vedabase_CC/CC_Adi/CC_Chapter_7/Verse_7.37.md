@@ -19,7 +19,7 @@ aparādha — offense; kṣamāila — excused; ḍubila — merged into; prema-
 
 Translation
 Lord Caitanya excused them all, and they merged into the ocean of devotional service, for no one can escape the unique loving network of Śrī Caitanya Mahāprabhu.
-
+[[Lord Caitanya Mahāprabhu]]
 **Purport:**
 
 Purport

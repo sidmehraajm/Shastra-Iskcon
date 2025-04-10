@@ -19,7 +19,7 @@ bhakta-avatāra — incarnation as a devotee; tāṅra — His; ācārya-gosāñ
 
 Translation
 Śrī Advaita Ācārya is Lord Caitanya’s incarnation as a devotee. Therefore these three tattvas [Caitanya Mahāprabhu, Nityānanda Prabhu and Advaita Gosāñi] are the predominators, or masters.
-
+[[Important Verse]]
 **Purport:**
 
 Purport

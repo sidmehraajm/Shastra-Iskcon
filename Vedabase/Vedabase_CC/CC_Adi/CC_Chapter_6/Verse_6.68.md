@@ -23,7 +23,7 @@ api — certainly; bata — regrettable; madhu-puryām — in the city of Mathur
 
 Translation
 “O Uddhava! It is indeed regrettable that Kṛṣṇa resides in Mathurā. Does He remember His father’s household affairs and His friends, the cowherd boys? O great soul! Does He ever talk about us, His maidservants? When will He lay on our heads His aguru-scented hand?”
-
+[[SB_Verse_10.47.21]]
 **Purport:**
 
 Purport

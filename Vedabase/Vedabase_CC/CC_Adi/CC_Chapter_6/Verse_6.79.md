@@ -19,7 +19,7 @@ ananta — unlimited; brahmāṇḍe — in the universes; rudra — Lord Śiva;
 
 Translation
 Rudra, who is an expansion of Sadāśiva and who appears in unlimited universes, is also a guṇāvatāra [qualitative incarnation] and is the ornament of all the demigods in the endless universes.
-
+[[Lord Sadāśiva]]
 **Purport:**
 
 Purport

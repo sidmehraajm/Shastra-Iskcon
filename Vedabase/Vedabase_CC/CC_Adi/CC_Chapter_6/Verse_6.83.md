@@ -20,3 +20,4 @@ eka kṛṣṇa — one Lord Kṛṣṇa; sarva-sevya — worthy of being served
 Translation
 Lord Kṛṣṇa, the one master and the Lord of the universe, is worthy of being served by everyone. Indeed, everyone is but a servant of His servants.
 
+[[Important Verse]]

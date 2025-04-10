@@ -19,4 +19,4 @@ kṛṣṇa-preme — in ecstatic love of Kṛṣṇa; unmatta — almost mad; v
 
 Translation
 Intoxicated by ecstatic love for Lord Kṛṣṇa, he becomes overwhelmed and incessantly dances without clothing and sings about Lord Kṛṣṇa’s qualities and pastimes.
-
+[[Lord Sadāśiva]]

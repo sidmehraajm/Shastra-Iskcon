@@ -18,5 +18,5 @@ dui śloke — in two verses; kahila — described; advaita — Advaita; tattva-
 **Translation:**
 
 Translation
-Thus in two verses I have described the truth concerning Advaita Ācārya. Now, O devotees, please hear about the five truths [pañca-tattva].
+Thus in two verses I have described the truth concerning Advaita Ācārya. Now, O devotees, please hear about the five truths [[pañca-tattva]].
 

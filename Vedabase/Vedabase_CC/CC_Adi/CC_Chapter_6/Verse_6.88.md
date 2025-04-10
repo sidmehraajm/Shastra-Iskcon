@@ -20,3 +20,4 @@ bhakta-abhimāna — to think oneself a devotee; mūla — original; śrī-balar
 Translation
 The source of the sentiment of servitude is indeed Lord Balarāma. The plenary expansions who follow Him are all influenced by that ecstasy.
 
+[[Lord Balarāmā]] [[devotionalservice]]

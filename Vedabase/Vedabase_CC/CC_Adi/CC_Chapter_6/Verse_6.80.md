@@ -19,4 +19,4 @@ teṅho — he; karena — does; kṛṣṇera — of Lord Kṛṣṇa; dāsya-p
 
 Translation
 He also desires only to be a servant of Lord Kṛṣṇa. Śrī Sadāśiva always says, “I am a servant of Lord Kṛṣṇa.”
-
+[[Lord Sadāśiva]]

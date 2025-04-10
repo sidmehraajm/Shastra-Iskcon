@@ -20,6 +20,8 @@ punaḥ punaḥ — again and again; piyāiyā — causing to drink; haya — be
 Translation
 Śrī Pañca-tattva themselves danced again and again and thus made it easier to drink nectarean love of Godhead. They danced, cried, laughed and chanted like madmen, and in this way they distributed love of Godhead.
 
+[[dance]]
+
 **Purport:**
 
 Purport

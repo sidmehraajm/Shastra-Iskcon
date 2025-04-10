@@ -21,7 +21,7 @@ pāda-saṁvāhanam — massaging the feet; cakruḥ — performed; kecit — so
 
 Translation
 “Some of the friends of Śrī Kṛṣṇa, the Supreme Personality of Godhead, massaged His feet, and others whose sinful reactions had been destroyed fanned Him with hand-held fans.”
-
+[[Important Verse]]
 **Purport:**
 
 Purport

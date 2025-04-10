@@ -18,10 +18,10 @@ pañca-tattva — these five tattvas; caitanyera — with Caitanya Mahāprabhu; 
 **Translation:**
 
 Translation
-These five tattvas incarnate with Lord Caitanya Mahāprabhu, and thus the Lord executes His saṅkīrtana movement with great pleasure.
+These five tattvas incarnate with Lord Caitanya Mahāprabhu, and thus the Lord executes His saṅkīrtana movement with great pleasure. 
 
 **Purport:**
-
+[[SB_Verse_11.5.32]]
 Purport
 In Śrīmad-Bhāgavatam (11.5.32) there is the following statement regarding Śrī Caitanya Mahāprabhu:
 kṛṣṇa-varṇaṁ tviṣākṛṣṇaṁ sāṅgopāṅgāstra-pārṣadam

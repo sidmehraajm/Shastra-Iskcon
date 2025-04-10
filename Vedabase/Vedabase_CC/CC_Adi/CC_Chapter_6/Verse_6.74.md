@@ -21,7 +21,7 @@ tapaḥ — austerity; carantīm — performing; ājñāya — knowing; sva-pād
 
 Translation
 “Knowing me to be performing austerities with the desire to touch His feet, He came with His friend Arjuna and accepted my hand. Yet I am but a maidservant engaged in sweeping the floor of the house of Śrī Kṛṣṇa.”
-
+[[SB_Verse_10.83.11]]
 **Purport:**
 
 Purport

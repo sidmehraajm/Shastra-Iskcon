@@ -21,7 +21,7 @@ vraja-jana-ārti-han — O one who diminishes all the painful conditions of the 
 
 Translation
 “O Lord, remover of the afflictions of the inhabitants of Vṛndāvana! O hero of all women! O Lord who destroy the pride of Your devotees by Your sweet, gentle smile! O friend! We are Your maidservants. Please fulfill our desires and show us Your attractive lotus face.”
-
+[[Important Verse]] [[SB_Verse_10.31.6]]
 **Purport:**
 
 Purport

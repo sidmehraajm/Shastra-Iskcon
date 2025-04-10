@@ -21,7 +21,7 @@ hā — O; nātha — My Lord; ramaṇa — O My husband; preṣṭha — O My m
 
 Translation
 “O My Lord, O My husband, O most dearly beloved! O mighty-armed Lord! Where are You? Where are You? O My friend, reveal Yourself to Your maidservant, who is very much aggrieved by Your absence.”
-
+[[Very_Important_Verse]] [[SB_Verse_10.30.39]]
 **Purport:**
 
 Purport

@@ -19,7 +19,7 @@ nānā-bhakta-bhāve — various emotions of a devotee; karena — does; sva-mā
 
 Translation
 He tastes His own sweetness through the various emotions of a devotee. I have formerly explained this conclusion.
-
+[[Lord Caitanya Mahāprabhu]]
 **Purport:**
 
 Purport

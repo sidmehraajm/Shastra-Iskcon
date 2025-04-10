@@ -19,4 +19,4 @@ Synonyms
 
 Translation
 Lord Kṛṣṇa considers His devotees greater than Himself. In this connection the scriptures provide an abundance of evidence.
-
+[[devotee]]

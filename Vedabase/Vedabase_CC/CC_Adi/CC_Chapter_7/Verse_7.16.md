@@ -19,4 +19,4 @@ Synonyms
 
 Translation
 There are innumerable pure devotees of the Lord, headed by Śrīvāsa Ṭhākura, who are known as unalloyed devotees.
-
+[[Śrīvāsa Ṭhākura]]

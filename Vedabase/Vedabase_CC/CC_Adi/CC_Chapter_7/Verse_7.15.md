@@ -19,7 +19,7 @@ ei tina tattva — all three of these truths; sarva-ārādhya — worshipable by
 
 Translation
 The three predominators [Caitanya Mahāprabhu, Nityānanda Prabhu and Advaita Prabhu] are worshipable by all living entities, and the fourth principle [Śrī Gadādhara Prabhu] is to be understood as Their worshiper.
-
+[[Important Verse]] [[Gadādhara]]
 **Purport:**
 
 Purport

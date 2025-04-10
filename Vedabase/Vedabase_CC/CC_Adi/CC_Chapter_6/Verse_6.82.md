@@ -19,4 +19,4 @@ pitā — father; mātā — mother; guru — superior teacher; sakhā — frien
 
 Translation
 All the emotions, whether those of father, mother, teacher or friend, are full of sentiments of servitude. That is the nature of love of Kṛṣṇa.
-
+[[devotionalservice]]

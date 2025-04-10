@@ -20,6 +20,8 @@ kṛṣṇa-mādhuryera — the supreme pleasure potency of Kṛṣṇa; eka —
 Translation
 The transcendental mellow of conjugal love of Kṛṣṇa is so wonderful that Kṛṣṇa Himself accepts the form of a devotee to relish and taste it fully.
 
+
+
 **Purport:**
 
 Purport

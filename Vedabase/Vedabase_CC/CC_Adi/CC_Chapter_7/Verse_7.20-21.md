@@ -22,6 +22,9 @@ sei — those; pañca-tattva — five truths; mili’ — combined together; p�
 Translation
 The characteristics of Kṛṣṇa are understood to be a storehouse of transcendental love. Although that storehouse of love certainly came with Kṛṣṇa when He was present, it was sealed. But when Śrī Caitanya Mahāprabhu came with His associates of the Pañca-tattva, they broke the seal and plundered the storehouse to taste transcendental love of Kṛṣṇa. The more they tasted it, the more their thirst for it grew.
 
+[[Lord Caitanya Mahāprabhu]]  [[Very_Important_Verse]]
+
+
 **Purport:**
 
 Purport

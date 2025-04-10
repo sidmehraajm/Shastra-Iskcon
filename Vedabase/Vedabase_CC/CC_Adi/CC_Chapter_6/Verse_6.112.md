@@ -19,7 +19,7 @@ mūla — original; bhakta — of a devotee; avatāra — incarnation; śrī-sa�
 
 Translation
 The original bhakta-avatāra is Saṅkarṣaṇa. Śrī Advaita is counted among such incarnations.
-
+[[Saṅkarṣaṇa]]
 **Purport:**
 
 Purport

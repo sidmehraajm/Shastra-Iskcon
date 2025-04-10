@@ -19,7 +19,7 @@ Synonyms
 
 Translation
 What to speak of others, even Lord Baladeva, the Supreme Personality of Godhead, is full of emotions like pure friendship and paternal love.
-
+[[Lord Balarāmā]]
 **Purport:**
 
 Purport

@@ -19,7 +19,7 @@ eka mahāprabhu — one Mahāprabhu, or the supreme predominator; āra prabhu du
 
 Translation
 One of Them is Mahāprabhu, and the other two are prabhus. These two prabhus serve the lotus feet of Mahāprabhu.
-
+[[Important Verse]]
 **Purport:**
 
 Purport

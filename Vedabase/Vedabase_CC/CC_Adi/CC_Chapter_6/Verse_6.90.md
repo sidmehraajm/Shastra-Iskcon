@@ -19,4 +19,4 @@ tāṅra avatāra — His incarnation; āna — another; śrī-yuta — with all
 
 Translation
 Another of His incarnations, Lakṣmaṇa, who is very beautiful and opulent, always serves Lord Rāma.
-
+[[Lord Ram]] [[Lakṣmaṇa]] [[devotionalservice]]

@@ -19,4 +19,4 @@ caitanyera — of Lord Śrī Caitanya Mahāprabhu; dāsa — servant; muñi — 
 
 Translation
 “I am a servant of Lord Caitanya, a servant of Lord Caitanya. I am a servant of Lord Caitanya, and a servant of His servants.”
-
+[[Advaita Ācārya]]
