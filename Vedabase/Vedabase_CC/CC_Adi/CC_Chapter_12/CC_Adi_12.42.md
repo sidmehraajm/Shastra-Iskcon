@@ -19,7 +19,7 @@ ye daṇḍa — the punishment; pāila — got; śrī-śacī bhāgyavatī — t
 
 Translation
 “A similar punishment was awarded to mother Śacīdevī. Who could be more fortunate than she to receive such punishment?”
-
+[[Punishment by Lord]]
 **Purport:**
 
 Purport

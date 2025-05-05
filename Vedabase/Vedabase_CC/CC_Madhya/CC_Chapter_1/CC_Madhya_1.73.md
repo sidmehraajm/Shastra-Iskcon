@@ -19,4 +19,4 @@ prabhu kahe — the Lord said; tāre — him; āmi — I; santuṣṭa hañā �
 
 Translation
 The Lord said, “I was so pleased with Rūpa Gosvāmī that I embraced him and bestowed upon him all necessary potencies for preaching the bhakti cult.
-
+[[Srila Rupa Goswami]]

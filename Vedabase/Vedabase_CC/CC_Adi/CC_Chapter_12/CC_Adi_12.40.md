@@ -19,7 +19,7 @@ mukti — liberation; śreṣṭha — the topmost; kari’ — accepting; kainu
 
 Translation
 “Thus I expounded the Yoga-vāśiṣṭha, which considers liberation the ultimate goal of life. For this the Lord became angry at Me and treated Me with apparent disrespect.
-
+[[Punishment by Lord]]
 **Purport:**
 
 Purport

@@ -24,6 +24,8 @@ durvā — fresh grass; dhānya — rice paddy; gorocana — a yellow patch for 
 Translation
 Riding in a palanquin covered with cloth and accompanied by maidservants, Sītā Ṭhākurāṇī came to the house of Jagannātha Miśra, bringing with her many auspicious articles such as fresh grass, paddy, gorocana, turmeric, kuṅkuma and sandalwood. All these presentations filled a large basket.
 
+
+
 **Purport:**
 
 Purport

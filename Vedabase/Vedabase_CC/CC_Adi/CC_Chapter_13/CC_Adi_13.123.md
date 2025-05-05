@@ -24,6 +24,9 @@ pāiyā mānuṣa janma — anyone who has gotten the form of a human body; ye �
 Translation
 Anyone who attains a human body but does not take to the cult of Śrī Caitanya Mahāprabhu is baffled in his opportunity. Amṛtadhunī is a flowing river of the nectar of devotional service. If after getting a human body one drinks the water in a poison pit of material happiness instead of the water of such a river, it would be better for him not to have lived, but to have died long ago.
 
+[[Important Verse]]
+[[devotionalservice]] 
+
 **Purport:**
 
 Purport

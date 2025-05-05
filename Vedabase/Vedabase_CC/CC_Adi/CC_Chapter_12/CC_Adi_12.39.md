@@ -19,4 +19,4 @@ pūrve — previously; mahāprabhu — Lord Caitanya Mahāprabhu; more — unto 
 
 Translation
 “Formerly Lord Caitanya Mahāprabhu always respected Me as His senior, but I did not like such respect. Therefore, My mind being afflicted by unhappiness, I made a plan.
-
+[[Punishment by Lord]]

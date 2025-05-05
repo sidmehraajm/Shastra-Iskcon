@@ -23,7 +23,7 @@ kṣut — hunger; tṛṭ — thirst; tri-kāla-guṇa — the manifestations o
 
 Translation
 Some men practice severe penances to cross beyond our influence, which is like an immeasurable ocean with endless waves of hunger, thirst, heat, cold and the other conditions brought about by the passing of time, such as the sensuous wind and the urges of the tongue and sex organs. Nevertheless, although crossing this ocean of sense gratification through severe penances, such persons foolishly drown in a cow’s hoofprint when conquered by useless anger. Thus they exhaust the benefit of their difficult austerities in vain.
-
+[[anger]]
 **Purport:**
 
 Purport

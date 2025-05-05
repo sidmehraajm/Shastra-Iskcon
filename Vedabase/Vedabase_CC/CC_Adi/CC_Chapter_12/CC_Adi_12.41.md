@@ -19,7 +19,7 @@ daṇḍa pāñā — receiving the punishment; haila — became; mora — My; p
 
 Translation
 “When chastised by Lord Caitanya, I was very happy to receive a punishment similar to that awarded Śrī Mukunda.
-
+[[Punishment by Lord]]
 **Purport:**
 
 Purport

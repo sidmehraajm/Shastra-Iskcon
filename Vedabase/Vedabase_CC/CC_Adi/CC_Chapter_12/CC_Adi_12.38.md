@@ -24,4 +24,4 @@ Seeing Kamalākānta Viśvāsa unhappy, Advaita Ācārya Prabhu told him, “You
 
 Purport
 This is an authoritative judgment by Śrī Advaita Prabhu. He clearly advises that one should not be unhappy when reverses come upon him by the order of the Supreme Personality of Godhead. A devotee should always be happy to receive the fortune awarded him by the Supreme Lord, which seems pleasant or unpleasant according to one’s judgment.
-
+[[Important Verse]] [[Punishment by Lord]]

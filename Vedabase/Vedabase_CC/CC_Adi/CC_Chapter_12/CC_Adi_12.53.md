@@ -20,3 +20,4 @@ ei — this; śikṣā — instruction; sabākāre — for all; sabe — all pre
 Translation
 When Caitanya Mahāprabhu gave this instruction to Kamalākānta, all present considered it to be meant for everyone. Thus Advaita Ācārya was greatly pleased.
 
+[[order of spiritual master]]

@@ -3,7 +3,7 @@ Created: 2023-09-08T01:33
 📌 Global Tags:
   - "[[Very Important]]"
   - "[[Krishna-Life/TAGS/Guru Maharaj\\|Guru Maharaj]]"
-  - "[[Srila Prabhupada]]"
+  - "[[HDG  A.C. Bhaktivedanta Swami Prabhupada]]"
 ---
 ## kṛṣṇa taba puṇya habe bhāie-puṇya koribe jabe rādhārāṇī sukhī habedhruva ati boli tomā tāi
 

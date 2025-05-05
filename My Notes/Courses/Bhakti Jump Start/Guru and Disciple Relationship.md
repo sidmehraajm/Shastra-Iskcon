@@ -6,7 +6,7 @@
 - by association gradual appreciation in devotional service
 - If one desires unalloyed devotional service, one must associate with devotees, only by this taste for transcendental love can be achieved and one can revive his eternal relationship( rasa)
 - SECRET - One must submissively listen to those who know perfectly the science of God.
-    - Also one has to begin service regulated by someone who is experienced in serving(preceptor)
+    - Also one has to begin service regulated by someone who is experienced in serving(preceptor) [[Very Important]]
          
 # What a Guru Represents
 
@@ -14,32 +14,32 @@
 - Is a representation of Krishna
     - _sākṣād-dharitvena samasta-śāstrair_  
         _The guru is to be honored as much as the Supreme Lord, because he is the most confidential servitor of the Lord_  
-- Guru’s Busine ss -
+- Guru’s Business -
     - to instruct everyone to follow Krishna’s orders in bg & Sb(yare deke tare kaha krsna upadesa)
     - to get the disciple out of darkness & open the eyes with the torch of knowledge
 - Srila Prabhupada -
     - Prabhupada followed the order of guru and preached all over the world and did what no one else could’ve done(Lilamrta)
-    - we should have a personal relationship with prabhupada
+    - we should have a personal relationship with prabhupada [[HDG  A.C. Bhaktivedanta Swami Prabhupada]]
 
 # Qualifications of a Guru
 
-- The qualification of the guru is that he has realised the conclusion of scriptures by deep study and consideration & is able to convince others of these conclusions 11.3.21
+- The qualification of the guru is that he has realized the conclusion of scriptures by deep study and consideration & is able to convince others of these conclusions [[SB_Verse_11.3.21]]
 - NOI 1
 - Teaches by example, like prabhupada & also mentioned by mahaprabhu as he accepts the role of devotee & teaches by practcing
 - No deviation through mental speculation and always aligns with the vedic litrature as well as acaryas
 - himself must be a disciple of a genuine guru
-- Knows the science of krishna - anyone bhramana, sanyasi sudra, is a guru if he knows the science of kc (kipba vpira kiba nyasi, sudra kene naya cc8.128)
+- Knows the science of krishna - anyone bhramana, sanyasi sudra, is a guru if he knows the science of kc (kipba vpira kiba nyasi, sudra kene naya cc8.128) [[CC_Madhya_8.128]]
 
 # Qualifications of a Disciple
 
-- OBEDIENCE, without that there cant be discipline, unless there is discipline, there is no question of disciple. Disciple means one who follows the discipline.
+- ==**OBEDIENCE, without that there cant be discipline, unless there is discipline, there is no question of disciple. Disciple means one who follows the discipline.==** [[Very Important]]
 - What is discipline
     - accept a bonafide guru
     - take initiation from him
     - serve him
     - recieve instructions & ask questions
     - follow in the footsptes of previous acaryas
-    - follow directions given by guru
+    - ==**follow directions given by guru**==
 - How to follow discipline
     - must have faith in Lord & Spiritual amster only thn the real vedic knowledge is revealed
     - One must be sincere & submissive in order to get instrictions
@@ -50,20 +50,20 @@
     - remember the nectar of krishna’s pastimes
     - ==must follow regulative principles==
     - ==shoudn’t have any material desires==
-    - shouldn’t blaspheme others
+    - ==**shouldn’t blaspheme others==**
     - lead a very simple life
-    - not ger disturbed by duality & learn to tolerate
+    - not get disturbed by duality & learn to tolerate
 - Qualification of bonafide disciple -
     - Should have these qualities -
-        - devoted to lotus feet of guru
+        - **devoted to lotus feet of guru**
         - capable of upholding the vows made to guru
-        - in servive to krishna by BODY MIND WORDS
+        - in service to krishna by BODY MIND WORDS
         - should have desire of knowing the absolute truth
         - SPOTLESS IN CHARACTER
             - truthful, gentle, polite
             - pleasing in appearance & intelligent
         - Respect elders, initiated vaishnavas & lord
-        - be silent concerning material subjects & control his senses
+        - ==be silent concerning material subjects & control his senses==
         - NO ATTRACTION FOR SINFUL ACTIVITES
     - Shouldn’t have these qualties-
         - Lazy, Dirty, sickly, always lamenting, angry
@@ -72,7 +72,7 @@
         - not indulge in sinful activities(4 pillars of dharma)
         - not use vulgar language
         - not be ignorant
-        - not critisize anyone
+        - **not critisize anyone**
         - miserly(kanjoos)
         - malicious (desiring to harm anyone)
         - devious or envious
@@ -81,16 +81,16 @@
         - not indulge in non vaishnava philosphies
         - shouldn’t over eat
 - etiquette towards guru
-    - Dandwat as soon as he sees Guru
+    - ==**Dandwat as soon as he sees Guru==**
     - Face guru when he comes & follow when he leaves
-    - not leave presence of guru without asking permission
+    - ==**not leave presence of guru without asking permission==**
     - always say the name of guru with attention
     - not imitate the walk, activities or voice of the guru
-    - hold the gurus words in great respect
+    - ==**hold the gurus words in great respect==**
     - punishment is mercy
-    - not bear to hear critisicism of guru, scriptures & lord but leave the place immediately
-    - Not step on guru’s garland, bed, shoes, āsana, shadow or eating table.
-    - not spread his legs before the guru, nor should he yawn, laugh or make disrespectful noises before him
+    - ==**not bear to hear critisicism of guru, scriptures & lord but leave the place immediately==**
+    - **==Not step on guru’s garland, bed, shoes, āsana, shadow or eating table.==**
+    - ==**not spread his legs before the guru, nor should he yawn, laugh or make disrespectful noises before him==**
     - not sit on an āsana or bed before the guru
     - not worship others in preference to the guru.
     - not give scriptural explanations or show superiority in front of the guru
@@ -105,9 +105,9 @@
         - Learn from Guru by 3 process - Surrender,
         - Find a exhaulted person where one can surrender
         - dont accept any guru all of sudden as fanatic
-        - ==also guru must study the disciple who wants to become disciple==
-- Once the faith is there the disciple surrender as bg 2.7 _śiṣyas te ’haṁ śādhi māṁ tvāṁ prapannam_
-- **The disciple serves and inquires deeply from the spiritual master bg 4.34**
+        - **==also guru must study the disciple who wants to become disciple**==
+- Once the faith is there the disciple surrender as bg 2.7 _śiṣyas te ’haṁ śādhi māṁ tvāṁ  prapannam_[[BG_Verse_2.7]]
+- **The disciple serves and inquires deeply from the spiritual master bg 4.34** [[BG_Verse_4.34]]
     tad viddhi praṇipātena  
     paripraśnena sevayā  
     upadekṣyanti te jñānaṁ  
@@ -121,19 +121,16 @@
         vidyā-sandhiḥ sukhāvahaḥ  
         _**The spiritual master can be compared to the lower kindling stick, the disciple to the upper kindling stick, and the instruction given by the guru to the third stick placed in between. The transcendental knowledge communicated from guru to disciple is compared to the fire arising from the contact of these, which burns the darkness of ignorance to ashes, bringing great happiness both to guru and disciple.**_
 - Expert guru knows how to engage the disciple in seva according to his tendency  
-    - cc adi 1.5 purport  
+    - cc adi 1.5 purport  [[CC_Adi_1.5]]
     
 - Vishvanath Cakravarti says - **One should hear about Kṛṣṇa by hearing from the spiritual master**  
-    **- If the spiritual master is bona fide and if the disciple is sincere and obedient, then the communication between**   
-    _**guru**_ **and disciple is just like nectar, both for the** _**guru**_ **and the disciple.**  
-    **such hearing destroy contamination & primary contamination being the desire to live without serving Kṛṣṇa.**  
+    - **If the spiritual master is bona fide and if the disciple is sincere and obedient, then the communication between guru and disciple is just like nectar, both for the _guru_ and the disciple. such hearing destroy contamination & primary contamination being the desire to live without serving Kṛṣṇa.**  
       
-    **–**  
-     **[ŚB 11.6.19](https://vedabase.io/en/library/sb/11/6/19/) Purport**
+[[SB_Verse_11.6.19]]
 
 # Secret to success
 
-- A**fter being initiated and receiving the orders of the spiritual master, the disciple should unhesitatingly think about the instructions or orders of the spiritual master and should not allow himself to be disturbed by anything else.**
-- **Viśvanātha Cakravartī Ṭhākura in** _**ekeha kuru-nandana 2.41**_ **, points out that the order of the spiritual master is the life substance of the disciple**
-- T**he disciple should not consider whether he is going back home, back to Godhead; his first business should be to execute the order of his spiritual master**
-- **Thus a disciple should always meditate on the order of the spiritual master, and that is perfectional meditation & find out the means by which he can perfectly worship & execute it.**
+- **After being initiated and receiving the orders of the spiritual master, the disciple should unhesitatingly think about the instructions or orders of the spiritual master and should not allow himself to be disturbed by anything else.**
+- **Viśvanātha Cakravartī Ṭhākura in _ekeha kuru-nandana 2.41_ , points out that the order of the spiritual master is the life substance of the disciple**
+- **The disciple should not consider whether he is going back home, back to Godhead; his first business should be to execute the order of his spiritual master**
+- **Thus a disciple should always meditate on the order of the spiritual master, and that is perfectional meditation & find out the means by which he can perfectly worship & execute it.** 

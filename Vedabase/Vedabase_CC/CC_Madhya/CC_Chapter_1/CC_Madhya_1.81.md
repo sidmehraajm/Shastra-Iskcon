@@ -27,5 +27,5 @@ The gopīs spoke thus: “Dear Lord, whose navel is just like a lotus flower, Yo
 **Purport:**
 
 Purport
-This is a verse from Śrīmad-Bhāgavatam (10.82.48).
+This is a verse from Śrīmad-Bhāgavatam (10.82.48).[[SB_Verse_10.82.48]]
 

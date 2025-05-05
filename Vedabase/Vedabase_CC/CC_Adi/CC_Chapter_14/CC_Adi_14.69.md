@@ -21,6 +21,7 @@ saṅkalpaḥ — desire; viditaḥ — has been understood; sādhvyaḥ — O a
 
 Translation
 “ ‘My dear gopīs, I accept your desire to have Me as your husband and thus worship Me. I wish your desire to be fulfilled because it deserves to be so.”’
+[[SB_Verse_10.22.25]]
 
 **Purport:**
 

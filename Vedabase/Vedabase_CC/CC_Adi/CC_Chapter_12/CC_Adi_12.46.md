@@ -18,5 +18,5 @@ eta śuni’ — thus hearing; mahāprabhu — Lord Caitanya Mahāprabhu; hāsit
 **Translation:**
 
 Translation
-Hearing this, Lord Caitanya Mahāprabhu laughed with satisfaction and immediately called Kamalākānta Viśvāsa.
+Hearing this, Lord Caitanya Mahāprabhu laughed with satisfaction and immediately called [[Kamalākānta Viśvāsa]].
 

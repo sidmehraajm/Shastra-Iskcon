@@ -29,3 +29,4 @@ One day shortly after Lord Caitanya Mahāprabhu was born, Advaita Ācārya’s w
 Purport
 It appears that Advaita Ācārya had two different houses, one at Śāntipura and one at Navadvīpa. When Lord Caitanya Mahāprabhu was born, Advaita Ācārya was residing not at His Navadvīpa house but at His Śāntipura house. Therefore, as formerly explained (text 99), from Advaita’s old paternal house (nijālaya) in Śāntipura, Sītā came to Navadvīpa to present gifts to the newborn child, Caitanya Mahāprabhu.
 
+[[Bodily Features of Lord]] 

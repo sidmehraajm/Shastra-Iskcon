@@ -22,7 +22,7 @@ Synonyms
 **Translation:**
 
 Translation
-Taking on my head as my own property the lotus feet of Śrī Caitanya Mahāprabhu, Nityānanda Prabhu, Ācārya Advaitacandra, Svarūpa Dāmodara, Rūpa Gosvāmī and Raghunātha dāsa Gosvāmī, I, Kṛṣṇadāsa Kavirāja Gosvāmī, have thus described the advent of Śrī Caitanya Mahāprabhu.
+Taking on my head as my own property the lotus feet of Śrī Caitanya Mahāprabhu, Nityānanda Prabhu, Ācārya Advaitacandra, Svarūpa Dāmodara, Rūpa Gosvāmī and Raghunātha dāsa Gosvāmī, I, Kṛṣṇadāsa Kavirāja Gosvāmī, have thus described the advent of Śrī Caitanya Mahāprabhu. [[Very_Important_Verse]] [[lotusfeet]]  [[To learn]]
 
 **Purport:**
 

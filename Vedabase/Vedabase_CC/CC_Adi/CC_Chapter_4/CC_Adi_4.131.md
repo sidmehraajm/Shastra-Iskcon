@@ -24,7 +24,7 @@ vibhuḥ — all-pervading; api — although; kalayan — making; sadā — alwa
 Translation
 “All glories to Rādhā’s love for Kṛṣṇa, the enemy of the demon Mura! Although it is all-pervading, it tends to increase at every moment. Although it is important, it is devoid of pride. And although it is pure, it is always beset with duplicity.”
 
-Explanation by [[Radha Gopinath Das]] 
+Explanation by [[H. G. Radha Gopinath Prabhu]] 
 -  Although it is all-pervading, it tends to increase at every moment. - The love and pastimes of krsishna always keeps expanding
 	- Becuase Krishna can expand the leela and dham also expands to acomodate the leela 
 	- here Krishna cannot understand why 

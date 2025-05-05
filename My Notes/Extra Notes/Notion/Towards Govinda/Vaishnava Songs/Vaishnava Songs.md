@@ -31,7 +31,7 @@ Global Tags:
 |[[Manasa Deho Geho Jo Kichu Mor]]||October 28, 2023 1:55 AM||||
 |[[Madhurashtakam]]||August 21, 2023 4:39 AM||||
 |[[Madhava Bahuta Minati Kari Toya]]||November 13, 2023 11:56 AM||||
-|[[Krsna Tava Punya Habe Bhai]]||September 8, 2023 1:33 AM|||[[Very Important]], [[Krishna-Life/TAGS/Guru Maharaj\|Guru Maharaj]], [[Srila Prabhupada]]|
+|[[Krsna Tava Punya Habe Bhai]]||September 8, 2023 1:33 AM|||[[Very Important]], [[Krishna-Life/TAGS/Guru Maharaj\|Guru Maharaj]], [[HDG  A.C. Bhaktivedanta Swami Prabhupada]]|
 |[[Krsna Prema Mayi Radha]]|Jiva Goswami|September 26, 2023 11:50 PM||||
 |[[Je Anilo Prema Dhana Koruna Pracura]]|Narottama Dasa Thakura|November 13, 2023 10:58 AM||||
 |[[Jaydev Goswami]]||September 29, 2023 8:18 PM||||

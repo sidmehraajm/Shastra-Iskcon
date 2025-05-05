@@ -21,7 +21,7 @@ aśaucam — dirtiness; anṛtam — dishonesty; steyam — thievery; nāstikyam
 
 Translation
 Dirtiness, dishonesty, thievery, faithlessness, useless quarrel, lust, anger and hankering constitute the nature of those in the lowest position outside the varṇāśrama system.
-
+[[Lust]] 
 **Purport:**
 
 Purport

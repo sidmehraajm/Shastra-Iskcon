@@ -15,10 +15,10 @@
 		{"id":"e86fe1d385c688b0","type":"text","text":"# Brahman Realization","x":-720,"y":-277,"width":367,"height":77,"color":"3"},
 		{"id":"251fd4b5b5f9fbca","type":"text","text":"# Parmatma Realization","x":-720,"y":-448,"width":367,"height":77,"color":"4"},
 		{"id":"1568d1f580eed45d","type":"text","text":"# Bhagvan Realization","x":227,"y":-858,"width":367,"height":77,"color":"5"},
-		{"id":"9a45cb4541912f55","type":"text","text":"# **Bhakti Yoga**","x":-400,"y":1680,"width":250,"height":80,"color":"2"},
-		{"id":"8eaf1f00bf12e5c0","type":"text","text":"# **Karma-yoga**","x":-820,"y":1880,"width":250,"height":80,"color":"6"},
-		{"id":"27063fa5a52ab157","type":"text","text":"# **Dhyāna-yoga**","x":280,"y":2040,"width":260,"height":80,"color":"5"},
-		{"id":"595327995c266d52","type":"text","text":"# Jñāna-yoga","x":-525,"y":2200,"width":250,"height":80,"color":"4"}
+		{"id":"9a45cb4541912f55","type":"text","text":"# **Bhakti Yoga**","x":1326,"y":-1261,"width":250,"height":80,"color":"2"},
+		{"id":"8eaf1f00bf12e5c0","type":"text","text":"# **Karma-yoga**","x":826,"y":-1021,"width":250,"height":80,"color":"6"},
+		{"id":"595327995c266d52","type":"text","text":"# Jñāna-yoga","x":1326,"y":-781,"width":250,"height":80,"color":"4"},
+		{"id":"27063fa5a52ab157","type":"text","text":"# **Dhyāna-yoga**","x":2026,"y":-1021,"width":260,"height":80,"color":"5"}
 	],
 	"edges":[
 		{"id":"6d982e225067067c","fromNode":"8a7f0171c3caedec","fromSide":"top","toNode":"2e6e36f4f594d9f6","toSide":"bottom"},
