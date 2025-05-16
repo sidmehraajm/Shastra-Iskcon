@@ -24,3 +24,4 @@ ye madana — that Cupid; tanu-hīna — without a body; para-drohe — in putti
 Translation
 “In My loving affairs there is a person named Madana. His qualities are thus: Personally He possesses no gross body, yet He is very expert in giving pains to others. He has five arrows, and fixing them on His bow, He shoots them into the bodies of innocent women. Thus these women become invalids. It would be better if He took My life without hesitation, but He does not do so. He simply gives Me pain.
 
+[[Very_Important_Verse]]

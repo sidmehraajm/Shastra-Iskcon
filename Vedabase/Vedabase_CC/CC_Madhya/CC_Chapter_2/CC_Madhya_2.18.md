@@ -24,6 +24,7 @@ prema-cheda-rujaḥ — the sufferings of a broken loving relationship; avagacch
 Translation
 [Śrīmatī Rādhārāṇī used to lament:] “ ‘Our Kṛṣṇa does not realize what We have suffered from injuries inflicted in the course of loving affairs. We are actually misused by love because love does not know where to strike and where not to strike. Even Cupid does not know of Our very much weakened condition. What should I tell anyone? No one can understand another’s difficulties. Our life is actually not under Our control, for youth will remain for two or three days and soon be finished. In this condition, O creator, what will be Our destination?’ ”
 
+[[Very_Important_Verse]]
 **Purport:**
 
 Purport

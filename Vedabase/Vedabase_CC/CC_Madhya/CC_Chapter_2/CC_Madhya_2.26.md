@@ -24,3 +24,4 @@ agni — fire; yaiche — like; nija-dhāma — his own place; dekhāiyā — sh
 Translation
 “ ‘If you say that Kṛṣṇa is an ocean of transcendental qualities and therefore must be merciful some day, I can only say that He is like fire, which attracts moths by its dazzling brightness and kills them. Such are the qualities of Kṛṣṇa. By showing Us His transcendental qualities, He attracts Our minds, and then later, by separating from Us, He drowns Us in an ocean of unhappiness.’ ”
 
+[[Very_Important_Verse]]

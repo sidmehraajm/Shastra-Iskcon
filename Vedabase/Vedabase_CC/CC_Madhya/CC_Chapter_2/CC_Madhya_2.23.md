@@ -24,3 +24,4 @@ anyera — of others; ye — that; duḥkha — unhappiness; mane — in the min
 Translation
 “In the scriptures it is said that one person can never know the unhappiness in the mind of another. Therefore what can I say of My dear friends, Lalitā and the others? Nor can they understand the unhappiness within Me. They simply try to console Me repeatedly, saying, ‘Dear friend, be patient.’
 
+[[Very_Important_Verse]]
